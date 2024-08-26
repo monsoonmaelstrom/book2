@@ -694,7 +694,7 @@ Davy and I both sigh loudly, in unison.
 
 “Fine,” he also agrees.
 
-### 4- Unbelievable
+### 4- Unbelievable/Outta Me Onto You/Breakdown ^^2400 words^^
 
 We arrive back in Leisch late in the evening, and the house appears dark.
 
@@ -866,7 +866,7 @@ I shrug.
 
 I look at Giorgi and he shrugs before saying, “If he asks. Yeah. Probably.”
 
-“Fair. I told Giorgi he would benefit from meeting me in the stables later. He’ll probably learn faster without the rest of slowing him down.”
+“Fair. I told Giorgi he would benefit from meeting me in the stables later. He’ll probably learn faster without the rest of you slowing him down.”
 
 “Ah,” Peter says.
 
@@ -880,7 +880,7 @@ I look at Giorgi and he shrugs before saying, “If he asks. Yeah. Probably.”
 
 “Go ahead,” I say, calling what I hope is a bluff.
 
-“Hazel wants to train Giorgi up in hopes that if she… what? Breaks bad one day, someone might have a chance a killing her,” Peter says.
+“Hazel wants to train Giorgi up in hopes that if she… what? Breaks bad one day, someone might have a chance at killing her,” Peter says.
 
 Fuck.
 
@@ -912,11 +912,11 @@ Fuck.
 
 “Un-fucking-believable, Hazel!” Liam says, but he’s still standing there.
 
-He hasn’t walked away yet, so I start talking. “Everyone wants the impossible from me, and maybe the impossible is the straw that breaks the camel’s back. Half the time, I feel like I’m just pretending at being a person. This, all of this, could be what makes it so that I don’t bother pretending at all, so excuse me for wanting a contingency plan!”
+He hasn’t walked away yet, so I start talking. “Everyone wants the impossible from me, and maybe the impossible is the straw that breaks the camel’s back. I already feel like I’m just pretending at being a person half the time. This, all of this, could be what makes it so that I don’t bother pretending at all, so excuse me for wanting a contingency plan!”
 
 “This isn’t a contingency plan.”
 
-“It’s the *only* contingency plan,” I say, stepping towards him, but he steps back in retreat. “Fine. You want to know how I feel? I feel defeated because every time I try to explain this part of myself to you, you act like I’m irrational. But I’m not. This is logical. It is a rational decision.”
+“It’s the *only* contingency plan,” I say, stepping towards him, but he steps back in retreat. “Fine. You want to know how I feel? I feel defeated because every time I try to explain this part of myself to you, you act like I’m irrational. But I’m not. *This* is logical. It is a *rational* decision.”
 
 “I asked you to talk to me last night!”
 
@@ -925,3 +925,251 @@ He hasn’t walked away yet, so I start talking. “Everyone wants the impossibl
 “Because who you are is fine.”
 
 “Who I am is fine, *for now!* Until you all push me too far and I can’t find my way back to being this person anymore!”
+
+“Okay,” Liam says, taking a breath and running a hand through his hair to push it out of his face. He steps toward me, and unlike him, I hold my ground, so he takes another step. “Okay,” he repeats and wraps his arms around me.
+
+I stay rigid within his embrace though. “I hear what you’re saying, *but* I don’t think it’s a good plan. And I still think you should have told me about it last night. You were already planning this last night, weren’t you?”
+
+“Yes. I was planning it last night. And fine, you asked, and I probably should have mentioned it. But unless you have a better solution, I don’t want listen to you tell me it’s a bad plan.” Okay. I guess I’m still angry.
+
+“As a matter of fact, I do have a better solution.”
+
+“Well?” I prompt.
+
+“Be realistic. If it were ever to get to the point where Giorgi needed to kill you, it’s not like he’s going to be able to do it unless you let him, which at that point you wouldn’t.”
+
+“Yes. I am also aware of that, but I don’t see a better option.”
+
+“Figure out what your mother did to me, and then do it to yourself,” he says, matter of factly.
+
+Damn. It *is* a better solution. I finally relent and wrap my arms around him too.
+
+“Fine. Your plan is better,” I admit. “But until then I still want to teach Giorgi.”
+
+“Fine,” he murmurs.
+
+### 5 - Nose Bleed ^^2100 words^^
+
+A couple of hours later, we arrive back at the house. Liam sees Gavin and asks, “Do you know where Peter is?”
+
+“Outside, by the lawn animals with Alex and Davy, I think. Why?” Gavin asks as Liam is already moving forward with his hand on the small of my back. “Oh, well. This looks fun. Count me in,” Gavin says.
+
+I shoot him a look over my shoulder with my eyebrows raised in question, but he just grins. We go through the house, out the rear door, and across the lawn to the topiary zoo.
+
+Once we’re within twenty feet of the trio, I see Alex grab Davy’s arm and step back, at the same time Liam drops his hand from my back and continues striding forward alone toward Peter. Peter hears us behind him and begins turning toward us. As he completes the turn, Liam slams a hook into his ribs, and then nails him with a cross to his face that I’m pretty sure just broke his nose. And he’s already moving, grabbing Peter’s left arm, and yanking it around to force Peter to the ground face first. Once Peter’s on the ground Liam puts a knee on his back pinning him there.
+
+“Stay the fuck out of my relationship, Peter,” Liam tells him flatly. “Got it?”
+
+“Yeah, got it,” Peter grunts in pain.
+
+Liam releases his arm, and moves back to stand by me.
+
+“I thought Peter *wasn’t* the asshole?” I say softly.
+
+“No, he’s an asshole too,” Liam answers quickly.
+
+Gavin laughs as Davy asks, “What the hell was that about?”
+
+“Nothing Peter didn’t deserve,” Gavin informs him.
+
+Peter regains his feet with a hand on his face, feeling his nose. “I think you broke it,” Peter mumbles, glaring at Liam.
+
+“Not for the first time, as I remember,” Gavin comments.
+
+“Huh,” I say, giving Liam a sideways glance. He shrugs.
+
+“See,” Gavin says to me with a smirk. “I told you he was just some neighborhood troublemaker we knew.”
+
+I can’t help but laugh.
+
+“Want me to fix it?” Alex is asking Peter.
+
+“No,” Liam tells Alex. “If he wants it fixed he can figure out how to do it himself.”
+
+Alex looks between them, and sighs. He steps back and leaves Peter to figure it out on his own.
+
+It’s at this moment Henry comes out of the house with Amelia, and some guy I assume is her cousin, whatever his name was, trailing behind. When they finally come within speaking distance of our group, Amelia says, “That’s a good look on you, Peter,” as she laughs. “Did you do that, Hazel?”
+
+“No,” I say, and look pointedly at Liam.
+
+“Liam? Really? Interesting,” she comments. “I think I might actually prefer this version of you, Liam.”
+
+Liam sighs, irritably but he brought this on himself, as far as I’m concerned. Not that I wasn’t going to do something similar. But he kind of stole my thunder. And now if *I* punch Peter in the face, it looks like we’re unfairly targeting him.
+
+Amelia’s cousin looks incredibly confused.
+
+Finally, Amelia says, “Everyone, this is Michael. Michael, that’s Hazel, Liam, and Gavin,” she says pointing at us each in turn. “The idiot with the bloody face is Peter. The taller guy back there is Alex, and the shorter one is Davy. Alex is Hazel’s brother and Davy is her cousin. There are a couple of others around somewhere. Gavin’s younger brother Giorgi, and Lisette, who’s hard to miss.”
+
+We all chorus some variation of ‘hi.’
+
+“Henry, you know which rooms they’ll be staying in?” Davy asks.
+
+“Yeah, I’ll show them,” Henry replies. “Come on, guys.”
+
+“Make sure they make it to this afternoon’s training,” Davy calls after him. “You and I are going to have it coming,” Davy says, turning to me.
+
+“I know,” I tell him. “She’s going to make it good too.”
+
+“Yeah.”
+
+----
+
+We’re all back in the same clearing as a few days ago, waiting for her to show up. Davy and I have distanced ourselves from the others. There’s no reason to draw her attention to anyone else. So we stand alone, waiting for the axe to fall, as the others talk among themselves.
+
+She walks into the clearing about fifteen minutes after the rest of us showed up. “Oh good. Hazel and Davy, have decided to join us today.”
+
+“Shit,” I mutter and Davy nods in agreement. She used both of our names. Without prompting. She’s looking forward to whatever this is.
+
+“They will be giving us a demonstration today,” she continues. “As they have clearly intuited.”
+
+We both stand silently, waiting to hear whatever it is she’s devised, while the others look on with varying degrees of apprehension. Alex looks like a piano wire wound so tightly me might break at any moment, and I can see the concern etched across Liam’s face. The forced neutrality I see on Giorgi’s face tells me he also knows enough to know this is about to get ugly.
+
+“Hazel and Davy are going to show us how to move energy through another’s meridians.” She turns to look directly at us. “You have three minutes to figure out how you want to do it.”
+
+“Fine,” I answer. Turning my back slightly from the others. Davy follows suit as I shield the air around us to stop our conversation from traveling. “I’m pretty sure this is going to fucking hurt,” I tell Davy.
+
+“Yup.”
+
+“You should pull it through me,” I tell him. “I think I”m going to have to do this to Lisette, so it’d be better if I had some idea how it feels, anyway.”
+
+“If I pull it through you, I’m not sure I’ll be able to shunt it off quickly enough,” he tells me.
+
+“What if I try to slow the flow?”
+
+“It’ll probably make it hurt worse,” he says.
+
+“I know. It’s fine. I’ll deal with it.”
+
+“Okay.”
+
+I start the process of separating my mind from my body as much as I can, because I have the feeling this is going to be really, really painful, and I’m just going to have to let it happen.
+
+I drop the shield and turn back to my mother. “How long?”
+
+“Until I say you’re done.”
+
+Fuck. “Fine,” I say flatly. “Let’s go, Davy.” I hold my hand out, and he wraps his own around it.
+
+“Ready?” he asks me.
+
+I ensure there’s not too much power flowing through me and nod.
+
+It’s the reverse of yesterday, and I’m just a passive participant as Davy moves energy though me, and my body pulls in more to replace what he’s moving out of me, into himself, and then pushing back into our surroundings. It’s almost a perfect loop, but it hurts. It feels like I imagine having boiling liquid pumped through my veins would feel, and I move my mind further away from my body.
+
+I don’t know how long it’s been—it feels like forever, but I really don’t know—when I hear the screaming start. I’m not sure who’s screaming. But someone. Not me, I think. I can’t deal with it though because keeping the flow of power limited and the pain from overwhelming me is taking all of my focus.
+
+*Davy*, I think I realize eventually. *It’s Davy screaming*, I’m not sure what’s gone wrong, but apparently something has. I’m trying to shut it down, but I can’t. It’s all flowing the wrong way.
+
+I think I hear Alex and Liam shouting in the distance but I can’t make out the words. It’s all just angry sounds.
+
+Then, with a jolt that feels like I’ve been kicked by a horse, I’m flat on my back and someone is grabbing me under my arms and pulling me upright. Giorgi, I realize. I look around for Davy, and see him still on the ground with Alex hovering over him. I’m not sure how bad it is yet.
+
+And Liam is holding a knife to my mother’s throat. “I’ll kill you myself,” he tells her, “if you ever pull another stunt like that. Right now, you are alive at my sufferance. Do not try me, Alexandria, because I would consider your life well worth my own,” he says icily.
+
+Once I’m on my feet and no longer swaying, Giorgi releases me.
+
+“We’re done today,” I tell everyone, but mostly her. “And if there’s anything wrong with Davy, I’ll figure out how to make you pay. You know I will.”
+
+“He’ll be fine,” she says airily, as if she doesn’t have a knife to her throat. “You’re all always so dramatic.”
+
+Liam removes the knife and she turns and walks away at the most deliberately sedate pace I have ever seen in my life.
+
+I turn to Alex, “How is he?”
+
+“His pulse was thready,” Alex says, “but it’s evening out now.”
+
+“What happened?” I ask.
+
+“After the first hour and half, he started sweating,” Henry supplies.
+
+“Hour and a half? How long has it been?”
+
+“Almost two and a half hours,” Alex says softly.
+
+“Fucking bitch,” I manage to bite out.
+
+“Yeah, he needed a break, but she wouldn’t call time, and he wasn’t about to stop before then and make it worse,” Alex supplies.
+
+I nod. “He chose the smart move.”
+
+“*That* was smart?” Liam asks.
+
+“Yes,” Alex and I both say simultaneously.
+
+“All of our blood is still inside our bodies. It could have been worse,” I tell him. “Gods, I hate her,” I mutter.
+
+“Come on,” Liam says to Alex. “I’ll help you get him to your room.”
+
+Alex nods and they lift Davy together, moving ahead of the rest of us.
+
+“You good?” Giorgi asks me.
+
+“Yeah, I’m good,” I answer. “Amelia and the other one. Can you and Gavin explain the shit with the knot to them? Show them?”
+
+He nods.
+
+“Thanks,” I say as he moves to speak to Gavin.
+
+“You look like shit,” Lisette tells me.
+
+“Yeah. Well.” I shrug. “Still want to be able to do magic?” I ask her. “Because I think we’re going to have to do something like that with you.”
+
+“Let me sleep on it,” she says with the first hint of trepidation I’ve seen from her.
+
+“Good choice,” I say as she moves ahead and is replaced by Peter. “Fucking Peter,” I mutter once I’m sure he’ll be able to hear.
+
+“That looked pretty rough,” he tells me.
+
+“Felt worse.”
+
+“I’m sorry about earlier. With Liam.”
+
+“Only because it earned you a busted face,” I say with certainty.
+
+“Maybe. But you can’t honestly think keeping something like that from Liam is a good idea.”
+
+“You’re right, but it’s still none of your business. You were trying to start a fight between us. What I can’t figure out is why. It’s okay though. I’ll get there eventually.”
+
+“Because I’m an asshole,” he supplies.
+
+“You are, but I think there’s more to it than that. I think you’re playing both sides against the middle.”
+
+“If I am, I certainly don’t seem to be very good at it,” he comments drily, as he continues to walk next to me.
+
+“Indeed.”
+
+----
+
+I make it back to the room Liam and I are occupying by myself, and he shows up about ten minutes after.
+
+“How’s Davy?” I ask.
+
+“The same, but Alex thinks he’ll be okay by the morning.”
+
+I nod. “And Alex?”
+
+“Angry. He’ll be fine though.”
+
+“Okay. About Peter…”
+
+“Yes?” Liam asks cautiously.
+
+“How certain are you that you can trust him, because I swear he gives me the distinct impression that he’s going to fuck us all over at any minute.”
+
+“If you’d asked me a month ago, I would have told you I trusted him with my life,” Liam says, as he drags a hand across his face. “Now… I don’t know. I think I still trust him, but I’ll be damned if he isn’t making it difficult.”
+
+“Okay,” I say. He believed me when I said something similar about Alex, so I do the same. “Tell me if that changes, please.”
+
+“Yeah. I will.”
+
+“Good. Are you okay?” I ask him.
+
+“I was better before that stunt your mom pulled in the woods,” he says, enfolding me in his arms.
+
+“I did tell you,” I remind him.
+
+“I know. It’s just different watching it happen first hand.”
+
+“Yeah.”
+
+### 6 - Chapter Name TBD

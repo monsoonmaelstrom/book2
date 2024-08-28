@@ -694,7 +694,7 @@ Davy and I both sigh loudly, in unison.
 
 “Fine,” he also agrees.
 
-### 4- Unbelievable/Outta Me Onto You/Breakdown ^^2400 words^^
+### 4- Unbelievable/Outta Me, Onto You ^^2400 words^^
 
 We arrive back in Leisch late in the evening, and the house appears dark.
 
@@ -1172,4 +1172,306 @@ I nod. “And Alex?”
 
 “Yeah.”
 
-### 6 - Chapter Name TBD
+### 6 - Rainy Day Women ^^2700 words^^
+
+It’s two days later and we’re all riding to the port to board a ship and spend the next month and a half being bored out of our minds.
+
+At least we’ll be heading back to Branton—where hopefully I’ll be able to get some answers—instead of hanging around that stupid house. And when we get back, Reese’s churro shop is going to be my first stop.
+
+Liam told me a few days ago that he got the key for the flat from Reese. She told him it was his mother's. That may or may not be true, and I intend to find out. Either way, she knows a lot more than the rest of us.
+
+I wonder if she knew who I was the first time Liam brought me in. I don’t think so, but maybe. I bet she knows by now. Peter must’ve told her not long after that night.
+
+If all these people could just mind their own business none of us would be in this mess. It’s not your polity, don’t touch it.
+
+The ship’s cramped enough that everyone but me has to watch their heads. It’s especially bad for the tall ones though. Alex, Liam, Peter, Gavin, and Lisette are about to have a rough time.
+
+When I open the door to our cabin, I’ve never been more glad I don’t need much sleep. We’ll both be lucky to fit in the bed together.
+
+“Well, this is cozy,” I say. “And to be clear, by cozy, I mean claustrophobic.” I throw my pack on the bed and then tell Liam, “I’m going back above deck.”
+
+----
+
+I’ve been leaning over the rail watching the land fade to nothing. All I can see in any direction right now is water.
+
+I turn my back to the rail and watch the crew. They’re busy and it looks more interesting than anything else happening here. I make my way over to the pilot.
+
+“What kind of ship is this?” I ask him.
+
+“A four masted barquentine. Good for dealing with the tricky wind conditions this time of year.”
+
+“How long does it take to learn to sail one of these?”
+
+“If you’re just following someone else’s orders? And doing as your told? Not long. To give the orders? Ages. Why? You fancy a life at sea?”
+
+“Considering it,” I say.
+
+“You know anything about navigation?”
+
+“A bit.”
+
+“Takes more than a bit,” he tells me.
+
+“I’m a quick study,” I respond.
+
+A hand comes down on my shoulder. “Forgive my sister,” Alex says from behind me. “She’s easily bored. Like a small child.”
+
+“Piss off,” I tell Alex. “I’m considering a career change.” Looking back at the pilot I ask, “How much trouble would I be in if I went up into the rigging?”
+
+“A lot,” he answers, and he is not amused by my suggestion.
+
+“Figures,” I say. “Well on the off chance you need someone who isn’t afraid of heights and can climb, I’m available for at least the duration of this trip.”
+
+I let Alex drag me away. “What do you want?” I grumble.
+
+“Nothing. I just wanted to stop you from pissing the crew off on the very first day.”
+
+“Fine. What do you think about Peter?”
+
+“In what context?”
+
+“Think he’s trustworthy?” I haven’t had the chance to talk to Alex much lately.
+
+He shrugs. “Probably.”
+
+“Then why does it feel like he’s waiting for the opportunity to stick a knife in my back?”
+
+Alex shrugs. “Mom plans to continue her training while we’re at sea.”
+
+“Great.”
+
+“She wants us all in the galley in an hour.”
+
+“Super.”
+
+“You should come now though,” he tells me.
+
+“Why?”
+
+“Because if you were smart, you’d spend the next six weeks eating to make up for the fact that you still half starved.”
+
+“Fine. Whatever. Lead on.”
+
+Alex wends his way below deck with me trailing along behind him. When we enter the galley, everyone else is already there. Peter, Gavin, Giorgi and Henry are all playing dice.
+
+“Dice,” I scoff in derision as I walk past.
+
+“What’s wrong with dice?” Henry asks.
+
+“All chance and no skill. It’s boring.”
+
+“Well, I brought cards too,” Gavin says, as he scoops up the dice. “We can play poker later. As I recall, Liam is one up on you.”
+
+I roll my eyes, but say, “Maybe.” It’s not like there’s anything else to do. And this is why I hate ships. Sitting around and eating, and eating and sitting around. The crew won’t even let you climb up into the rigging.
+
+“Strip poker!” Gavin calls out from behind.
+
+“Sounds like a terrible idea,” I say over my shoulder. “Count me in.”
+
+“Me too!” Alex tells him.
+
+Liam is sitting at a table with Davy, Lisette, Amelia, and Amelia’s cousin Michael who I don’t think I’ve said more than ten words to so far.
+
+I sit down next to Liam, who immediately wraps an arm around me. “Strip poker?” he murmurs into my ear.
+
+“Yes. Are you going to play?”
+
+“Maybe. Did you convince anyone to let you up in the rigging,” he asks a bit louder.
+
+“How did you know?” I ask.
+
+Liam laughs. “You said the room was claustrophobic and then practically ran up to the deck. What else would you possibly be doing?”
+
+“I could have just been getting some air,” I say.
+
+“But you weren’t, were you?”
+
+“No. Have you seen how tall the mast is?” I ask wistfully.
+
+“Why would you want to go up there?” Michael asks.
+
+“Why *wouldn’t* you?” I answer. “Imagine being up there in a storm,” I let myself daydream about it for a minute. “It would be glorious.”
+
+Liam sighs.
+
+“Behind you,” Lisette says with a nod.
+
+I turn to find Davy and Alex carrying a cake. Damnit.
+
+(( maybe all of this gets deleted? Do I hate it? I don’t know. Let’s keep going and see where it takes us. But probably delete it ))
+
+I close my eyes and sigh. Birthdays. I hate them. Mostly mine. But apparently this is mine.
+
+“This is what you were planning? When I asked a couple of days ago?”
+
+“Do sound so disappointed, sis,” Alex says. “It’s the first birthday we’ve all been together in *years*!”
+
+“A streak we definitely should have continued,” I tell him. “Thank you for the cake,” I say, trying to be polite.
+
+“It’s cinnamon flavored,” Alex informs me.
+
+He looks so pleased that I say, “Thank you,” again and try to actually mean it. Once he and Davy set the cake down I stand and hug them both.
+
+He bends down and whispers, “Also, I may have drugged mom and locked her in her room. Happy birthday!”
+
+“Seriously?” I ask, completely stunned. “That’s… incredible. Okay. I might not completely hate this birthday.”
+
+“See. Planning.”
+
+I roll my eyes.
+
+(( everybody must get stoned ))
+
+“And we have plenty of party favors.”
+
+“So you’re basically going to force me to celebrate?” I ask.
+
+“Yes,” Davy answers handing me a piece of cake and a shot of vodka. “That’s one. I’m counting.”
+
+“Of?”
+
+“Twenty eight. Obviously.”
+
+“There’s no way,” I tell him.
+
+“Not with an attitude like that,” he comments as he takes a shot. “Two an hour over the next fourteen hours? You’ll manage. Probably.”
+
+“There are worse ways to die,” I say as I down the first shot and take a bite of cake.
+
+It’s sometime after the fourth shot that Gavin convinces me to play dice with them, and I start flagrantly cheating. “All sixes, all the time!” I boast after the third such roll.
+
+“We know you’re cheating,” Peter says.
+
+“Then figure out how to stop me,” I say with a grin.
+
+“Oh, are we playing this game?” Alex asks, suddenly interested.
+
+He typically cares as much about games of chance as I do, which is not at all. If there’s not some amount of skill, some level of *earned* bragging rights involved at the end, count us out. But cheating turns dice from a game of chance into a game of skill. Really, sometimes cheating *does* improve a game.
+
+“You can’t beat me,” I tell him with a grin.
+
+“We’ll see. Limitations?”
+
+“None.”
+
+“You’ll regret that.”
+
+“Will I?” I ask, knowing it’s entirely possible I will.
+
+“One twenty?”
+
+“Sure.”
+
+We’ve got five dice, with a high roll of all sixes having a maximum of thirty points. If you have more than a single one in a role, you score nothing for that roll. If you have more than three ones in a single roll, you lose all the points you’ve accumulated so far. First person to a hundred and twenty points wins. Simple.
+
+I roll first. I can feel Alex trying to flip my dice, but I don’t let him. “Thirty points,” I say smugly.
+
+He scowls at me, and picks up the dice. He cups his hands around them, shakes them, and lets them go. I manage to flip three of them to ones before they hit the table top.
+
+“Oh, look at that. No points. How sad for you,” I snark.
+
+I pick the dice up, and roll again. This time, as I release them, I feel something hit my chair, and it’s tipping backwards. I split my focus in an effort not to have my chair completely tip over, and by the time my dice hit the table, three of them are ones.
+
+“Oh, look at that. No points. How sad for you,” Alex says, mocking me.
+
+“Playing dirty. I approve.”
+
+By now, the others have all gathered around, hoping for blood, no doubt.
+
+Alex rolls again, and this time I make sure four of his dice show one. Because I can.
+
+I rest my hands on my chin and smile as glares at me in frustration. Then I scoop the dice up. I don’t expect Alex to try the same thing twice in a row, but for good measure, I throw a shield up around myself before I roll. I feel magic batting at the shield, but nothing gets through. It’s five sixes again.
+
+“Sixty-zero in my favor,” I tell him. “Your turn.”
+
+“Davy, we need more shots,” Alex says, biding his time. When Davy appears, Alex grabs his arm, pulls him down and whispers something in his ear.
+
+Davy nods and hands us both a glass which we immediately down. “Still waiting, Alex.”
+
+He nods and shakes the dice in his hand before throwing them. I go to flip them, but there’s a shield around Alex, which I take and another around the dice, which I also dismantle, but a second too slow.
+
+Alex smiles broadly. “Thirty-sixty, sis.”
+
+“We’ll see,” I say as I pick up the dice and roll again. Another thirty points. “You’re going to have to do better than that.”
+
+“So it would seem. A moment, if you will,” he tells me. He turns and whispers something to Davy, then to Giorgi, then to Peter.
+
+“Got all your ducks in a row?” I ask.
+
+“Let’s find out,” he says picking up the dice.
+
+His strategy is the same as last time, and I’m faster, but so is he. He adds just a little bit of magic to slam the dice down to the table faster than they would fall on their own, and ends up with another five sixes. Damn.
+
+“That’s what sixty-ninety?”
+
+“Not bad,” I comment, sweeping the dice into my hand. With all that whispering, I know he has something planned, I just don’t know what. I roll, and as I do, the ship surges, sending my dice flying off the table and onto the floor. By the time we find them all and check their faces, there are three ones.
+
+“Very nice,” I say, but I’m annoyed. It *was* nice. I should’ve thought of it.
+
+“Um, let’s not break the ship,” Henry comments, looking between me and Alex.
+
+“Fine, I promise not to cause a shipwreck if Alex does the same,” I tell him.
+
+Alex nods in agreement. “No shipwrecks,” he says scooping up the dice and rolling.
+
+He layers on a bit more, so now, in addition to everything that came before, I feel Peter, Giorgi, and Davy all working to influence the Dice in Alex’s favor, and I run out of time. Again. Damn!
+
+“Ninety-ninety, sis,” Alex says smirking.
+
+I scoop up the dice and release them in a single move. I don’t bother with any kind of shield. I just throw all of my effort into making sure every dice has a six face up, no matter where it lands. I put enough power into it that it doesn’t matter what Alex or anyone else in the room does. Enough that it definitely feels a bit chilly in the galley now.
+
+“One twenty-ninety. Last roll.” I have no intention of letting him win. All I need is one die. No limitations. I grin. I got this.
+
+He scoops up the dice, cups them in his hand and gives them a quick shake before releasing them. I see the emotions flicker across his face. He thinks the game has ended in a tie as the dice hit the table. Then it’s replaced by bewilderment as he only counts four sixes. Only four dice. Then it’s incredulity, as he looks from the table to me, and I hold up four fingers.
+
+“You… vaporized one of the dice?” he asks.
+
+“No limitations,” I tell him grinning like the cat that ate the canary.
+
+“Nice,” he tells me appreciatively. “Very nice.”
+
+“Thank you.”
+
+----
+
+It’s many shots later when Davy pops up and asks, “Are you drunk enough yet?”
+
+“Drunk enough for… ?” I ask curiously.
+
+“Dimmi.”
+
+“Where the hell did you get dimmi? But also yes. Definitely.”
+
+“I used to grow it when we all were living together in Leisch. Turns out some of it’s still there.”
+
+“You were growing it and you never told me?” I ask, mildly outraged.
+
+“Of course I didn’t tell you. You would have smoked it faster than I could grow it,” he tells me, which fair.
+
+“Dimmi? You guys are going to smoke dimmi?” Michael asks, with what sounds like a hint of reproach in his voice.
+
+“Have you ever tasted colors Michael?” I ask. If you smoke dimmi while sober, it just burns like acid in your lungs. But if you’re drunk enough, dimmi creates a high complete with synesthesia. It’s really the best drug there is. Hard to find though.
+
+He shakes his head.
+
+“You should try it before you knock it,” I tell him.
+
+“But it’s dimmi!”
+
+“And? Davy spends most of his time hanging out with degenerates in dives,” I say.
+
+Gavin waves at Michael, and says, “She’s talking about us, in case that wasn’t clear.”
+
+“Alex has functionally no morals whatsoever, and I’ve never encountered a rule I’m not just willing, but eager, to break. You saw Liam hold a knife to my mother’s throat a few days ago. Henry and Lisette decided it sounded like more fun to risk their lives hanging out with us than whatever it is they’d be doing otherwise. We’re basically the people your parents warned you about growing up,” I say with a shrug. “And interestingly, your parents somehow still thought you should come with us.”
+
+I take a long inhale from the pipe Davy passes me before handing it off to Alex. Who takes a drag before passing it off to Liam, who—to my surprise, despite my words—does the same before passing it on.
+
+Maybe we’re all feeling the impending doom. I know certainly I’ve decided that hedonism seems like the best course of action.
+
+By the time it makes its way to Amelia, everyone else has decided they’re game. “Live a little, Michael,” she tells him, taking a hit and handing it to him.
+
+I’m curious to see if he’ll bow to the peer pressure. I see him waver momentarily before he finally says, “Fine.”
+
+Gavin cheers, and soon everyone else is joining him.
+
+“Let’s go topside and taste some colors!” I tell everyone.

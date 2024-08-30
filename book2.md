@@ -702,7 +702,7 @@ Davy and I both sigh loudly, in unison.
 
 “Fine,” he also agrees.
 
-### 4- Unbelievable/Outta Me, Onto You ^^2400 words^^
+### 4- Outta Me, Onto You ^^2400 words^^
 
 We arrive back in Leisch late in the evening, and the house appears dark.
 
@@ -956,7 +956,7 @@ Damn. It *is* a better solution. I finally relent and wrap my arms around him to
 
 “Fine,” he murmurs.
 
-### 5 - Nose Bleed ^^2100 words^^
+### 5 - D’You Know What I Mean? ^^2100 words^^
 
 A couple of hours later, we arrive back at the house. Liam sees Gavin and asks, “Do you know where Peter is?”
 
@@ -1180,7 +1180,7 @@ I nod. “And Alex?”
 
 “Yeah.”
 
-### 6 - Rainy Day Women ^^2700 words^^
+### 6 - You Don’t Know How It Feels ^^3200 words^^
 
 It’s two days later and we’re all riding to the port to board a ship and spend the next month and a half being bored out of our minds.
 
@@ -1482,4 +1482,204 @@ Gavin cheers, and soon everyone else is joining him.
 
 “Let’s go topside and taste some colors!” I tell everyone.
 
-### 7 - Chapter Name TBD
+----
+
+It’s bright the next morning. So damn bright. It’s the brightness that wakes me up stabbing into my eyes even though they’re still closed. I have no idea what time it is, but based on the way I feel, I’m pretty sure it’s too early. I move to block the sun from my eyes and realize that wherever I am, it’s definitely not a bed, or our cabin. I try to decide if I care, and if wasn’t for the sun stabbing into my eyes like tiny, little ice picks, I’d just go back to sleep. Even still, I think I might try, until I feel the pillow beneath my head shifting. *No, not a pillow,* I groggily realize. *A person.*
+
+I guess I’d better open my eyes.
+
+When I do, I see that Liam’s lower back is currently serving as my pillow. He’s lying face down on the deck of the ship. Naked. And the view in the morning sunlight is not bad. I’m distracted enough that it takes a few minutes before I realize that, except for the sailcloth someone has draped over me, I’m in the same state. I grin.
+
+It was apparently a very good night.
+
+My last memory is of a strip poker game, that I evidently lost, and then proclaiming that I was going to go climb the foremast.
+
+“Ah, so you’re awake, are you?” someone asks.
+
+“No, definitely not,” I answer the mystery voice.
+
+“Well, do you think you could be not awake somewhere off my deck then?”
+
+I look around trying to find the voice, and finally locate the pilot I was speaking to yesterday.
+
+“Mmm. What happened?”
+
+“You and came up here at dawn, on a tear. Saying you were going to climb up into the rigging. No one was willing to grab you to stop you on account of, well,” he says waving at me. “You weren’t lying when you said you could climb. You were onto the main yard quick as could be, not listening to anyone telling you to get your ass back onto the deck until yon man showed up,” he nods toward Liam.
+
+“Him you listened to. Then you came back down and refused to go to your cabin. By that point we were just glad to have you out of our rigging,” he says with a shrug as if that explains everything. “Amazed you didn’t dash your brains all over my deck,” he mutters.
+
+“Please. I could climb that mast while drunk, blindfolded, and stoned in the middle of a gale,” I scoff.
+
+“Aye. You just might be able to at that,” he admits. “Anyway. Whenever you want to get off my deck.”
+
+“Fine, fine,” I grumble to the pilot. “Liam. Hey, Liam.”
+
+“What?” he croaks.
+
+“Ship’s pilot says we’ve overstayed our welcome.”
+
+“Where are we?”
+
+“On the deck. Naked.”
+
+“What happened?”
+
+“We had a *very* good night,” I answer.
+
+### 7 - Heat Waves (( mb Manic Depression ??? )) ^^1200 words^^
+
+A couple of days later, I’m staring over the shoulder of the ship’s pilot, who I’ve since learned is called Lewis—I think it’s a surname, but he didn’t specify and I didn’t ask. I’m peering at his charts and our heading, and it doesn’t look right.
+
+“Where are we sailing?” I ask him.
+
+“Yonder,” he tells me, gesturing vaguely in front of us.
+
+“Yonder, where? This isn’t the right heading to take us to Branton.”
+
+His brow furrows as he casts a glance back my way. “I thought you only knew ‘a bit’ about navigation.”
+
+“I know enough to know this heading isn’t right.” I’m certain of it. “So. Yonder, where?”
+
+“Ask the ice queen.”
+
+“The ice queen? My mother?”
+
+“Aye.”
+
+I close my eyes and take a breath.
+
+“Yonder where, Lewis? I know you know.”
+
+“All I know,” he says, “is that we’re picking up a passenger in (( ??? )) before sailing to Branton.”
+
+“Do you know the passenger’s name?”
+
+“No.”
+
+“How long until we make port in (( ??? ))?”
+
+“Two days.”
+
+I nod, and walk away to find Davy. A few minutes later, I find him playing cards with Gavin, Peter, and Giorgi.
+
+“Familiar scene,” I say by way of greeting.
+
+“Hey, Hazel,” Gavin responds.
+
+“Hey, Gavin. You guys mind if I steal Davy for a minute?”
+
+Davy narrows his eyes, but stands to walk with me.
+
+I walk towards the stern, and lean on the railing once I find a spot with no one nearby. Davy joins me.
+
+“Well?” he asks.
+
+“I was hanging out with Lewis, the pilot,” I begin. “Looking at his charts and such, and I noticed our heading isn’t quite right.”
+
+“Not quite right in what sense?”
+
+“Well, we’re not exactly headed toward Branton. According to Lewis, we’re stopping to pick up a passenger first, then heading to Branton.”
+
+“A passenger?”
+
+“Yeah. He didn’t know who. Just where.”
+
+“Okay, where?” Davy says, asking the obvious question.
+
+“(( ??? )),” I answer.
+
+“Fuck,” Davy sighs, dropping his head to rest on his hands on top of the railing. “How long?”
+
+“Two days.”
+
+“Okay.”
+
+“Sorry.”
+
+----
+
+It’s just after noon, almost exactly forty-eight hours later that we anchor in a protected cove, and a dinghy begins rowing to shore. Lewis knows what he’s about. I’ll give him that.
+
+I wait, staring over the port railing, waiting for chaos incarnate to appear. Alex and Liam stand next to me, and the look Alex wears is as grim as my own. Liam has no idea what’s coming.
+
+Davy isn’t on the deck. He started drinking at breakfast and hasn’t stopped since. Last I checked, Gavin and Henry were keeping him company. Probably still are.
+
+I sigh. At least with my mother, you know what you’re in for. It’s all bad, but you know that, and you’re prepared for it. Christine Iverson is an entirely different kind of nightmare. She can be great. She can make you think you’re the most important person in the world—that the sun rises and sets with you. And then she can be terrible. Maybe she’ll just seem to forget you exist at all. Or maybe she’ll actively work to undermine you. Or maybe she’ll abandon you entirely, and leave you at the mercy of someone who would just as soon kill you as feed you. And maybe she’ll show back up in a month, or a year, or a decade. Or maybe not. If she does, maybe you’ll be the most interesting thing in the world to her again for a few days. Or maybe it’ll be like you’ve never met before.
+
+It’s almost worse, because when things are good, you can almost love her. At least until you learn better. And how long does it take to learn better? I think Davy’s still trying to figure that out.
+
+It’s been fifteen years since he last saw her. The last time she dumped him with us and disappeared, he was seventeen and she never came back. As far as I know, he hasn’t heard a word from her since.
+
+“She’s going to try to sleep with Liam,” Alex says out of nowhere.
+
+“You think?” I ask as Liam snorts in either disbelief or amusement. Maybe both.
+
+“Yeah,” he tells me. “She’s propositioned me before, so…”
+
+“Wow. I suppose I shouldn’t be surprised. And yet.”
+
+“Yeah. I should probably warn the others too,” Alex says with a sigh.
+
+We fall back into silence as the dinghy begins rowing back toward the ship. Another ten minutes and it’s coming alongside the ship and she’s climbing aboard.
+
+She looks older than the last time I saw her, with silver starting to thread through the same dark curls Davy has, but still drop dead gorgeous. When she finally makes it to the deck I notice that we are now matched in height. She’ll be the only other person this ship not having to watch her head as she moves about. Shame.
+
+“Hazel! My darling!” Christine says as she wraps her arms around me. I don’t return her embrace.
+
+She releases me and flings her arms around Alex next. When she releases him she turns an appraising gaze to Liam and asks, “Who is this handsome gentleman?”
+
+“Liam,” he says, introducing himself, “Hazel’s boyfriend.”
+
+“Hmm,” Christine murmurs before casting a speculative glance at me.
+
+One of the ship’s crew comes along to take her to her room, and she leaves without inquiring about Davy at all.
+
+“Well, shall we go warn Davy she’s here?”
+
+Alex nods and we go below deck. We find a very drunk Davy in the galley with Gavin. And at some point between when I saw him earlier this morning and now, he’s cut off all his hair. What was three or four inches of curls is now no longer than the width of a finger. It actually looks better than I would have expected.
+
+“Nice hair. I like it,” I tell him.
+
+“Thanks,” he says with a nod that would probably have him falling over if Gavin wasn’t propping him up.
+
+“She’s here,” I warn him.
+
+“I don’t care!” he tells us all loudly.
+
+“Yes, we got that from the hair,” Alex remarks with a hint of amusement.
+
+“I don’t!” Davy says again, a bit louder and more emphatic, like that will make it truer.
+
+“We know. Want us to kill her for you?” I ask. I’m only halfway joking.
+
+“Would you?” he asks me.
+
+“Probably,” I tell him.
+
+“Let me think about it.”
+
+“You do that.”
+
+“I’m going to go warn the others,” Alex says to me and Liam. Then looking at Gavin, he says, “Don’t sleep with Davy’s mom.”
+
+“Got it,” Gavin tells him.
+
+“Ugh. I think I might be sick.”
+
+I grab an empty pot and shove it at him. “Let’s go get some air,” I say, sliding under his shoulder and relieving Gavin. Slowly we make our way topside. I lead us toward the fourth mast and sit near it, since I don’t want Davy anywhere near the railings.
+
+“Did she ask about me?” he asks quietly, with his head between his knees.
+
+“No.”
+
+Somehow, he manages to slump a little bit more.
+
+“I shouldn’t care,” he says. “But I do.”
+
+“I know. I really do like the hair though. It suits you.” We sit in silence for a while before I ask, “Are you going to be okay?”
+
+“I’ll be fine,” he tells me. “We’re always fine, right?”
+
+“Right.”
+
+### 8 - Chapter Name TBD

@@ -1684,7 +1684,7 @@ I don’t need to tell him that his mother is a terrible person. He already know
 
 “Right.”
 
-### 8 - Chapter Name TBD ^^2000 words^^
+### 8 - Reasons I Drink ^^2000 words^^
 
 The days on ship go by in a monotonous succession, where one day is much the same as the next. My mother insists that everyone get together every day, typically in the galley, away from the crew, so she can teach them. It’s more nonsense with the energy meridians, except I think it’s percolating into my subconscious and it’s starting to make a terrifying kind of sense. I can feel my own energy meridians, and I think I can feel how they could be manipulated, and it’s like this whole realm of untapped magical potential and it’s making me nervous. Like I need even more power. I want to tell her to stop before some invisible line is crossed, but I can’t. So instead, I sit there every day listening, and my anxiety swells.
 
@@ -2034,7 +2034,7 @@ I shrug. “They’ll manage.”
 
 “Aye. I expect so.”
 
-### 9 - We’re Going Home
+### 9 - We’re Going Home ^^1300 words^^
 
 Five nights later, Liam and I stand on the deck with Davy, Alex, Peter. Gavin and Giorgi have gone to get Henry and Lisette. Davy was right in saying that we should bring Lisette, and if we’re bringing her, then Henry is an obvious choice as well. We didn’t tell either of them beforehand though, which is why Gavin and Giorgi are fetching them now.
 
@@ -2060,7 +2060,7 @@ We’re lucky the coast here isn’t sheer cliffs or thickly wooded, but waist h
 
 “How long is it going to take us to make it Branton,” Henry asks.
 
-“Probably a couple of weeks,” Alex answers.
+“Probably a few of weeks,” Alex answers.
 
 “So they’ll make it back before we do,” Henry says with a nod.
 
@@ -2090,4 +2090,64 @@ I only nod, because I’m not sure I can speak without my voice shaking and givi
 
 I just nod, and curl up next to Liam, hating that I’m the sort of person who’s willing to gamble with his life.
 
-“
+“You did the right thing, Hazel.”
+
+“I wasn’t sure,” I admit softly.
+
+“But you were right.”
+
+----
+
+At some point I must have fallen asleep because daylight has replaced the slow creep to dawn and I hear birdsong in the distance. I see Liam and Peter several feet away talking quietly. Peter notices I’m awake first and says something to Liam that has him quickly looking in my direction. Liam nods and claps Peter on the shoulder, then heads back to me.
+
+“Are you okay?” I ask as he reaches me.
+
+“I’m fine. Are you?”
+
+“Can we talk about it later?” I really don’t feel like answering that question with a single modicum of honesty in the middle of a group of people.
+
+“As long as you’ll actually talk to me about it later.”
+
+I nod and reach for my pack. Now that it’s daylight, I want to see what the paper Lewis handed me has on it. Unrolling it, I see it’s a chart of the land where we are, and he marked out a route back to Branton that looks like it will be faster than what I likely would have picked with no reference material to go off of.
+
+“Anyone have a compass?” I ask. I could probably wing it well enough without one, but having one would definitely be better.
+
+“Yes,” Peter begins digging around his pack. “Here,” he says, tossing me a compass.
+
+“Excellent. Where are Gavin, Giorgi, and Henry?” I ask, ready to get moving.
+
+“Checking the snares,” Peter tells me.
+
+“Snares?”
+
+“We’ll need food. Giorgi and Gavin set snares after we stopped.”
+
+“Ah. Good idea.” I don’t bother mentioning that I could simply lure some animals to their deaths, because it *was* a good idea, and I don’t know how long it would have taken for me to get hungry enough to bother. Certainly well after everyone else.
+
+I should have them show me next time we stop. Could be useful.
+
+Ten or fifteen minutes later, the three of them are filtering back in, carrying five rabbits. Definitely useful. They skin and butcher the rabbits quickly, and within the hour we’re all eating. I’m studying the chart Lewis left me, and even on the shortened route he mapped out, that still leaves us about four hundred miles back to Branton. If we manage twenty miles a day it’ll take us twenty days to get back. That’s too long. At twenty file miles a day, we’ll make it back in sixteen, which is better but still longer than I would like. Ideally, we would be back now.
+
+“We need to cover at least twenty file miles a day,” I tell the others. I’m annoyed that actual teleportation is beyond the bounds of what magic is capable of. Sure, I could approximate something that looked like it over a very short distance, but the energy requirements over any sizable distance for a group of people would be astronomical. I’d die before I could manage it, and so would everyone and everything around me.
+
+Oh well. It was still the least bad choice.
+
+“Lisette,” I say, and wait for her attention to shift to me. “Tonight?” I’d just as soon get this over with.
+
+“Okay,” she nods.
+
+I sigh internally. I think I was hoping she’d say no, and back out. But I don’t think she will. Great.
+
+“Let’s go,” I say as soon as everyone is done eating.
+
+----
+
+The terrain is rough. We’re not quite bushwhacking, but we’re not far off from it either. We’re probably covering about two and half miles an hour, so we’ll be hiking into the dark, which means we’ll be moving even slower. All in all, it’ll probably take us fourteen hours to cover the twenty-five miles, and that’s if we don’t stop for breaks. I try to increase the pace, but in less than an hour, the others are telling me to slow down.
+
+(( blah blah blah ))
+
+### 10 - Chapter Name TBD
+
+Everyone is tired by the time we stop for the night. I can see the strain in their faces, and I know at least a few of them probably have some blisters that need tending. I leave that for Alex to deal with. He’s not exactly *better* at it than I am insofar as the end result will be the same. But it will hurt less if Alex does it. I’ve never been able to completely stop an injury from hurting while I heal it. Probably because I don’t care. If it hurts, it hurts. Eventually it will stop.
+
+Gavin, Giorgi, and Henry are going off to set some snares. I want to go with them. Instead, I sit down and wait for Lisette.

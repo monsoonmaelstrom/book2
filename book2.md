@@ -1180,7 +1180,7 @@ I nod. “And Alex?”
 
 “Yeah.”
 
-### 6 - I Want to be Sedated (( come together??? I feel free??? )) ^^3200 words^^
+### 6 - I Want to be Sedated (( I feel free??? )) ^^3200 words^^
 
 It’s two days later and we’re all riding to the port to board a ship and spend the next month and a half being bored out of our minds.
 
@@ -1484,11 +1484,11 @@ Gavin cheers, and soon everyone else is joining him.
 
 ----
 
-It’s bright the next morning. So damn bright. It’s the brightness that wakes me up stabbing into my eyes even though they’re still closed. I have no idea what time it is, but based on the way I feel, I’m pretty sure it’s too early. I move to block the sun from my eyes and realize that wherever I am, it’s definitely not a bed, or our cabin. I try to decide if I care, and if wasn’t for the sun stabbing into my eyes like tiny, little ice picks, I’d just go back to sleep. Even still, I think I might try, until I feel the pillow beneath my head shifting. *No, not a pillow,* I groggily realize. *A person.*
+It’s bright the next morning. So damn bright. It’s the brightness that wakes me up stabbing into my eyes even though they’re still closed. I have no idea what time it is, but based on the way I feel, I’m pretty sure it’s too early. I move to block the sun from my eyes and realize that wherever I am, it’s definitely not a bed, or our cabin. I try to decide if I care, and if it wasn’t for the sun stabbing into my eyes like tiny, little ice picks, I’d just go back to sleep. Even still, I think I might try, until I feel the pillow beneath my head shifting. *No, not a pillow,* I groggily realize. *A person.*
 
 I guess I’d better open my eyes.
 
-When I do, I see that Liam’s lower back is currently serving as my pillow. He’s lying face down on the deck of the ship. Naked. And the view in the morning sunlight is not bad. I’m distracted enough that it takes a few minutes before I realize that, except for the sailcloth someone has draped over me, I’m in the same state. I grin.
+When I do, I see that Liam’s lower back is currently serving as my pillow. He’s lying face down on the deck of the ship. Naked. And the view in the morning sunlight is not bad. It’s actually pretty damn good. I’m distracted enough that it takes a few minutes before I realize that, except for the sailcloth someone has draped over me, I’m in the same state. I grin.
 
 It was apparently a very good night.
 
@@ -1504,7 +1504,7 @@ I look around trying to find the voice, and finally locate the pilot I was speak
 
 “Mmm. What happened?”
 
-“You and came up here at dawn, on a tear. Saying you were going to climb up into the rigging. No one was willing to grab you to stop you on account of, well,” he says waving at me. “You weren’t lying when you said you could climb. You were onto the main yard quick as could be, not listening to anyone telling you to get your ass back onto the deck until yon man showed up,” he nods toward Liam.
+“You came up here at dawn, on a tear. Saying you were going to climb up into the rigging. No one was willing to grab you to stop you on account of, well,” he says waving at me. “You weren’t lying when you said you could climb. You were onto the main yard quick as could be, not listening to anyone telling you to get your ass back onto the deck until yon man showed up,” he nods toward Liam.
 
 “Him you listened to. Then you came back down and refused to go to your cabin. By that point we were just glad to have you out of our rigging,” he says with a shrug as if that explains everything. “Amazed you didn’t dash your brains all over my deck,” he mutters.
 
@@ -1526,7 +1526,7 @@ I look around trying to find the voice, and finally locate the pilot I was speak
 
 “We had a *very* good night,” I answer.
 
-### 7 - How Soon Is Now? (( mb Manic Depression ??? )) ^^1200 words^^
+### 7 - How Soon Is Now? ^^1300 words^^
 
 A couple of days later, I’m staring over the shoulder of the ship’s pilot, who I’ve since learned is called Lewis—I think it’s a surname, but he didn’t specify and I didn’t ask. I’m peering at his charts and our heading, and it doesn’t look right.
 
@@ -1550,13 +1550,13 @@ I close my eyes and take a breath.
 
 “Yonder where, Lewis? I know you know.”
 
-“All I know,” he says, “is that we’re picking up a passenger in (( ??? )) before sailing to Branton.”
+“All I know,” he says, “is that we’re picking up a passenger in Montebal before sailing to Branton.”
 
 “Do you know the passenger’s name?”
 
 “No.”
 
-“How soon until we make port in (( ??? ))?”
+“How soon until we make port in Montebal?”
 
 “Two days.”
 
@@ -1576,7 +1576,7 @@ I walk towards the stern, and lean on the railing once I find a spot with no one
 
 “I was hanging out with Lewis, the pilot,” I begin. “Looking at his charts and such, and I noticed our heading isn’t quite right.”
 
-“Not quite right in what sense?”
+“Not ‘quite right’ in what sense?”
 
 “Well, we’re not exactly headed toward Branton. According to Lewis, we’re stopping to pick up a passenger first, then heading to Branton.”
 
@@ -1586,7 +1586,7 @@ I walk towards the stern, and lean on the railing once I find a spot with no one
 
 “Okay, where?” Davy says, asking the obvious question.
 
-“(( ??? )),” I answer.
+“Montebal,” I answer flatly.
 
 “Fuck,” Davy sighs, dropping his head to rest on his hands on top of the railing. “How soon?”
 
@@ -1598,15 +1598,15 @@ I walk towards the stern, and lean on the railing once I find a spot with no one
 
 ----
 
-It’s just after noon, almost exactly forty-eight hours later that we anchor in a protected cove, and a dinghy begins rowing to shore. Lewis knows what he’s about. I’ll give him that.
+It’s just after noon, almost exactly forty-eight hours later, that we anchor in a protected cove, and a dinghy begins rowing to shore. Lewis knows what he’s about. I’ll give him that.
 
-I wait, staring over the port railing, waiting for chaos incarnate to appear. Alex and Liam stand next to me, and the look Alex wears is as grim as my own. Liam has no idea what’s coming.
+I wait, staring over the port railing, waiting for chaos incarnate to appear. Alex and Liam stand next to me, and the look Alex wears is as grim as my own. Liam has no idea what’s coming. (( chaos incarnate. Mb change??? ))
 
 Davy isn’t on the deck. He started drinking at breakfast and hasn’t stopped since. Last I checked, Gavin and Henry were keeping him company. Probably still are.
 
-I sigh. At least with my mother, you know what you’re in for. It’s all bad, but you know that, and you’re prepared for it. Christine Iverson is an entirely different kind of nightmare. She can be great. She can make you think you’re the most important person in the world—that the sun rises and sets with you. And then she can be terrible. Maybe she’ll just seem to forget you exist at all. Or maybe she’ll actively work to undermine you. Or maybe she’ll abandon you entirely, and leave you at the mercy of someone who would just as soon kill you as feed you. And maybe she’ll show back up in a month, or a year, or a decade. Or maybe not. If she does, maybe you’ll be the most interesting thing in the world to her again for a few days. Or maybe it’ll be like you’ve never met before.
+I sigh. At least with my mother, you know what you’re in for. It’s all bad, but you know that, and you’re prepared for it. Christine Iverson is an entirely different kind of nightmare. She can be great. She can make you think you’re the most important person in the world—that the sun rises and sets with you. And then she can be terrible. Maybe she’ll just seem to forget you exist at all. Or maybe she’ll actively work to undermine you or cut you down. Or maybe she’ll abandon you entirely, and leave you at the mercy of someone who would just as soon kill you as feed you. And maybe she’ll show back up in a month, or a year, or a decade. Or maybe not. If she does reappear, maybe you’ll be the most interesting thing in the world to her again for a few days. Or maybe it’ll be like you’ve never met before.
 
-It’s almost worse, because when things are good, you can almost love her. At least until you learn better. And how long does it take to learn better? I think Davy’s still trying to figure that out.
+It’s almost worse, because when things are good, you can almost love her. At least until you learn better. And I think Davy’s still trying to figure out exactly how long it takes to learn better.
 
 It’s been fifteen years since he last saw her. The last time she dumped him with us and disappeared, he was seventeen and she never came back. As far as I know, he hasn’t heard a word from her since.
 
@@ -1622,7 +1622,7 @@ It’s been fifteen years since he last saw her. The last time she dumped him wi
 
 We fall back into silence as the dinghy begins rowing back toward the ship. Another ten minutes and it’s coming alongside the ship and she’s climbing aboard.
 
-She looks older than the last time I saw her, with silver starting to thread through the same dark curls Davy has, but still drop dead gorgeous. When she finally makes it to the deck I notice that we are now matched in height. She’ll be the only other person this ship not having to watch her head as she moves about. Shame.
+She looks older than the last time I saw her, with silver starting to thread through the same dark curls Davy has. She’s still drop dead gorgeous though. When she finally makes it to the deck, I notice that we’re now matched in height. She’ll be the only other person on this ship not having to watch her head as she moves about. Shame.
 
 “Hazel! My darling!” Christine says as she wraps her arms around me. I don’t return her embrace.
 
@@ -1640,13 +1640,13 @@ Alex nods and we go below deck. We find a very drunk Davy in the galley with Gav
 
 “Nice hair. I like it,” I tell him.
 
-“Thanks,” he says with a nod that would probably have him falling over if Gavin wasn’t propping him up.
+“Thanks,” he responds with a nod that would probably have him falling over if Gavin wasn’t propping him up.
 
 “She’s here,” I warn him.
 
 “I don’t care!” he tells us all loudly.
 
-“Yes, we got that from the hair,” Alex remarks with a hint of amusement.
+“Yes, we got that from the hair,” Alex remarks drily, with a hint of amusement.
 
 “I don’t!” Davy says again, a bit louder and more emphatic, like that will make it truer.
 
@@ -1654,7 +1654,7 @@ Alex nods and we go below deck. We find a very drunk Davy in the galley with Gav
 
 “Would you?” he asks me.
 
-“Probably,” I tell him.
+“Probably,” I answer with a shrug.
 
 “Let me think about it.”
 
@@ -1662,11 +1662,11 @@ Alex nods and we go below deck. We find a very drunk Davy in the galley with Gav
 
 “I’m going to go warn the others,” Alex says to me and Liam. Then looking at Gavin, he says, “Don’t sleep with Davy’s mom.”
 
-“Got it,” Gavin tells him.
+“Got it,” Gavin tells Alex.
 
-“Ugh. I think I might be sick.”
+“Ugh. I think I might be sick,” Davy mumbles.
 
-I grab an empty pot and shove it at him. “Let’s go get some air,” I say, sliding under his shoulder and relieving Gavin. Slowly we make our way topside. I lead us toward the fourth mast and sit near it, since I don’t want Davy anywhere near the railings.
+I grab an empty pot and shove it at him. “Let’s go get some air,” I say, sliding under his shoulder and relieving Gavin. Slowly we make our way topside. I lead us toward the fourth mast and sit next to it, since I don’t want Davy anywhere near the railings.
 
 “Did she ask about me?” he asks quietly, with his head between his knees.
 
@@ -1676,9 +1676,9 @@ Somehow, he manages to slump a little bit more.
 
 “I shouldn’t care,” he says. “But I do.”
 
-I don’t need to tell him that his mother is a terrible person. He already knows. It doesn’t matter though.
+“I know,” I say softly. I don’t need to tell him that his mother is a terrible person. He already knows. It doesn’t matter though.
 
-“I know. I really do like the hair though. It suits you.” We sit in silence for a while before I ask, “Are you going to be okay?”
+“I really do like the hair though. It suits you.” We sit in silence for a while before I ask, “Are you going to be okay?”
 
 “I’ll be fine,” he tells me. “We’re always fine, right?”
 
@@ -1686,21 +1686,23 @@ I don’t need to tell him that his mother is a terrible person. He already know
 
 ### 8 - Reasons I Drink ^^2000 words^^
 
-The days on ship go by in a monotonous succession, where one day is much the same as the next. My mother insists that everyone get together every day, typically in the galley, away from the crew, so she can teach them. It’s more nonsense with the energy meridians, except I think it’s percolating into my subconscious and it’s starting to make a terrifying kind of sense. I can feel my own energy meridians, and I think I can feel how they could be manipulated, and it’s like this whole realm of untapped magical potential and it’s making me nervous. Like I need even more power. I want to tell her to stop before some invisible line is crossed, but I can’t. So instead, I sit there every day listening, and my anxiety swells.
+The days on ship go by in a monotonous succession, where one day is much the same as the next. My mother insists that everyone gets together every day, typically in the galley, away from the crew, so she can teach them. Or us? Or me? I’m not even sure who the target of these lessons is, at this point. It’s more nonsense with the energy meridians, except I think it’s percolating into my subconscious and it’s starting to make a terrifying kind of sense. I can feel my own energy meridians, and I think I can feel how they could be manipulated, and it’s like this whole realm of untapped magical potential. It’s making me nervous. Like I need even more power. I want to tell her to stop before some invisible line is crossed. I want to scream it at her until she shuts up, but I can’t. So instead, I sit there every day listening, and my anxiety swells.
 
-I’m sure Liam has noticed, but I don’t think I can explain this growing dread. He and Alex have been talking about it. About me. And about Davy. Davy’s been withdrawn since his mother appeared, and we’ve spent more than our fair share of nights atop the main yard, sitting in together silence. Sometimes drinking. Sometimes not. Lewis has given up and told the rest of the crew to leave us be.
+I’m sure Liam has noticed, but I don’t think I can explain this growing dread—the unease that has me steps away from a panic attack every second I’m awake. He and Alex have been talking about it. About me. And about Davy. Davy’s been withdrawn since his mother appeared, and we’ve spent more than our fair share of nights atop the main yard, sitting in together silence. Usually drinking. Sometimes not. Lewis has given up and told the rest of the crew to leave us be. I think he’s decided it’s the safest course of action for all parties. He’s not wrong.
 
-I know Liam and Alex both want us to talk. But neither Davy nor I want to. Or are ready to. We’re all a little frustrated with each other, and the close quarters aren’t helping. I think everyone else is experiencing their own mixture of boredom and frustration too. Frustration with my mother’s classes. Frustration with each other. Boredom due to the sameness of every day. And we still have at least another two weeks. We all need some space to think and a little room to breathe.
+I know Liam and Alex both want us to talk. But neither Davy nor I want to. Or are ready to. Or able to.
+
+We’re all a little frustrated with each other, and the close quarters aren’t helping. I think everyone else is experiencing their own mixture of boredom and frustration too. Frustration with my mother’s classes. Frustration with each other. Boredom due to the sameness of every day. We still have at least another two weeks. We all need some space to think and a little room to breathe. And with the exception of the time Davy and I are spending sitting in the rigging, we’re not getting it.
 
 ----
 
-It’s probably around two or three in the morning when I finally climb down, leaving Davy to stare at the stars alone. Lewis is still at the helm. I think the man sleeps even less than I do. It’s actually kind of impressive.
+It’s probably around three in the morning when I finally climb down, leaving Davy to stare at the stars alone. Lewis is still at the helm. I think the man sleeps even less than I do. It’s actually kind of impressive.
 
 “Good night, Lewis,” I say as I pass him.
 
 He nods in response.
 
-I quietly enter the cabin Liam and I are sharing, shutting the door softly behind me so I don’t wake him. I strip off my clothes and lie down in the dark. But evidently he’s not asleep or I woke him when I came in, despite trying to be quiet. Either way, he pulls me closer to him when I lie down.
+I quietly enter the cabin Liam and I are sharing, shutting the door softly behind me so I don’t wake him. I strip off my clothes and lie down in the dark. But evidently he’s not asleep, or maybe I woke him when I came in, despite trying to be quiet. Either way, he pulls me closer to him when I lie down.
 
 “You’re awake?” I whisper.
 
@@ -1708,7 +1710,7 @@ I quietly enter the cabin Liam and I are sharing, shutting the door softly behin
 
 “Sorry, I would have come sooner if I’d known.”
 
-“It’s okay.”
+“It’s okay,” he says murmurs softly into my hair.
 
 “Why can’t you sleep?” I ask him.
 
@@ -1716,13 +1718,13 @@ I quietly enter the cabin Liam and I are sharing, shutting the door softly behin
 
 “Yeah, me too. But not worried, so much as filled with dread,” I admit, as I turn to face him.
 
-“Is that what’s going on with you?” he asks, as he pushes my hair back from where it’s fallen onto my face, letting his fingers skim across my cheek.
+“Is that what’s going on with you?” he asks, as he pushes my hair back from where it’s fallen into my face, letting his fingers skim across my cheek.
 
 “Yes. No. I don’t know,” I sigh, and say again, “I don’t know. The dread it’s bigger than that. It’s all this stuff with my mother and what she’s teaching everyone.”
 
 “What do you mean?”
 
-“I don’t know. I can’t even really explain it to myself,” I admit.
+“I don’t know. I can’t even really explain it to myself. Or I don’t want to. I don’t know,” I admit, repeating myself, because it’s the only thing I’m really sure of.
 
 “Okay.”
 
@@ -1738,13 +1740,15 @@ We stay silently entwined in one another’s arms for a few minutes before Liam 
 
 “I know. Is it okay if we don’t talk about it anymore?” I ask. “I just want to lie here with you and not think about it.”
 
-“Alright,” he tells me, pulling me closer.
+“Alright,” he tells me, pulling me closer, and tucking my head under his chin.
+
+I slowly try to escape from the anxiety that has me firmly locked in its grip, and let the feel of his skin against mine lull me into a dreamless sleep.
 
 ----
 
 The next morning Lisette finds me standing behind Lewis. I immediately realize she’s there, but say nothing. One minute turns into five. Then ten. Twenty.
 
-“What are these markings on the chart?” I ask Lewis pointing to an area between the coast of the continent and (( ??? Large island )).
+“What are these markings on the chart?” I ask Lewis pointing to an area between the coast of the continent and Kebdain, a large island that’s probably close to a fifteenth the size of the continent.
 
 Lewis glances over to see what I’m pointing at. “Currents meet there. There’s a cold current flowing south and a warm one moving north east. Makes the area dangerous.”
 
@@ -1760,7 +1764,7 @@ Lewis glances over to see what I’m pointing at. “Currents meet there. There�
 
 “About lots of things.”
 
-It’s true. I’m learning about sailing, and charts, and navigation. But I’m also learning about commanding a ship full of people. Ostensibly this ship has a captain, but he doesn’t matter. Everyone on this ship answers to Lewis, and if it ever came down to it and they were forced to choose between their captain’s orders, or Lewis’s, they would all follow his without a second thought given. The really interesting thing though, is that Lewis wouldn’t let it come down to that. He manages the captain just as well as he manages everything else onboard this ship. He’s truly masterful at it. I don’t even think most of the others realize it. Lisette certainly doesn’t seem to.
+It’s true. I’m learning about sailing, and charts, and navigation. But I’m also learning about commanding a ship full of people. Ostensibly this ship has a captain, but he doesn’t matter. Everyone on this ship answers to Lewis, and if it ever came down to it and they were forced to choose between their captain’s orders, or Lewis’s, they would all follow Lewis’s without a second thought given. The really interesting thing though, is that Lewis wouldn’t let it come down to that. He manages the captain just as well as he manages everything else onboard this ship. He’s truly masterful at it. I don’t even think most of the others realize it. Lisette certainly doesn’t seem to.
 
 “Why do we go around this time of year?” I ask Lewis.
 
@@ -1810,15 +1814,15 @@ It’s true. I’m learning about sailing, and charts, and navigation. But I’m
 
 “Please. This isn’t your ship the same way these aren’t my people,” I tell him flatly.
 
-Lewis raises his eyebrows slightly, and I think maybe he dips his head slightly in what might be a nod, but I’m not sure.
+Lewis raises his eyebrows slightly, and I think maybe he dips his head minutely in what might be a nod, but I’m not sure.
 
 “Whatever,” Lisette says. “Your mother wants you in the galley.”
 
 “Great,” I mutter as I leave Lewis and head that way.
 
-I find her in the galley waiting. Alex, Davy, Liam, and Christine are all there already. Davy is standing as far away from his mother as he can without making it obvious that’s what he’s doing.
+I find her in the galley, already waiting. Alex, Davy, Liam, and Christine are all there too. Davy is standing as far away from his mother as he can without making it obvious that’s what he’s doing.
 
-“When we return to Branton, you and Davy will gather your things. We will all be journeying from Branton to Corriven to take care of the administrative details. From Corriven, you and Davy will go to Dairuvar. Christine will accompany you. Alex and I will go to Avonare,” she says staring at me.
+“When we return to Branton, you and Davy will gather your things. Then we will all be journeying from Branton to Corriven to take care of the administrative details. From Corriven, you and Davy will go to Dairuvar. Christine will accompany you. Alex and I will go to Avonare,” she says staring at me.
 
 “Fine,” I answer. I knew this was coming. I’ve been waiting. It’s not fine.
 
@@ -1848,13 +1852,13 @@ Lewis raises his eyebrows, having definitely said no such thing.
 
 “No one should be able to hear us,” I tell them, “but keep your voices down just in case. Better safe than sorry.”
 
-“I take we’re not going to Dairuvar, then,” Liam says.
+“I take it we’re not going to Dairuvar, then,” Liam says.
 
 “No, we’re not even going to Branton, at least not on this ship, but there was no reason to bother telling her that.”
 
-Alex visibly breathes a sigh of relief. “So you have just been spending all your time with Lewis because you’re bored out of your mind?”
+Alex visibly breathes a sigh of relief. “So you haven’t just been spending all your time with Lewis because you’re bored out of your mind?”
 
-“No. I mean, it kind of started out that way but we can’t go back to Branton with her. Or at least *I* can’t,” I tell them. “Lewis is key to getting off this ship well before that.”
+“No. I mean, it kind of started out that way, but we can’t go back to Branton with her. Or at least *I* can’t,” I tell them. “Lewis is key to getting off this ship well before that.”
 
 “Does Lewis know this?” Davy asks.
 
@@ -1878,13 +1882,13 @@ Liam looks at Alex, seeking his opinion on, Peter, I guess.
 
 “What about Henry, Lisette, and Amelia?” I ask, before quickly stating, “We’re *not* taking Michael.”
 
-“Why not Michael?” Liam asks, and Davy looks curious.
+“Why not Michael?” Liam asks, and Davy looks curious as well.
 
 I sigh. “He’s been sleeping with Christine.”
 
-“Go figure,” Davy mutters.
+“Go figure,” Davy mutters darkly.
 
-“Not Amelia either then. She’s unpredictable at the best of times, but with her loyalties divided like that? No,” Liam tells.
+“Not Amelia either then. She’s unpredictable at the best of times, but with her loyalties divided like that? No,” Liam tells me.
 
 “And Henry and Lisette?”
 
@@ -1896,13 +1900,13 @@ I sigh. “He’s been sleeping with Christine.”
 
 We nod.
 
-“What about Liam?” Alex asks. “Mom’s going to be pissed when she wakes up and we’re all gone.”
+“What about Liam?” Alex asks me. “Mom’s going to be pissed when she wakes up and we’re all gone.”
 
 “She won’t kill him,” I say with far more certainty than I feel.
 
 “She might,” Alex says, I think more for Liam’s awareness than mine. “You know how vindictive she can be.”
 
-“If she kills him, she’s knows she’s next. She’ll have to hold off. Besides, she’ll want to try to figure out how to get us all back under her thumb, and killing Liam won’t accomplish that.”
+“If she kills him, she knows she’s next. She’ll have to hold off. Besides, she’ll want to try to figure out how to get us all back under her thumb, and killing Liam won’t accomplish that.”
 
 “Maybe,” Alex says.
 
@@ -1934,7 +1938,7 @@ I sigh.
 
 “Yeah. I don’t like it either, but you’re going to need someone to work it out on, and I don’t see a whole lot of other willing volunteers.”
 
-“I know. I’ve been thinking the same thing. For weeks now.”
+“I know. I’ve been thinking the same thing. For weeks now. And I really don’t like it.”
 
 “I know. So here’s what I’m thinking. If you can actually open her energy meridians, or whatever,” Davy begins, waving a hand in the air.
 
@@ -1958,7 +1962,7 @@ I nod, because he’s right. I can’t. I hate it. But I can’t.
 
 “I mean, they’re not exactly volunteers, but there are a couple of people on this ship who deserve it.” Davy says flatly.
 
-“True, but I’m not going to try that out until after I’ve done whatever I can do with Lisette, and I’m not doing that until after we’re off the ship.”
+“True, but I’m not going to try that out until after I’ve done whatever I can do with Lisette, and I’m not doing that until *after* we’re off the ship.”
 
 Davy shrugs. “I’m sure there will be other opportunities.”
 
@@ -1968,7 +1972,7 @@ Davy shrugs. “I’m sure there will be other opportunities.”
 
 “What I’m capable of.”
 
-“No. You don’t want any of it. If you started wanting it, it might start bothering me. Maybe.”
+“No. You don’t want any of it. If you started wanting it, it *might* start bothering me. Maybe.”
 
 “You have a lot more faith in me than I do.”
 
@@ -1986,7 +1990,7 @@ I find Lewis at the helm, because where else would he be?
 
 “That’s what I’m afraid of,” I mutter. “You never answered me earlier.”
 
-“Didn’t I?” he says, notably not asking what he neglected to answer earlier.
+“Didn’t I?” he responds, notably not asking what he neglected to answer earlier.
 
 “You didn’t.” I wait silently just off his shoulder.
 
@@ -1998,7 +2002,7 @@ Eventually he sighs. “As far as I can tell, you don’t particularly seem to w
 
 “Yeah.”
 
-We stand silently for a while, the only sounds the wind creaking through the sails, and the waves slapping against the hull of the ship as it slices through the water.
+We stand silently for a while, the only sounds are the wind creaking through the sails, and the waves slapping against the hull of the ship as it slices through the water.
 
 “I think it’s a bad business,” he says finally. “All of it.”
 
@@ -2008,9 +2012,9 @@ We stand silently for a while, the only sounds the wind creaking through the sai
 
 “Me and mine.”
 
-He thinks for a moment, and then moves the chart around, before finally pointing and saying, “Here. (( ??? )).”
+He thinks for a moment, and then moves the chart around, before finally pointing and saying, “Here. Cape Deila.”
 
-I nod. “And when will reach (( ??? )).”
+I nod. “And when will we reach Cape Deila.”
 
 “About five days from now.”
 
@@ -2026,7 +2030,7 @@ I nod. “And when will reach (( ??? )).”
 
 He nods. “Long way,” he states.
 
-“I’ve walked farther.”
+“I’ve walked further.”
 
 “Have the others?”
 
@@ -2034,11 +2038,11 @@ I shrug. “They’ll manage.”
 
 “Aye. I expect so.”
 
-### 9 - We’re Going Home ^^1300 words^^
+### 9 - We’re Going Home ^^1400 words^^
 
-Five nights later, Liam and I stand on the deck with Davy, Alex, Peter. Gavin and Giorgi have gone to get Henry and Lisette. Davy was right in saying that we should bring Lisette, and if we’re bringing her, then Henry is an obvious choice as well. We didn’t tell either of them beforehand though, which is why Gavin and Giorgi are fetching them now.
+Five nights later, Liam and I stand on the deck with Davy, Alex, and Peter. Gavin and Giorgi have gone to get Henry and Lisette. Davy was right in saying that we should bring Lisette, and if we’re bringing her, then Henry is an obvious choice as well. We didn’t tell either of them beforehand though, which is why Gavin and Giorgi are fetching them now.
 
-Lewis is going to get in as close to the shore as the barquentine can manage, but we’ll be rowing the dinghy a decent way, and we need to get the timing right. I am waiting very impatiently.
+Lewis is going to get in as close to the shore of the cape as the barquentine can manage, but we’ll be rowing the dinghy a decent way, and we need to get the timing right. I am waiting very impatiently.
 
 A few minutes later Gavin and Lisette appear, and another minute later, Giorgi and Henry follow. The dinghy is already in the water, and we start climbing down into it. Gavin first, followed by Lisette, Giorgi, then Henry. Peter goes next, and Liam follows him. Then Alex, and Davy.
 
@@ -2050,17 +2054,17 @@ Seconds later, I’m joining the others in the dinghy. Alex and Peter take up th
 
 “What’s that?” Gavin asks, nodding to the rolled sheet of paper I’m holding.
 
-“Not sure,” I tell him sliding it into my pack. It’s too dark to read anything now. It’s a new moon and the sky has a thick, low layer of clouds covering the stars.
+“Not sure,” I tell him sliding it into my pack. It’s too dark to read anything now. There’s a new moon and the sky has a thick, low layer of clouds covering the stars.
 
-Fifteen minutes later, we make it to the shore. So far, so good, but I know it’s only a matter of time and probably not much. Eventually she’s bound to notice Liam’s getting further away from her, and when she does…
+Fifteen minutes later, we make it to the shore. So far, so good, but I know it’s only a matter of time and probably not much at that. Eventually she’s bound to notice Liam’s getting further away from her, and when she does…
 
 “Let’s move,” I tell the others. “We’ve got a long way to walk, and the sooner we make it back, the better.”
 
 We’re lucky the coast here isn’t sheer cliffs or thickly wooded, but waist high scrubland. There is no road or trail here, so it’s still rough going, but it could be a lot worse. Lewis chose well.
 
-“How long is it going to take us to make it Branton,” Henry asks.
+“How long is it going to take us to make it back to Branton?” Henry asks.
 
-“Probably a few of weeks,” Alex answers.
+“Probably a few weeks,” Alex answers.
 
 “So they’ll make it back before we do,” Henry says with a nod.
 
@@ -2070,21 +2074,19 @@ We’re lucky the coast here isn’t sheer cliffs or thickly wooded, but waist h
 
 I hear Liam take a ragged breath that turns into a strangled gasp after we’ve been walking for a couple of hours. I’m surprised it took this long honestly. I expected it much sooner.
 
-“Stop,” I call out to the others, and drop my pack. I take Liam’s face in my hands. “Stay calm,” I tell him. “She’s not going to kill you. I know it feels like it, but she’s not going to kill you.”
+“Stop,” I call out to the others, and drop my pack. I take Liam’s face in my hands. “Stay calm,” I tell him as I stare into his eyes. “She’s not going to kill you. I know it feels like it, but she’s *not* going to kill you.”
 
 “Hazel,” I hear someone say warningly.
 
-“She’s not going to kill him,” I say again. “I’m sure.” I’m not sure. I look into Liam’s eyes and tell him again, “You’re going to be fine,” as I slowly watch him lose consciousness, and sink to his knees.
+“She’s not going to kill him,” I say again. “I’m sure.” I’m not sure. I look back into Liam’s eyes and tell him again, “You’re going to be fine,” as I slowly watch him lose consciousness, and fall to his knees. I hold on to his shoulders to keep him from falling face first into the earth.
 
-*She’s not going to kill him. She’s not going to kill him.* I repeat to myself, again and again, willing it to be true. I just wish I was more sure, as one minute stretches to two. And then two minutes stretches to three. I feel my own chest tightening, and begin to fear I was wrong, when he takes a breath. As he does, I finally let out the breath I was holding, and slowly sink to my knees.
+*She’s not going to kill him. She’s not going to kill him.* I repeat to myself, again and again, willing it to be true. I wish I was more sure, as one minute stretches to two. And then two minutes stretches to three. I feel my own chest tightening, and begin to worry I was wrong, when he takes a breath. As he does, I finally let out the breath I was holding, and slowly sink to my knees.
 
-(( possibly more here ))
-
-“We’ll stay here until he wakes up,” I tell everyone else.
+“We’ll stay here until he wakes up,” I tell everyone else shortly.
 
 “That was close, sis,” Alex says softly as he settles beside me.
 
-I only nod, because I’m not sure I can speak without my voice shaking and giving me away. I take my pack and slide it under Liam’s head, as Alex helps me move him onto his back.
+I only nod, because I’m not sure I can say anything else without my voice shaking and giving me away. I take my pack and slide it under Liam’s head, as Alex helps me move him onto his back.
 
 “He’ll be fine,” Alex says.
 
@@ -2098,7 +2100,7 @@ I just nod, and curl up next to Liam, hating that I’m the sort of person who�
 
 ----
 
-At some point I must have fallen asleep because daylight has replaced the slow creep to dawn and I hear birdsong in the distance. I see Liam and Peter several feet away talking quietly. Peter notices I’m awake first and says something to Liam that has him quickly looking in my direction. Liam nods and claps Peter on the shoulder, then heads back to me.
+At some point, I must have fallen asleep because daylight has replaced the slow creep to dawn and I hear birdsong in the distance. I see Liam and Peter several feet away talking quietly. Peter notices I’m awake first and says something to Liam that has him quickly looking in my direction. Liam nods and claps Peter on the shoulder, then heads back to me.
 
 “Are you okay?” I ask as he reaches me.
 
@@ -2124,29 +2126,25 @@ I nod and reach for my pack. Now that it’s daylight, I want to see what the pa
 
 “Ah. Good idea.” I don’t bother mentioning that I could simply lure some animals to their deaths, because it *was* a good idea, and I don’t know how long it would have taken for me to get hungry enough to bother. Certainly well after everyone else.
 
-I should have them show me next time we stop. Could be useful.
+I should have them show me how the snares work next time we stop. Could be useful.
 
-Ten or fifteen minutes later, the three of them are filtering back in, carrying five rabbits. Definitely useful. They skin and butcher the rabbits quickly, and within the hour we’re all eating. I’m studying the chart Lewis left me, and even on the shortened route he mapped out, that still leaves us about four hundred miles back to Branton. If we manage twenty miles a day it’ll take us twenty days to get back. That’s too long. At twenty file miles a day, we’ll make it back in sixteen, which is better but still longer than I would like. Ideally, we would be back now.
+Ten or fifteen minutes later, the three of them are filtering back in, carrying five rabbits. Definitely useful. They skin and butcher the rabbits quickly, and within the hour we’re all eating. I’m studying the chart Lewis left me, and even on the shortened route he mapped out, it still leaves us about four hundred miles to get back to Branton. If we manage twenty miles a day, it’ll take us twenty days to get back. That’s too long. At twenty file miles a day, we’ll make it back in sixteen, which is better but still longer than I would like. Ideally, we would be back now.
 
 “We need to cover at least twenty file miles a day,” I tell the others. I’m annoyed that actual teleportation is beyond the bounds of what magic is capable of. Sure, I could approximate something that looked like it over a very short distance, but the energy requirements over any sizable distance for a group of people would be astronomical. I’d die before I could manage it, and so would everyone and everything around me.
 
-Oh well. It was still the least bad choice.
+Oh well. Getting off the ship was still the least bad choice.
 
 “Lisette,” I say, and wait for her attention to shift to me. “Tonight?” I’d just as soon get this over with.
 
 “Okay,” she nods.
 
-I sigh internally. I think I was hoping she’d say no, and back out. But I don’t think she will. Great.
+I sigh internally. I think I was hoping she’d say no, and back out. Maybe she still will, but I doubt it. Great.
 
 “Let’s go,” I say as soon as everyone is done eating.
 
-----
-
 The terrain is rough. We’re not quite bushwhacking, but we’re not far off from it either. We’re probably covering about two and half miles an hour, so we’ll be hiking into the dark, which means we’ll be moving even slower. All in all, it’ll probably take us fourteen hours to cover the twenty-five miles, and that’s if we don’t stop for breaks. I try to increase the pace, but in less than an hour, the others are telling me to slow down.
 
-(( blah blah blah ))
-
-### 10 - King of Pain ^^2100 words^^
+### 10 - King of Pain ^^2200 words^^
 
 Everyone is tired by the time we stop for the night. I can see the strain in their faces, and I know at least a few of them probably have some blisters that need tending. I leave that for Alex to deal with. He’s not exactly *better* at it than I am insofar as the end result will be the same. But it will hurt less if Alex does it. I’ve never been able to completely stop an injury from hurting while I heal it. Probably because I don’t care. If it hurts, it hurts. Eventually it will stop.
 
@@ -2170,7 +2168,7 @@ She finally sits down, and as she does, Peter comes over and sits across from us
 
 She nods.
 
-“What we did there was like a heavily modified version of this. Davy was moving energy through me, and it hurt. A lot. And my meridians, or whatever,” I hate how it sounds saying ‘energy meridians’ aloud, but I don’t have a better term, “are actually… open? I guess. As far as I can tell, yours aren’t. So we need to open them, or maybe create them. I’m not sure. Anyway. I expect that’s going to hurt a lot more. *A lot more.* It will easily be the most painful thing you have ever experienced. And maybe if I had done this before, I could mitigate that. But I haven’t, and I’m not even going to try.” I tell her simply.
+“What we did there was like a heavily modified version of this. Davy was moving energy through me, and it hurt. A lot. And my meridians, or whatever,” I hate how it sounds saying ‘energy meridians’ aloud, but I also don’t have a better term, “are actually… open? I guess. As far as I can tell, yours aren’t. So we need to open them, or maybe create them. I’m not sure. Anyway. I expect that’s going to hurt a lot more. *A lot more.* It will easily be the most painful thing you have ever experienced. And maybe if I had done this before, I could mitigate that. But I haven’t, and I’m not even going to try.” I tell her simply.
 
 “That’s the second thing. It should go without saying, but I’m going to say it anyway, just so we’re clear: I have never done this before. It might work. It might not. It might kill you. But regardless of what the outcome is, I can guarantee it’s going to be painful.
 
@@ -2196,7 +2194,7 @@ Alex nods in agreement. “Yes.”
 
 “You’re right, and it’s not ideal, but I think you should still do it. She’s what we’ve got to work with. Just make damn sure that connection is a one way connection,” Davy tells me.
 
-I nod, having already thought the same. I’m actually planning on doing one better, and weaving into the magic something that will kill her outright if she tries to draw power from me or otherwise modify the bond. I have enough doubts about this whole thing that I want to be as sure as I can. And it still doesn’t feel sure enough. But I’m still going to do it. Maybe Peter was right. Maybe I do like playing with fire. Maybe I do want to see how close I get with without getting burned.
+I nod, having already thought the same. I’m actually planning on doing one better, and weaving into the magic something that will kill her outright if she tries to draw power from me or otherwise modify the bond. I have enough doubts about this whole thing that I want to be as sure as I can. And it doesn’t feel nearly sure enough. But I’m still going to do it. Maybe Peter was right. Maybe I do like playing with fire. Maybe I do want to see how close I get with without getting burned.
 
 Eventually I know I’m going to go up in flames though. A great, spectacular conflagration. I just hope this isn’t it.
 
@@ -2214,7 +2212,9 @@ I sit back down in front of Lisette. “Alex is going to hold you in place while
 
 I wait for her to nod, and then wait until I feel Alex’s power wrap around her before I take her hands in mine. I close my eyes, and instead of falling backward into myself, like I normally would, I focus on falling inward to the spot where her hands are resting against mine.
 
-From here, I begin the first tentative steps of binding her to me, and send my power questing into her, along where I think her energy meridians should be. And I feel them, but instead of being like paths or grooves throughout her body, they feel like faint cracks. But at least there’s something there to work with. I won’t have to burn them into her from nothing, which might make it hurt a little less, but probably not much. I start pulling power into myself and sending it through my hands into hers, using it to burn the cracks into deep channels, and it feels a lot like burning patterns into wood, only instead of wood, it’s the being of another person. I know if Alex wasn’t holding her locked in place, she would be screaming and thrashing in pain right now. But I keep going. I told her this is what it would be like, and still she asked for it, so I keep going.
+From here, I begin the first tentative steps of binding her to me, and send my power questing into her, along where I think her energy meridians should be. And I feel them. Kind of. But instead of being like paths or grooves throughout her body, they feel like faint hairline cracks. But at least there’s something there to work with. I won’t have to burn them into her from nothing, which might make it hurt a little less. Probably not much, though. I start pulling power into myself and sending it through my hands into hers, using it to burn the cracks into channels, and it feels a lot like burning patterns into wood, only instead of wood, it’s the being of another person. I try to make them similar to what I think exists in Gavin and Henry—not as deep or as wide as what I think they’re like in the rest of us.
+
+I know if Alex wasn’t holding her locked in place, she would be screaming and thrashing in pain right now. But I keep going. I told her this is what it would be like, and still she asked for it, so I keep going.
 
 I don’t know how long it’s been, or how much longer it’s going to take. I just keep pulling power into myself and using it to burn through her. I feel my own skin growing hot where our hands meet, but I ignore it and continue working. A part of me is distantly aware that Lisette has lost consciousness—which is probably a mercy—though Alex still holds her in place, but I’m nowhere near done.
 
@@ -2222,21 +2222,23 @@ So far, I’ve just been pushing power into her, etching the pathways that will 
 
 Self preservation is real.
 
-Finally, everything is in place, and I hold it there until it sounds like a note being stretched to its breaking point. Then I let it all crystalize and release it. I think I feel reality reshaping itself.
+Finally, everything is in place, and I hold it there until it sounds like a note being stretched to its breaking point. Then I let it all crystalize and release it. I think I feel reality actively reshaping itself.
 
-I open my eyes and take a breath. Hold it, then begin pulling power through Lisette, and neither of us dies as I do so. That part of the magic, at least, is solid and stable. We’ll have to see what the rest is like when she wakes up. If she wake up.
+I open my eyes and take a breath. Hold it, then begin pulling power through Lisette, and neither of us dies as I do so. That part of the magic, at least, is solid and stable. We’ll have to see what the rest is like when she wakes up. If she wakes up.
 
 “You can let her go, Alex,” I tell him and he catches her as she slumps forward.
 
 I’m not exactly sure how much time has passed, but enough the others have come back from setting snares, and someone built a fire.
 
+My hands are still hot, and it feels like I’ve burned them. Damn. Alex notices me looking at them, and grabs them before I can yank them away.
+
 “All good?” Liam asks.
 
-“I don’t know. We’ll find out when she wakes up,” I say as I stand. “Giorgi, can you show me how you set the snares?”
+“I don’t know. We’ll find out when she wakes up,” I say as I pull my hands away from Alex and rise to my feet. “Giorgi, can you show me how you set the snares?”
 
 “Sure.”
 
-I follow him as he gets up and walks away. About a hundred yards away he stops and kneels in front of a snare, undoing whatever he did to set it up in the first place. He walks me through setting it up, and then hands it to me. It’s impressively simple for something that caught five rabbits. Just some wire looped around itself into a sliding loop, and suspended between two sticks at rabbit level. But once you’re caught in it, tightens down the more you struggle to get free of it. It feels like a metaphor for my life right now.
+I follow him as he gets up and walks away. About a hundred yards away he stops and kneels in front of a snare, undoing whatever he did to set it up in the first place. He walks me through the process of setting it up, and then hands it to me. It’s impressively simple for something that caught five rabbits. Just some wire twisted around itself into a sliding loop, and suspended between two sticks at rabbit level. But once you’re caught in it, tightens down the more you struggle to get free of it. It feels like a metaphor for my life right now.
 
 “Are the snares the only reason we’re out here?” Giorgi finally asks, once I’ve finished resetting it.
 
@@ -2286,7 +2288,7 @@ He nods.
 
 We go get the remaining rabbits, resetting the snares as we do. When we walk back to the others, Gavin and Henry look mildly surprised, but they’re the only ones.
 
-I leave the butchering and cooking of the rabbits to whoever’s willing to do it, and go lean up against Liam who wraps an arm around me. We need tents and some gods damned privacy, but it doesn’t seem like we’re going to have any of that for the next couple of weeks. I sigh.
+I leave the butchering and cooking of the rabbits to whomever’s willing to do it, and go lean up against Liam who wraps an arm around me. We need tents and some gods damned privacy, but it doesn’t seem like we’re going to have any of that for the next couple of weeks. I sigh.
 
 “Are you okay?” Liam murmurs.
 
@@ -2294,4 +2296,267 @@ I leave the butchering and cooking of the rabbits to whoever’s willing to do i
 
 There’s not much to say to that, so Liam only nods, and we sit around the fire in silence. I would just as soon keep walking until we get to Branton, even if expending the energy to do so would be stupid. The fact that the others can’t is the only thing really stopping me.
 
-### 11 - Chapter Name TBD
+### 11 - Pepper ^^1900 words ^^
+
+The next morning Lisette doesn’t wake up. She’s breathing and her pulse is fine, so I’m not too concerned about it. I’m just annoyed. We can’t afford to lose an entire day, or however long it’s going to take, waiting for her to wake up.
+
+“We’re going to have to carry her,” I tell the others.
+
+“Over this terrain?” Henry asks uncertainly.
+
+“Yeah. Liam, Peter, Alex, you guys are the biggest. What do you have for extra clothes?” I ask.
+
+“Not much,” Peter says, pulling out a spare shirt and pair of pants.
+
+“Hand them over,” I tell him, and wait for Alex and Liam to do the same. Once I’ve got all their spare clothes, I begin knotting them together into something resembling a sling.
+
+Alex sighs. “Well there’s no way I’m going to be able to wear those again, Hazel.”
+
+I shrug. “If you have a better idea of how to carry her for the next twenty five miles, I’m all ears.”
+
+“I don’t know. How about a litter?”
+
+“Made from what? Green wood? It’d probably be close to half again her weight, and we’d still need something to lash it together.”
+
+“Fine. Whatever,” he grumbles because he knows I’m right.
+
+Once I’ve got something I think will hold her, I say, “We’ll pair off by height. Me and Davy. Henry and Giorgi. Gavin and Alex. Peter and Liam. A mile at a time, then switch?”
+
+Everyone nods in agreement.
+
+“Okay, help me get her into this thing.”
+
+Eventually Davy and I are standing, holding the knotted ends of the sling at our shoulders, with Lisette slumped suspended between us in something like a seated position.
+
+“Are you guys sure you can manage that?” Gavin asks skeptically.
+
+“Better than you,” I tell him with a snort. “Let’s go.”
+
+They all let Davy and I go first to set the pace.
+
+----
+
+By the end of the day, we’ve all had at least six turns carrying Lisette, and I can tell everyone is sick of it, but no one is complaining, even though it took an extra three hours to cover the same distance today as it did yesterday.
+
+“I’ll go see about some food,” Giorgi says, when we finally decide on a stopping point.
+
+I look at him in question, and he shrugs.
+
+“Let us know if you need some help,” I tell him. I guess we’ll see what happens.
+
+He nods and goes off into the brush.
+
+“What are you teaching my brother?” Gavin asks.
+
+“How to stay alive. Hopefully,” I mutter as I slump back onto my pack and stare up at the sky. Everyday we’re not in Branton feels like a missed opportunity, an advantage that we’re giving away.
+
+After what feels like twenty minutes or so, Giorgi comes back with two rabbits. Not half bad for a first attempt.
+
+Liam drops to sit next to me, and I immediately move a little bit closer and interlace my fingers with his. Everyone’s exhausted, so we all sit silently while Alex builds a fire and Davy and Henry set about butchering the rabbits.
+
+“So how much longer are we going to carry her?” Gavin asks, nodding to Lisette.
+
+“I have no idea. If we’re lucky she’ll wake up tomorrow,” I answer.
+
+“So you’re saying we’ll definitely be carrying her tomorrow,” Gavin says.
+
+I look at him in question.
+
+“When are we ever that lucky?”
+
+I sigh. “You’re probably right.”
+
+----
+
+In the evening two days later, after another fifty miles of us carrying her through the scrubland, Lisette finally wakes up.
+
+“What happened?” she asks groggily.
+
+“You’ve been unconscious for about three days,” Gavin says. “We’ve been *carrying* you for three days.”
+
+I grin. You can always count on Gavin to relay the most important information first. I’ll give him that.
+
+“Oh,” Lisette says, looking somewhat abashed. “Did it work?” she asks, looking at me.
+
+“I have no idea,” I tell her. “You’re not dead,” I shrug. “Beyond that, I have no idea. Even if it did, you’re still going to have to figure out how it works. Start with the knot again.”
+
+“Start with walking again,” Gavin mutters, and I can’t help but laugh. I’m just as sick of carrying her as everyone else.
+
+Davy appears and hands her a waterskin and some food. Acting like a real person instead of like Gavin and me, who I guess just expected her to get up and get it herself. She quickly drains the waterskin. A few days of unconsciousness will do that to a person.
+
+After she eats what Davy handed her, she quickly begins messing with the fabric knot, which does nothing to quell my uneasiness. While the learning experience was worthwhile, and perhaps even necessary, I am increasingly feeling like I will live to regret this. But at the same time, I think had I not done it, Lisette would have found a way to make me regret that as well. Damned if I did and damned if I didn’t. Story of my life.
+
+I get up and go to find Liam. He’s next to the stream we’ve stopped by for the night, with Alex and Peter. I think Liam and Peter are trying to work out how to catch some fish, and I think Alex is just there to laugh at them, which fair. And since I would sooner go hungry than eat fish, I’m not going to volunteer any tips either.
+
+“Hey Liam, walk with me a bit?” I say as I approach them, extending my hand to him.
+
+He nods and steps away from the stream.
+
+“What’s up?” he asks once we’ve moved out of earshot of the others.
+
+“Can’t I just want a little alone time with you?” I ask in response.
+
+He stops moving forward and spins me around to face him, catching my other hand in his, before bringing his mouth to meet mine. My lips eagerly part beneath his, and as his tongue slides over mine I press myself more firmly against him and he releases my hands, sliding his to my waist. Mine immediately wrap around him pull him closer to me. His hands move down to my hips and then over my ass, before he lifts me up, and I wrap my legs around him. I can feel the heat coming off of him as I slip my tongue into his mouth, deepening our kiss. I manage to work my hands under his shirt when he gently pulls back panting.
+
+“This isn’t what you had on your mind when you asked me to walk with you,” he says.
+
+“Well it damn sure is what I have on my mind now,” I say kissing him again, my own breathing sounding just as ragged.
+
+He pulls back though, and I’m forced to say, “This now. Talking later. Please, Liam. Please,” I repeat again, beseechingly, when he doesn’t move.
+
+Finally his mouth is on mine again, as hungry for me as I am for him. His hand slips beneath my shirt to the small of my back, and I moan softly, which brings a new urgency to his movements. He sets me down so that he can pull off my shirt, and I strip off his clothes just as quickly. His teeth find my nipple and gently nip at it. I wind one hand through his hair to keep me balanced and on my feet and wrap my other around his dick. He gasps as he brings his mouth back to mine. After a moment, I pull away and skim my lips over his jaw, before moving down his neck to his chest. I let my tongue trace over the ridges of his ribs, and the muscles of his stomach as I drop to my knees, and slide the head of his penis into my mouth, moving my tongue over him languidly. The sound he makes as his hands tangle in my hair is enough to make me never want to stop, and I take him deeper into my mouth, working my tongue along the length of him. I keep going as his breathing becomes rough and rougher. In one quick motion, he pulls me from my knees, lifting me into the air, and spinning us around so that my back is against the nearest tree, as he thrusts into me. I find his mouth with my own to keep from shouting out in pleasure because there’s definitely nothing shielding the sound right now, and we’re not that far from everyone else. But I definitely don’t have the ability to do anything about that right now. Liam is the only thing I can focus on as he thrusts into me again and again.
+
+I’m nearly there when he drops his hand to trace across my clit as he continues to drive into me. It’s enough to push me over the edge, and I lock my legs around him holding him tight to me as I convulse around him, which is enough to pull him over with me.
+
+He holds me against the tree for a few minutes as we both catch our breath and come down from the high. Eventually though, he slowly lowers me to my feet, and I immediately miss his body pinning mine in place.
+
+“Let’s just stay here for a while,” I whisper.
+
+“Okay,” he agrees, moving our clothes so we can lie on top of them before he pulls me to his chest. “So what did you want to talk about?” he asks after a few minutes.
+
+“Hmm?”
+
+“Before,” he says. “When you came to find me. What did you want to talk about?”
+
+“Oh.” I sigh. “Lisette. We can’t take her to the flat, Liam.”
+
+“Why not? Is something wrong?”
+
+“I’m not… I don’t know. She woke up, and she seems fine but…” I trail off.
+
+“But?”
+
+“She wants it all too much,” I say softly. “It’s not normal. It makes me really, really uneasy. And maybe it will be fine and nothing will come if it, but…”
+
+“But you don’t think, so. Okay,” he says, running his hand along my spine. “We’ll figure out something else. We’ve got time.”
+
+“Okay, good.” I close my eyes and enjoy the moment. It’s the first one we’ve had alone in days, and I had no idea how much I needed it. “I love you. Let’s just stay here forever,” I murmur.
+
+“I love you too, but you would get bored,” Liam tells me.
+
+“I think you could help with that.”
+
+We lie there together until I hear Alex shouting, “Hazel! Liam! Don’t make me come find you!”
+
+I sigh. “We’d better go back. He’ll definitely make good on that threat if we don’t.”
+
+We stand up and begin to sort out whose clothes are whose, tugging them on as we go.
+
+Finally we make our way back to the others. When we get there Alex takes one look at us, his eyes shifting between Liam and me. “Gods, this is so weird,” he mutters before walking away.
+
+I look at Liam, and we both shrug.
+
+“Sounds like a you problem,” I call after Alex.
+
+“Never said it wasn’t,” he tosses back over his shoulder.
+
+I look for Lisette, and find her still fiddling with the knot, but she’s actually close now, and I can’t help but sigh. I really hope I’m wrong, and I’m pretty sure I’m not.
+
+### 12 - It’s Called Freefall
+
+We spend the next twelve days walking. It’s monotonous, but at least we’re dong something. Lisette peppers me with questions about magic throughout the process. I don’t think I’ve ever spent so much time talking about it in my life. To say she’s infatuated would be understating the matter.
+
+I’m doing my best to remain detached from the whole thing. Either she’s going to get herself killed, I’m going to kill her, or everything will work itself out, and there’s no reason to dwell on it now that I’ve established the basic parameters of the situation. Alex and Davy both know the situation, and I’m pretty sure Giorgi’s worked it out as well. I’m not sure about the others, but if they haven’t, they haven’t been paying attention.
+
+“So what did you do to get us through the pass?” Lisette asks, and I feel all eyes except Davy, Alex, and Liam turn to me.
+
+“Magic,” I answer, hoping it will be enough and knowing it won’t.
+
+“Yes, but what? And how?”
+
+I consider my words carefully. There’s no good answer to this question. If I tell her what I did, she’s going to start trying to work it out herself. If I tell her it’s nothing she’s going to be able to replicate, she’s not going to believe me, and I’m pretty sure she’ll resent both me and the implications, and start trying to work it out herself.
+
+“It’s nothing I want to explain to anyone who doesn’t already know the details,” I tell her in a tone that should make it clear I’m unwilling to discuss it.
+
+“But—”
+
+“No, Lisette. There are no buts. It’s an off limit topic of conversation.”
+
+“But—”
+
+“Lisette, she said no,” Henry says. “Drop it. You’re alive. That should be good enough.”
+
+“But—”
+
+“Lisette, shut the hell up.” This comes from Gavin, who goes on to say, “Everyone is sick of listening to you bug Hazel about magic. Her most of all, I’m sure,” he mutters.
+
+“Wait, really?” she asks.
+
+“Yes. Notice how you’re the *only* talking about it?” Gavin questions.
+
+“Oh.”
+
+We walk in silence for a while after that, and eventually Alex moves next to me, and then begins falling a back slightly, so I shorten my stride to match his until we’re trailing behind the others by several yards. After a few more minutes, I feel his magic wrap around us both.
+
+“She’s still thinking about it,” he tells me softly. “All the time. All I’ve felt coming from her since she woke up is desire for magic.”
+
+I nod. It’s about what I suspected. “I’m not surprised,” I eventually say. “What do you think the chances are she’s able to figure out how to manage it?”
+
+“Not high,” he says. After thinking about it for a minute, he goes on to add, “Maybe twenty percent. Maybe less.”
+
+“Yeah.”
+
+“So what are you going to do?”
+
+“Wait and see?” I shrug.
+
+“Might not be the best course of action.”
+
+“Maybe, but what’s the alternative?”
+
+“Stop the problem, that we all know is going to be a problem, before it can become a problem?”
+
+“Be my guest,” I tell him, “but unless you’re willing to do it, I’m going to give her a chance.”
+
+“I might.”
+
+I shrug. I’d be lying if I said the thought hadn’t crossed my mind as well.
+
+“A slip and fall down a ravine here might be safer than letting her back into a city full of people.”
+
+“I’m aware. Listen, I’m not going to stop you. But I’m also not going to kill her on a maybe. We’d both be dead a hundred times over if that’s the standard we’re using.”
+
+He sighs, but lets his magic fall away, and we being catching back up to the others.
+
+----
+
+“What was that about earlier?” Liam asks later when we’re alone.
+
+“What?”
+
+“The hushed conversation you and Alex were having.”
+
+“Oh. That.” I sigh. “He’s concerned about Lisette.”
+
+“He’s concerned. You’re concerned. I assume Davy is also concerned?”
+
+“Yes.”
+
+“Should I be concerned?” he asks.
+
+“Probably,” I mutter, avoiding his eyes.
+
+“How concerned?”
+
+I debate not answering. I consider not quite lying. Ultimately I decide to just admit where things stand. “Pretty concerned. Alex thinks we’d be smart to kill her now, rather than risk her in a city full of people.”
+
+“Shit.”
+
+“Yeah.”
+
+“And what’s your take?”
+
+“My vote is to give her enough rope to either hang herself, or figure out how to climb back up. But I told Alex if he disagrees, I won’t stop him. For now though, I think he’s willing to wait and see.” I’m quiet for a minute, before finally saying, “People like her are the reason everyone is scared of people like us. Right now, I don’t think there’s anything she wouldn’t do for a little bit more power, and I mean just for the sake of more power.”
+
+----
+
+The next day, we begin to see signs of habitation again. There are small farmsteads and streams of smoke rising from chimneys in the distance. Halfway through the day, we could journey by actual road if we desired, but I’m unwilling to chance it. Based on where we got off the ship, this is the only logical direction we would come from, so if someone is looking for us, that road is the one they would be watching. I don’t know if anyone is, but I feel like we’d be idiots to assume they weren’t.
+
+
+(( Finally make it back to the city ))
+
+
+
+## Part 2
+
+### 13 - Chapter Name TBD

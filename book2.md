@@ -1180,7 +1180,7 @@ I nod. “And Alex?”
 
 “Yeah.”
 
-### 6 - Chapter Name TBD (( come together??? I feel free??? )) ^^3200 words^^
+### 6 - I Want to be Sedated (( come together??? I feel free??? )) ^^3200 words^^
 
 It’s two days later and we’re all riding to the port to board a ship and spend the next month and a half being bored out of our minds.
 
@@ -2146,8 +2146,152 @@ The terrain is rough. We’re not quite bushwhacking, but we’re not far off fr
 
 (( blah blah blah ))
 
-### 10 - Chapter Name TBD
+### 10 - King of Pain ^^2100 words^^
 
 Everyone is tired by the time we stop for the night. I can see the strain in their faces, and I know at least a few of them probably have some blisters that need tending. I leave that for Alex to deal with. He’s not exactly *better* at it than I am insofar as the end result will be the same. But it will hurt less if Alex does it. I’ve never been able to completely stop an injury from hurting while I heal it. Probably because I don’t care. If it hurts, it hurts. Eventually it will stop.
 
-Gavin, Giorgi, and Henry are going off to set some snares. I want to go with them. Instead, I sit down and wait for Lisette.
+Gavin, Giorgi, and Henry are going off to set some snares. I want to go with them. Instead, I sit down and wait for Lisette. A few minutes later she’s standing in front of me.
+
+“Let’s do it,” she says.
+
+“Okay. Sit. I want to explain some things before we do this.”
+
+“Are you going to try to talk me out of it?” she asks.
+
+“No, but I want to make sure you know what you’re signing up for.”
+
+She finally sits down, and as she does, Peter comes over and sits across from us to listen. I ignore him. Liam sits next to Peter, and Alex and Davy come and sit to either side of me. Great. I have an audience. I sigh.
+
+“So first of all, this is going to hurt. Probably a lot.”
+
+“How much is a lot?”
+
+“You remember back in the clearing, in Leisch?” I ask.
+
+She nods.
+
+“What we did there was like a heavily modified version of this. Davy was moving energy through me, and it hurt. A lot. And my meridians, or whatever,” I hate how it sounds saying ‘energy meridians’ aloud, but I don’t have a better term, “are actually… open? I guess. As far as I can tell, yours aren’t. So we need to open them, or maybe create them. I’m not sure. Anyway. I expect that’s going to hurt a lot more. *A lot more.* It will easily be the most painful thing you have ever experienced. And maybe if I had done this before, I could mitigate that. But I haven’t, and I’m not even going to try.” I tell her simply.
+
+“That’s the second thing. It should go without saying, but I’m going to say it anyway, just so we’re clear: I have never done this before. It might work. It might not. It might kill you. But regardless of what the outcome is, I can guarantee it’s going to be painful.
+
+“Here’s the third thing. The thing I really want you to think about before we do this. This is going to bind you to me. Permanently. If it works, it’s going to make it so that I can pull power through you forever.”
+
+“But I’ll also be able to move it through myself?” she asks.
+
+“If it works. Yes. *If* it works.”
+
+“Okay. Let’s do it.”
+
+It’s exactly what I knew she was going to say. Exactly what I was afraid she was going to say.
+
+“Alright. Give me a couple of minutes to talk to Davy and Alex,” I tell her, standing. I jerk my head to the left, and they both follow me as I start moving.
+
+Once the three of us are a couple dozen feet away from the others, I put up a shield to stop our conversation from traveling back to them.
+
+“Is anyone else nervous about how much she wants this?” I ask Davy and Alex.
+
+Alex nods in agreement. “Yes.”
+
+“If someone had just given me that speech, I think I’d have a little bit more hesitancy,” I comment.
+
+“You’re right, and it’s not ideal, but I think you should still do it. She’s what we’ve got to work with. Just make damn sure that connection is a one way connection,” Davy tells me.
+
+I nod, having already thought the same. I’m actually planning on doing one better, and weaving into the magic something that will kill her outright if she tries to draw power from me or otherwise modify the bond. I have enough doubts about this whole thing that I want to be as sure as I can. And it still doesn’t feel sure enough. But I’m still going to do it. Maybe Peter was right. Maybe I do like playing with fire. Maybe I do want to see how close I get with without getting burned.
+
+Eventually I know I’m going to go up in flames though. A great, spectacular conflagration. I just hope this isn’t it.
+
+“Okay. Can I get one of you guys to hold her in place? Still-still. Barely breathing still. I don’t want to have to split my attention doing that as well.”
+
+“Yeah, I’ll do it,” Alex tells me.
+
+“Thanks.” I sigh. “Davy, can you make sure no one interferes? I don’t think anyone will, but just make sure.”
+
+He nods.
+
+“Well, I guess there’s nothing to it but to do it,” I say before letting the shield fall and walking back to Lisette.
+
+I sit back down in front of Lisette. “Alex is going to hold you in place while we do this,” I tell her. “I need to make sure you’re still, and I don’t think you’ll be able to stay still without someone forcing you to.”
+
+I wait for her to nod, and then wait until I feel Alex’s power wrap around her before I take her hands in mine. I close my eyes, and instead of falling backward into myself, like I normally would, I focus on falling inward to the spot where her hands are resting against mine.
+
+From here, I begin the first tentative steps of binding her to me, and send my power questing into her, along where I think her energy meridians should be. And I feel them, but instead of being like paths or grooves throughout her body, they feel like faint cracks. But at least there’s something there to work with. I won’t have to burn them into her from nothing, which might make it hurt a little less, but probably not much. I start pulling power into myself and sending it through my hands into hers, using it to burn the cracks into deep channels, and it feels a lot like burning patterns into wood, only instead of wood, it’s the being of another person. I know if Alex wasn’t holding her locked in place, she would be screaming and thrashing in pain right now. But I keep going. I told her this is what it would be like, and still she asked for it, so I keep going.
+
+I don’t know how long it’s been, or how much longer it’s going to take. I just keep pulling power into myself and using it to burn through her. I feel my own skin growing hot where our hands meet, but I ignore it and continue working. A part of me is distantly aware that Lisette has lost consciousness—which is probably a mercy—though Alex still holds her in place, but I’m nowhere near done.
+
+So far, I’ve just been pushing power into her, etching the pathways that will allow it to flow. Now I begin pulling it through her, and using it to bind her to me, similar to what I did with the deer. I remold parts of Lisette to be more like myself, and force her body to accept the changes I’m making as I do so. I wrap the changes tighter and tighter so that the only way the power can flow is through her and into me. I layer on more magic, so that if Lisette—or anyone else—tries to use the connection to pull power from me, it’ll result in Lisette’s death. I hope it won’t be necessary, but I’m unwilling to chance it so I put more power into that piece than any other part of what I’ve done to her.
+
+Self preservation is real.
+
+Finally, everything is in place, and I hold it there until it sounds like a note being stretched to its breaking point. Then I let it all crystalize and release it. I think I feel reality reshaping itself.
+
+I open my eyes and take a breath. Hold it, then begin pulling power through Lisette, and neither of us dies as I do so. That part of the magic, at least, is solid and stable. We’ll have to see what the rest is like when she wakes up. If she wake up.
+
+“You can let her go, Alex,” I tell him and he catches her as she slumps forward.
+
+I’m not exactly sure how much time has passed, but enough the others have come back from setting snares, and someone built a fire.
+
+“All good?” Liam asks.
+
+“I don’t know. We’ll find out when she wakes up,” I say as I stand. “Giorgi, can you show me how you set the snares?”
+
+“Sure.”
+
+I follow him as he gets up and walks away. About a hundred yards away he stops and kneels in front of a snare, undoing whatever he did to set it up in the first place. He walks me through setting it up, and then hands it to me. It’s impressively simple for something that caught five rabbits. Just some wire looped around itself into a sliding loop, and suspended between two sticks at rabbit level. But once you’re caught in it, tightens down the more you struggle to get free of it. It feels like a metaphor for my life right now.
+
+“Are the snares the only reason we’re out here?” Giorgi finally asks, once I’ve finished resetting it.
+
+“No, but I did want to see how they worked. Where’d you get the wire from?”
+
+“Took it off the ship. Figured it would come in handy.”
+
+I nod. “Can you keep an eye on Lisette for a while? Once she wakes up?”
+
+“Yes. Why?”
+
+“I am… concerned by how desperately she wanted this.”
+
+I don’t bother supplying more detail, and Giorgi doesn’t ask. I’m not sure if that’s because he understands why, or if he doesn’t care, and I don’t care enough to ask. Just as long as someone has eyes on Lisette.
+
+He nods. “I can do that.”
+
+“Thanks. Do we have any food for tonight?”
+
+“Not much.”
+
+I sigh. There’s a deer not far away, but that would be a waste. “Where are the other snares?”
+
+“There are three more further along this game trail.”
+
+I grab his arm and pull him to the side. I force my awareness out of myself until I find some rabbits, and then I encourage them to come down this trail. A few minutes later one comes racing down the trail and hits the snare I’ve just reset. It’s going fast enough that its neck snaps.
+
+“Huh. At least it’s fast,” I say.
+
+“If they hit the snare quickly enough,” Giorgi says with a nod.
+
+“Let’s go get the others.”
+
+His eyebrows lift slightly in surprise. “Are you going to explain how you did that?”
+
+“There are at least seven deer within a mile of us. Can you feel them?”
+
+He shakes his head.
+
+“Figure out how to feel them first, and then I’ll explain.”
+
+“How do I do that?”
+
+“It’s like… if you had eyes and ears all over. You make all of your senses bigger until you can feel where the deer are, almost like if you could just see them in the distance. It’s hard to explain. I think you kind of just have to work it out.”
+
+He nods.
+
+We go get the remaining rabbits, resetting the snares as we do. When we walk back to the others, Gavin and Henry look mildly surprised, but they’re the only ones.
+
+I leave the butchering and cooking of the rabbits to whoever’s willing to do it, and go lean up against Liam who wraps an arm around me. We need tents and some gods damned privacy, but it doesn’t seem like we’re going to have any of that for the next couple of weeks. I sigh.
+
+“Are you okay?” Liam murmurs.
+
+“I don’t know,” I answer softly. “I want to go throw rocks at shit,” I admit. But like the tents, there are no bottles to throw rocks at. There aren’t even any rocks unless I want to waste energy digging them out of the dirt.
+
+There’s not much to say to that, so Liam only nods, and we sit around the fire in silence. I would just as soon keep walking until we get to Branton, even if expending the energy to do so would be stupid. The fact that the others can’t is the only thing really stopping me.
+
+### 11 - Chapter Name TBD

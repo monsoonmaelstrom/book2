@@ -2452,7 +2452,7 @@ I look at Liam, and we both shrug.
 
 I look for Lisette, and find her still fiddling with the knot, but she’s actually close now, and I can’t help but sigh. I really hope I’m wrong, and I’m pretty sure I’m not.
 
-### 12 - It’s Called Freefall
+### 12 - It’s Called Freefall ^^2100 words^^
 
 We spend the next twelve days walking. It’s monotonous, but at least we’re dong something. Lisette peppers me with questions about magic throughout the process. I don’t think I’ve ever spent so much time talking about it in my life. To say she’s infatuated would be understating the matter.
 
@@ -2550,8 +2550,112 @@ I debate not answering. I consider not quite lying. Ultimately I decide to just 
 
 ----
 
-The next day, we begin to see signs of habitation again. There are small farmsteads and streams of smoke rising from chimneys in the distance. Halfway through the day, we could journey by actual road if we desired, but I’m unwilling to chance it. Based on where we got off the ship, this is the only logical direction we would come from, so if someone is looking for us, that road is the one they would be watching. I don’t know if anyone is, but I feel like we’d be idiots to assume they weren’t.
+The next day, we begin to see signs of habitation again. There are small farmsteads and streams of smoke rising from chimneys in the distance. Halfway through the day, we could journey by actual road if we desired, but I’m unwilling to chance it. Based on where we got off the ship, this is the only logical direction we would come from, so if someone is looking for us, that road is the one they would be watching. I don’t know if anyone is, but I feel like we’d be idiots to assume they aren’t.
 
+“No magic,” I tell the others. “At least not until we’re back in Branton. There’s a chance they could use it to find us,” I add, thinking about how Liam’s magic works. And I’m pretty sure I could do it if I tried.
+
+I get nods of acknowledgment from everyone but Lisette. “Lisette?”
+
+“Yeah. Okay. Fine.”
+
+I look at Giorgi only to find him already watching me. He nods.
+
+We both keep a close eye on Lisette for the rest of the day, and the more I watch her, the more certain I become: she’s going to run tonight. If she does, I can’t let her go back to Branton. It’ll be the deciding factor.
+
+She didn’t like it when I called for a moratorium on magic, the same as she didn’t like it when I wouldn’t answer her questions about the pass. She wants to do what she wants to do, and everyone else be damned, and that’s the single most dangerous attitude for her to have. Not necessarily for her, but for everyone around her.
+
+When we stop for the night, I make sure to pick a spot close to Lisette, and I see Giorgi, Alex, and Davy have done the same. Apparently we’re all expecting her to run tonight.
+
+After a bit, Giorgi and Davy both disappear into the woodlands, and Alex and I stay near Lisette.
+
+“So, what’s everyone looking forward to when we get back?” I ask in an attempt to distract Lisette from her own stupidity.
+
+“Beds,” Henry says wistfully.
+
+“Beds are nice,” Peter says, “but I’ll be happy to not spend everyday walking from sunup until sundown.”
+
+“Eating something besides rabbit. If I never eat rabbit again, it’ll be too soon,” Gavin comments.
+
+“You’re not wrong about that,” Alex says, nodding in agreement.
+
+“Lisette? What about you?” I ask.
+
+“I don’t know,” she says, clearly distracted.
+
+I hear Alex sigh.
+
+“What about you, Hazel?” Peter asks.
+
+“It’s a tie between privacy and churros,” I say glancing toward Liam. “I can feel you rolling your eyes, Alex.”
+
+“Yeah, I’ve got to go with privacy,” Liam says.
+
+----
+
+It’s close to two in the morning when Lisette finally makes her move, slinging her pack over her shoulder and creeping away from the rest of us. Once she’s got a bit of a lead on me, I get up and follow her.
+
+“Going somewhere, Lisette?” I ask, once we’re several hundred feet away from the others. I know Giorgi and Davy are still out here somewhere, and I assume Alex is somewhere behind me.
+
+She jerks to a stop, clearly not having realized I was following her. She lets her pack fall from her shoulder as she turns to face me.
+
+“Back to Branton,” she says.
+
+“Well, that’s good since we’re all going there, we can just keep going together.”
+
+“No, I can’t. I need to go now.”
+
+“Why?” I ask her.
+
+“I just do.”
+
+“The magic?”
+
+“I just need to.”
+
+“I can’t let you, Lisette. I really wish I could but I can’t. Do you understand how dangerous you are right now? The magic has been the only thing you’ve been thinking about since you woke up. Even before that, probably. Am I right?” I’m pretty sure I’m right.
+
+“Yes,” she admits.
+
+“Come back and we’ll try to figure something else out.” I honestly don’t even have the faintest idea of what ‘something else’ could be, but I will try to figure it out if she comes back. I know she won’t though.
+
+“No,” she confirms for me, shaking her head.
+
+“I can’t let you go on your own, Lisette,” I reiterate.
+
+Taking the statement for what it is, she starts toward me. Lisette has seven or eight inches on me, and probably a solid sixty pounds. Maybe more. So there’s no hesitation on my part when I draw a knife from its sheathe. I could kill her in a second with magic, but when I told the others no magic, I meant it. I send my right arm back and release the stone I’ve had cupped in my palm throughout the conversation at her head. It hits her just above her left eyebrow, splitting the skin and sending blood streaming into her left eye.
+
+I draw a second knife and close the distance between us. I duck under her arms as I get close and send a knife into her ribs. Unfortunately, it hits bone and skates along, leaving a nasty gash that is definitely not life threatening. I kick out at her right knee as I move past. I hear a popping crunch that definitely sounds like it’s done some damage as I make contact. When I come up though, her right fist slams into my life cheekbone, sending me staggering back a couple of steps before I’m able to rebalance and slide to the side. My head is definitely ringing, and I think the skin on my cheek is split open. But at least whatever blood is coming from the cut is flowing down my face and not into my eye. I move to Lisette’s left hoping for an advantage, and sink a knife into her left side.
+
+When I do, I feel her begin to pull energy into herself. I was hoping to end this before she had a chance to use any magic. I twist the knife in left side then yank it out it as I slide around behind her. Once behind her, I drive both knives into her throat from opposite sides, and release them as she falls to her knees, with blood pulsing darkly from around each knife.
+
+“Fuck,” I mutter softly as I remove the knives and the pulsing blood ebbs to a slow trickle. I wait until I’m reasonably sure she’s gone, and then I plunge a knife into her heart for good measure. I’ve survived wounds I should have been able to before, so I see no reason to chance her doing the same.
+
+I wrap my fingers around her wrist searching for a pulse. When I’ve counted to two hundred without feeling one. I wipe my knives off on her clothes as best I can before sheathing them and rising to my feet.
+
+I see Davy and Giorgi approaching from the south and turn to find Alex waiting to the north. Fuck.
+
+Alex makes it to me first and starts to reach for my face.
+
+“Don’t touch me,” I tell him sharply, and he snatches his hand back.
+
+He tears a piece of cloth from his shirt and hands it to me instead. “It might scar,” he tells me as I press it to my face.
+
+“Yeah, well. It would serve me right,” I mutter darkly.
+
+“For which part? Letting her punch you in the face, or letting her have magic in the first place?” he asks as Davy and Giorgi reach us.
+
+“All of it,” I answer grimly. I’m pissed. “Let’s go back. We all need to move. She started pulling power into her. If anyone was looking for us, she might have just given our position away.”
+
+“What do you want to do with her?” he asks.
+
+“Leave her. We don’t have time.”
+
+“Alright. We’ll sort the others,” Alex says, and Davy and Giorgi nod in agreement.
+
+“Fine,” I say, pressing the cloth into my face a little bit harder. It stings. Serves me gods damned right.
+
+
+### 13 - Chapter Name TBD
 
 (( Finally make it back to the city ))
 
@@ -2559,4 +2663,4 @@ The next day, we begin to see signs of habitation again. There are small farmste
 
 ## Part 2
 
-### 13 - Chapter Name TBD
+### 14 - Chapter Name TBD

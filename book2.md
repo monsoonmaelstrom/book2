@@ -2648,18 +2648,253 @@ He tears a piece of cloth from his shirt and hands it to me instead. “It might
 
 “What do you want to do with her?” he asks.
 
-“Leave her. We don’t have time.”
+“Leave her. We don’t have time. We need to start circling around, and change the direction we’re approaching from.”
 
 “Alright. We’ll sort the others,” Alex says, and Davy and Giorgi nod in agreement.
 
 “Fine,” I say, pressing the cloth into my face a little bit harder. It stings. Serves me gods damned right.
 
+### 13 - The Monster  (( or Bad Guy?? Here ?? )) ^^2200 words^^
 
-### 13 - Chapter Name TBD
+I’m the last one back up the hill to where the others are sleeping. By the time I get there, Alex has woken everyone up, and Davy is barking out instructions. I stand there silently wondering how much blood is visible on my clothing right now. It probably doesn’t matter because I’m sure the streaks on my face are pretty clear. I wish I could get Lisette’s blood off me, but I meant it when I said no magic.
 
-(( Finally make it back to the city ))
+Alex comes over carrying a waterskin. “Hands out,” he orders.
 
+I don’t argue, just hold them in front of me and allow him to pour water over them as I do my best to scrub off the blood.
 
+Fuck.
+
+I notice Davy in the background now talking to Liam as Liam watches me. I close my eyes. Fuck.
+
+“It’s fine, sis.”
+
+It is not fine. Least fine is the fact that except for this last bit, I’d do it all again, because Davy was right. The only thing I would have changed, retrospectively, would have been to slit her throat before she ever woke up. It is so fucking far from fine it’s laughable. I resist the urge though, because the last thing everyone else needs is to see me standing here, covered in Lisette’s blood, laughing. Fuck.
+
+I open my eyes back up. Davy is still talking to Liam. I have no idea what he’s saying, and I can’t quite make myself care right now.
+
+“Alex, we need to move.”
+
+“I know. Another minute isn’t going to hurt anything, Hazel. We don’t know if anyone else is coming, but even if they are, we’ll be gone before they get here.”
+
+“They’re coming,” I tell him.
+
+His eyes flick to mine and see the urgency there.
+
+“Okay,” he says, shoving my pack into my arms. “Everyone up,” he calls out to the others. “We’re going now. No magic and everyone is running.”
+
+I let out a sigh of relief, which quickly dies when I hear someone, I think Henry, ask, “Where’s Lisette?”
+
+“She decided to leave,” someone, maybe me, answers.
+
+----
+
+We been running for over an hour when someone asks if we can stop. I apparently didn’t hear the question the first time it was asked.
+
+“Hazel,” Alex says getting my attention, “do we need to keep running?”
+
+“Yes.”
+
+I’m to the far right of the group. Alex is to my left, and Davy is just ahead of him, and Giorgi is just behind. I think they’re keeping the others away from me, I’m not sure, and I don’t really care. No one has been talking to me, and that’s good enough.
+
+Alex asks the same question again an hour later, and this time I agree that we can slow to a walk. Whatever’s behind us no longer feels quite so imminently threatening.
+
+Sometime later, when the sky has begun to lighten Liam evidently decides enough time has passed and starts to move toward me. Alex, Davy, and even Giorgi all block him out, each of them silently looking to me to decide that I’m ready to deal with him. Finally I notice and nod, and they fall away slightly as Liam edges closer.
+
+“I don’t want to talk about it,” I tell him before he has a chance to ask any questions.
+
+“Okay,” he agrees walking next to me in silence.
+
+We cover the miles throughout the day rapidly, and when we’re within ten or fifteen miles of the city proper, Davy calls a halt, and spends a few minutes talking with Liam and Peter. Alex stays near me, and Giorgi is talking to Gavin and Henry. I think he’s trying to keep them from asking me questions which, if so, I appreciate. I’m going to have to thank him later. It’s bound to be awkward. I sigh.
+
+“You know Liam wants to talk to you,” Alex says softly.
+
+“Yeah.”
+
+“Are you going to let him?”
+
+I shrug. “I don’t want to talk about it.”
+
+“I didn’t say he wants to talk about it,” Alex says. “I said he wants to talk *to* you, sis. There’s a difference.”
+
+“Is there? I can’t imagine what else he would want to talk about.”
+
+Alex sighs, and it somehow feels reproachful.
+
+I don’t care. “I want a bath,” I tell him.
+
+“Yeah. I think Davy’s working on that.”
+
+“Good.” It actually sounds like the best news I’ve heard all month.
+
+Eventually Davy and Peter head off, and Liam comes back toward Alex and me. As soon as he sits down, Alex gets up and leaves. Great.
+
+“How’s your face?” Liam finally asks after several minutes.
+
+“Fine. It hurts. But I’ll live.” It’s more than I can say for Lisette. I sigh.
+
+“Is any of the blood on your clothes yours?”
+
+I look down at myself. You can clearly see the rust colored splotches staining my clothes in the daylight. Damn.
+
+“Not much.”
+
+“Okay. Good. Are *you* okay?”
+
+“I want a bath,” I say, not answering the question.
+
+“Yeah. Okay,” Liam says with a hint of resignation as he reaches out and takes my hands in his.
+
+I want to yank them away. I’m sure Lisette’s blood is still caked under my fingernails and around my cuticles. But I don’t. Instead I focus on locking down the nausea that’s coursing through me and drop my head to rest on my forearms. I am so damn tired. The realization catches me off guard. And there’s nothing I can do about it. Just like there’s nothing I can do about the blood that has long since dried hard and stiff across my clothes and skin.
+
+“Did Davy say how long he was going to be gone?” I ask suddenly.
+
+“No,” Liam says.
+
+I want to scream.
+
+“Hey, Hazel!” I hear Alex call.
+
+“What?” I grate out.
+
+“You good?”
+
+“No. No, I am not fucking good. I need damned bath.”
+
+“Here,” Henry says, digging through his pack and pulling out clothes that are cleaner than the ones I’m wearing.
+
+He hands them to Alex who brings them to me. I’m already stripping off everything I’m wearing before Alex is halfway between us. I yank on Henry’s clothes as Alex hands them to me, and I feel marginally better now that I’m not sitting in clothes caked with Lisette’s blood.
+
+“Thanks,” I manage, and I see Henry nod.
+
+“Better?” Alex asks, clearly concerned.
+
+I nod, “A bit, yeah.”
+
+“Okay. I know it sucks, but I need you to sit here, be still, and keep your shit together, Hazel,” he tells me.
+
+“I know,” I say quietly.
+
+“Liam, talk *to* her,” Alex says. “Tell her about… I don’t know. Your first kiss,” Alex says waving distractedly.
+
+“Oh,” Gavin says. “Lucy Davis.”
+
+“Shut up, Gavin,” Liam tells him.
+
+“No, this is good,” Alex interjects. “Keep talking, Gavin.”
+
+Gavin smirks as he makes his way toward us. “You were what? Fifteen?” Gavin asks waiting for Liam to respond, but Liam just sighs, so Gavin continues. “Anyway, she was a neighborhood girl that lived near him, and he’d had a crush on her since he came to Branton. For four years he mooned over Lucy Davis.
+
+“Lucy Davis, who was a bit of a… How would you describe her, Giorgi?”
+
+“Bitch,” Giorgi supplies succinctly.
+
+“Yeah. That. But it didn’t matter. Liam was *completely* infatuated with her. Anyway, he walks her home one evening, and they get to the top of the steps in front of her door, and Liam finally decides to make a move, and kiss her. When he does, she shoves him, and he goes flying down the steps and cracks his head on the flagstones below. Giorgi and I had to carry him home, blood pouring from the back of his head.
+
+“When we got back, his grandma assumed it was our fault, that we’d done something that ended up getting him hurt, and he had to explain that it wasn’t us, it was *Lucy*, which of course meant he had to explain the details because she wasn’t just going to leave it alone at that,” Gavin says laughing.
+
+“Tell her the rest,” Giorgi says.
+
+“Please don’t,” Liam contradicts.
+
+Gavin looks between Liam and Giorgi for a moment, when Giorgi repeats, “Tell her.”
+
+“The next day,” Gavin says, evidently having decided to listen to Giorgi, “Liam, being Liam, goes around to apologize to Lucy. And Lucy not only tells him that she’s not interested in him, but that she was never interested in him, and was only hanging around Liam because it meant she got to hang around us.”
+
+“Around Gavin,” Giorgi clarifies.
+
+“Ah,” I say at the same time, I hear Alex mutter, “Ouch,” from a few feet away.
+
+“Thanks,” Liam says, clearly annoyed. “Definitely appreciate reliving that.”
+
+“Hazel, are you feeling better or worse than you were ten minutes ago?” Alex asks.
+
+“Better,” I admit.
+
+“Fine,” Liam grumbles as Alex stares at him.
+
+“First kisses are never good,” I tell Liam.
+
+“Not usually that bad though,” Giorgi remarks, continuing to rib Liam.
+
+----
+
+About an hour later Peter comes back without Davy. Somehow, Davy managed to get rooms at an inn a couple of miles away. Peter takes us there. I’m not sure where Davy has gone. Alex has been talking to Peter so he probably knows.
+
+Eventually, Alex comes and talks to Liam. I ignore them both. Unless they’re discussing the logistics of baths, I don’t care. And the logistics of baths are that I get a bath, and if there’s a limited number of baths to be had, I get a bath *first*. I don’t think anyone will argue with me. Once again, the thought has me wanting to burst out laughing, and once again, I suppress the urge because I’m pretty sure there are rules somewhere. And the rules probably state that there’s at least a twenty four hour moratorium on laughter after your hands have been covered in someone else’s blood.
+
+The next time I focus on my surroundings instead of my internal dialog, we’re walking up a staircase. Alex and Liam are still talking. Or talking again? Who knows.
+
+A door opens, and Liam’s hand is on my back, pushing me through it. Mercifully, there’s a tub full of water already in the room.
+
+“Davy had them bring the water,” Liam tells me after the door shuts as I’m stripping off my clothes and stepping into it.
+
+The water is only slightly warmer than room temperature, but I don’t care.
+
+“Davy will be back soon with new clothes, and Alex is going to bring some food.”
+
+“Okay,” I say and then I sink below water.
+
+I count to a hundred. I consider the merits of trying for another hundred before coming up for air, but that would probably be stupid. The water runs down my face stinging the cut my cheek as I break the surface and take a breath.
+
+What a fucking disaster.
+
+I must have said it out loud because Liam is saying, “Yeah, it’s not great.”
+
+“Shit. She was your friend,” I mutter. Liam’s friend, and Henry’s. Gavin’s, Giorgi’s… She was everyone’s friend.
+
+“She was your friend too,” Liam says as I sink back beneath the water and finally let out the scream I’ve been repressing for the last several hours.
+
+I begin the process of incorporating this new knowledge into what I know about myself, and it is not going well for me. Liam finally reaches into the tub and pulls me up. Apparently he was counting too.
+
+“For what it’s worth,” he says, “you made the least bad decision.”
+
+I nod because I know it’s true. I’ve known it was true for days, and somehow I like it even less now than I did three days ago.
+
+“Alex brought food. Get out of the tub and eat something,” Liam tells me, handing me a towel.
+
+Halfway through eating what Liam has handed me, a knock comes on the door. Liam gets up and answers it. He talks for a minute, takes something and closes the door.
+
+“Here, new clothes.”
+
+Once I’ve finished eating and have dressed, Liam opens the door again. Davy comes in.
+
+“Davy’s going to hang out here with you while I go get cleaned up,” Liam says.
+
+I roll my eyes. “I’m fine.”
+
+“I know, but Davy wants to talk to you.”
+
+“Whatever,” I huff. “You should keep the beard,” I tell Liam as he walks out the door.
+
+“Thanks for the bath. And the clothes,” I say to Davy once the door has latched shut.
+
+He nods. “You could have let Lisette get to Giorgi or me.”
+
+“I know, but she was my mess.”
+
+“She was as much my mess as yours,” Davy says.
+
+“Maybe,” I shrug. “Maybe not.”
+
+“You were right,” Davy says.
+
+“About what?”
+
+“They’re looking for us.”
+
+“Yeah, I know.”
+
+“How?”
+
+“It’s the most logical course of action. It’s what I would do,” I shrug.
+
+“Okay,” Davy stands. “Be nice to Liam,” he tells me as he moves to the door. “He’s worried about you.”
+
+“When am I ever not nice to Liam?”
+
+Davy laughs.
+
+“Piss off, Davy,” I tell him as he leaves the room.
 
 ## Part 2
 

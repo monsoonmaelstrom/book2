@@ -2652,7 +2652,7 @@ He tears a piece of cloth from his shirt and hands it to me instead. “It might
 
 “Fine,” I say, pressing the cloth into my face a little bit harder. It stings. Serves me gods damned right.
 
-### 13 - The Monster  (( or Bad Guy?? Here ?? )) ^^2200 words^^
+### 13 - The Monster ^^2200 words^^
 
 I’m the last one back up the hill to where the others are sleeping. By the time I get there, Alex has woken everyone up, and Davy is barking out instructions. I stand there silently wondering how much blood is visible on my clothing right now. It probably doesn’t matter because I’m sure the streaks on my face are pretty clear. I wish I could get Lisette’s blood off me, but I meant it when I said no magic.
 
@@ -2894,6 +2894,463 @@ Davy laughs.
 
 “Piss off, Davy,” I tell him as he leaves the room.
 
+### 14 - Ninety-Nine Problems
+
+I lie in bed, curled next to Liam for what feels like hours, before finally giving up. Luckily, a defining characteristic of buildings everywhere is rooftops. I open the window and am able to stand on the sill and reach the eaves of the rooftop enough to use it pull myself up and over the edge. Definitely not the easiest maneuver, but I manage it.
+
+The night air is cool with the last hints of winter giving way to spring and it’s quiet. I lie back on the roof and stare up at the stars. I’m dreading tomorrow. My mother probably arrived in the Branton at least two weeks ago, and who knows what she’s been doing since. And it’s almost guaranteed Iverson knows about me, and knows that she’s back, which means both of them are going to be looking for me. Her return is probably also going to accelerate Dairuvar’s overall aggression toward the other polities, making war virtually a foregone conclusion. Add the fucking war college to that, who will definitely being looking for Liam, Henry and me—both behalf of themselves, but likely also at General Iverson’s bequest—and it’s going to be a nightmare.
+
+I wish there was someone else like me. We need to test out exactly how well and how precisely magic can be sensed, especially in a crowded area like a city, but we basically need two of me to do that, and the closest we have is a combination of me and Alex, and me and Liam. Even conducting the tests has risks—mostly that someone figures out where we are, which would be… bad. Very, very bad. So until we have some idea of what’s going to get us caught, all magic needs to be done with the lightest of touches, and even that will still be akin to playing with fire.
+
+So yeah. We’ll only be hunted by two polities and the Allied Polities’ War College. And if they find out I killed Lisette… Or *why* I killed Lisette.
+
+I am so fucked.
+
+I hear a scuff on the roof behind me, and assume it’s Alex or Davy, until Liam sits down next to me and I do a double take.
+
+“What are you doing up here?” I ask.
+
+“You’re up here.”
+
+“Yeah, but… How did you get up here?”
+
+“Probably the same way you did. From the window,” he tells me.
+
+“*You* climbed out the window?”
+
+Liam nods.
+
+“I promise I’m okay. You don’t have to sit up here with me.”
+
+“I know. Do you want me to leave?” he asks, and I hear more than a hint of vulnerability in the question.
+
+“No,” I answer honestly. “I want you to stay, but only if you’re actually okay being up here.”
+
+He interlaces his fingers with mine in response. “What are you thinking about?”
+
+I sigh. “There are so many problems, and I don’t see any good solutions. Dairuvar is going to be hunting for me. My mother is going to be hunting for me. The war college is going to be hunting for all us, and if they find out about Lisette—”
+
+“They won’t.”
+
+“They might. If they do, that would be just as bad. My mother and Iverson are going to start a war. It feels like I’m the fulcrum that it’s all balanced on.”
+
+“Hazel,” Liam scoffs.
+
+“What?”
+
+“Dairuvar was always going to start a war. That doesn’t have anything to do with you. It barely even has anything to do with Alexandria.”
+
+I sigh, but he has a point.
+
+“But yes, your mother, Iverson, and the war college are problems, though possibly not insurmountable ones.”
+
+“How do you figure? Unless I kill both of them, and probably Christine too, I don’t really see a solution.”
+
+“Give me a couple days. In the meantime, the war college at least will have no idea that we’re back. I don’t think Iverson will tell them. As far as they’re concerned we’ll still be somewhere in the mountains. When it comes time to tell them anything, we’ll tell them Lisette died in the pass.”
+
+“What about Amelia?” I ask. “She’ll have been back for a couple of weeks, and she knows Lisette didn’t die in the pass.”
+
+“Yeah, she’s the biggest possible snag. If we’re lucky, she’ll still be with your mother and Michael. Her family wanted them both to learn magic, so there’s a good chance she’s still with them.”
+
+“Then what? We abduct her? Lure her away somehow? How? I can’t do it, you definitely can’t do it. Alex and Davy are out of the question too.”
+
+“Peter,” he says simply.
+
+“She hates Peter.”
+
+“She’s impulsive. He can probably get her away from your mother one way or another. And he’s apparently good at memories.”
+
+“And you’re good at suggestions,” I mutter. “It could work. Maybe. If we’re really, really lucky.” I don’t think we’re that lucky, but I don’t say it out loud. Who knows, maybe after the terrible run of luck it feels like I’ve had lately…
+
+“It’s a whole lot of maybes, Liam.”
+
+“Well, if it doesn’t work, I guess we can go back to considering whether or not we want to kill off half the ruling families.”
+
+I can’t tell if he’s serious or not, but I think he might be.
+
+(( add a bit about getting Hazel’s copy of the key ))
+
+“Okay.” I lean my head against his shoulder. “Are you going to be able to get back down or do I need to find a ladder?”
+
+“I’ll figure it out,” he tells me, but sounds a little uncertain as he says it.
+
+----
+
+The next morning over breakfast Liam explains the situation with Amelia to Peter. Of course Peter understands right away why we need to talk with her.
+
+“She might not want to come,” Peter tells us.
+
+“Yeah, that’s what I said.”
+
+“You’ll figure it out,” Liam tells him.
+
+Peter sighs. “I’m taking Gavin and Giorgi.”
+
+Liam nods.
+
+“Do you think Davy could find us some horses?” Peter asks me. He’s clearly trying to get rid of me, since he could just go ask Davy himself, but I’ll play along.
+
+“I’ll go ask him,” I say as I stand up and leave the two of them alone.
+
+I head up the stairs and realize I have no idea what room anyone else is in. I knock on the door across the hall from ours hoping for the best. Gavin answers.
+
+“Hey Gavin, do you know which room Davy is in?”
+
+“Next door,” he tells me.
+
+“Thanks. Peter and Liam are downstairs. I think they want to talk to you and Giorgi,” I say as I head to the next door.
+
+Davy opens the door right as I reach it and lift my hand to knock.
+
+“Congratulations,” he says looking at me. “You look like a person again today.”
+
+“Yeah, well.” I shrug. “New day, new me, new problems. Peter wants to know if you can figure out how to acquire a few horses.”
+
+“You’re running errands for Peter, now?” Davy asks skeptically.
+
+“I’m being nice to Liam.”
+
+Davy rolls his eyes.
+
+“Liam has a plan. Peter is helping,” I explain.
+
+“A plan?”
+
+“Yeah, to make so that we’re not—so that I’m not—being hunted by the war college, Iverson, and my mother simultaneously. You’ll have to talk to him about the finer details, but right now, Peter wants three horses.”
+
+“When?” Davy asks.
+
+“Now, probably.”
+
+“I’m not a miracle worker,” Davy sighs. “I’ll go talk to him.”
+
+I follow along because I’ve got nothing better going on.
+
+(( blah blah blah - needs work, idk ))
+
 ## Part 2
 
-### 14 - Chapter Name TBD
+### 15 - It Wasn’t Me/Anti-Hero ^^2200 words^^
+
+Liam, Henry, Davy, Alex and I reenter the city on foot alone, and even though this puts us in closer physical proximity to all of the people and things I’m most concerned about, I still feel better.
+
+Apparently at some point over the last five years, and I couldn’t even say when it happened, I started to actually consider Branton home, and not just a place I’m currently living. I think it helps that it’s one of the places I never lived, or even visited, as a child. I don’t have a whole host of negative memories associated with it. There’s also the fact that it, like Corriven, is not the territory of any polity. It simultaneously belongs to all of them and none of them. It is effectively a free city-state.
+
+The war college, is similar. Each polity has its own standing army—collectively referred to as the armies of the Allied Polities—and then there is the Army of the Allied Polities. When there is an external threat, the armies of the Allied Polities fall under the command of the Army of the Allied Polities so that it acts as one cohesive force. After the threat has been addressed, the armies of the allied polities return to their individual polity’s command. This allows the Army of the Allied Polities to expand and contract as needed, while possessing the ability to have a trained military force during times that call for rapid expansion. However, this really only works for external threats, hence, the term ‘allied’. If you have an internal threat, you still end up with what is functionally a civil war. And Dairuvar no longer wants an alliance. They want an empire.
+
+However, despite General Iverson having assumed the role of commanding General of the Army of the Allied Polities—something which never should have been permitted, as far as any reasonable thinking person is concerned, since he’s also the ruler of Dairuvar polity—the Army of the Allied Polities doesn’t maintain standing forces in individual polities, and according to a variety of treaties and other legal documents, it *can’t*. Effectively, this means that as long as I am officially a student of the war college or a member of the Army of the Allied Polities, neither General Iverson nor my mother can legally force me to Dairuvar. It’s a small protection, but it *is* a protection. That’s assuming that I can go back to the war college, and they don’t end up hunting me as well.
+
+There are, however, some hiccups to this plan. Amelia is one. I’m the other one. Or at least my historical decisions are. To be fair, I only learned the finer details surrounding Liam’s plan, and the legalities related to the Army of the Allied Polities this morning. On our walk here. To this pub. Where we’re currently sitting. And I’m trying to figure out how to broach the topic of why I wasn’t already aware of said legalities.
+
+Davy knows. Davy has been side-eyeing me since the second he heard the broad strokes of what Liam has planned. If Alex had spent half a second thinking about it, he probably would have just told Liam outright about the flaw in his plan. The flaw also known as Hazel Raidane, the person to whom rules are more of a suggestion of things you *should* do, under *ideal* circumstances, rather than things you *must* do, under *all* circumstances.
+
+I’ve been sitting at the table, tapping the side of my half full glass of beer for a solid ten minutes, trying to figure out the best way to say it when Peter, Gavin, Giorgi walk in and wedge themselves around our table, and call for three more beers.
+
+“Amelia and Michael are still with Alexandria,” Peter confirms.
+
+“Well, that’s good news,” Liam says grinning.
+
+I accelerate the rate at which I’m tapping my glass slightly and Davy props an elbow on the table and leans his chin on his fist, staring at me. I note his stare and sigh.
+
+“What’s up with you two?” Gavin asks, looking between me and Davy.
+
+“I don’t know, Hazel,” Davy says, “what’s up with us?”
+
+I sigh again. Once definitely wasn’t enough.
+
+“There, uh, may be something I have neglected to mention.”
+
+“Do go on, cousin. Tell them all what you have neglected to mention,” Davy states flatly, clearly annoyed with me. In his defense, he did tell me. And I didn’t listen. I believe my exact words may have been, ‘It’ll be fine. No one *ever* checks these things.’
+
+“Fine, you were right, Davy. I was wrong.” Best to start with that. “So. Um. Most of what you said this morning was news to me, Liam.”
+
+“What do you mean?” Liam asks.
+
+“The stuff about the treaties and how the Army of the Allied Polities may be officially allocated and dispersed, or whatever…”
+
+Liam looks confused. Henry and Gavin look confused. But I can tell Alex just worked it out, and it looks like Peter and Giorgi are just about there too.
+
+Alex bursts out laughing. “You didn’t, except you’re you, so of course you did! Nice, sis.”
+
+I shrug.
+
+“How could you not know that?” Henry asks. “Everyone knows that.”
+
+“Everyone who ends up at the war college would know that,” Peter says. “Because to end up there you have to have already been in one of the polities’ armies and transferred to Army of the Allied Polities—officially—prior to attending the war college. At which point they would have made it abundantly clear. You probably have to sign something in triplicate asserting that you understand.”
+
+“Yeah. That,” I say draining my glass. “Or not that, depending on your perspective.”
+
+Giorgi starts laughing.
+
+“Hazel,” Liam growls, “where were you before the war college?”
+
+“Oh, you know. Here. In Branton,” I shrug, and wave at the barman to bring me another round.
+
+“And how exactly did you end up at the war college?”
+
+I wait until the barman comes and sets another pint in front of me. Finally, I say, “I sort of decided that it seemed like a good place to hide in plain sight and keep track of what was happening.”
+
+“How?”
+
+“I mean… orders and enrollment documents are just paper. If you know what the paper looks like it’s pretty easy to add one more that looks like all the rest and says, ‘Hazel Raidane’,” I say with a shrug.
+
+“So you forged your way into the war college?” Liam hisses.
+
+Gavin is laughing now too, and Henry’s eyes have gone big.
+
+“Yes?” I say, like it’s a question whose answer I am unsure of and that will somehow make it less wrong, when that is in fact exactly what I did. “In my defense, it seemed like a good idea at the time.”
+
+“I told you it wasn’t a good idea at the time,” Davy remarks.
+
+“Yeah, well, it *was* working out just fine until all of this.”
+
+Giorgi and Gavin are still laughing. Peter looks like he has a headache, and Henry looks like he has no idea who I am. Liam looks… irate.
+
+“And no one noticed?” Peter asks like he can’t believe it.
+
+“No. It was easy. Just be quiet, do what everyone else is doing, and blend in. That’s all fitting in anywhere ever is,” I shrug.
+
+“Cheers,” Alex says clinking his glass against mine. “Say one thing about our childhood. Say we can fit the fuck in.”
+
+I grin.
+
+“Jokes. You two have jokes right now?” Liam asks incredulously.
+
+We both shrug.
+
+“It’s not like I can undo it.”
+
+Liam looks like he has a headache now too.
+
+“Okay, so the papers you forged,” Liam says, going into damage control, “where did they *say* you were before coming to the war college?”
+
+“Firgasu.” It was as close to the truth as anything, and all good lies are built on as much truth as you can manage.
+
+“Well, at least that’s something,” Liam mutters. “But it still complicates pretty much everything. I think we’re going to need Amelia on our side, and I’m not sure how realistic a goal that is. No one might have looked to hard at your paperwork before, Hazel, but they damn well might now.”
+
+“You think she can convince her family to amend their records?”
+
+“I think she can, but I have no idea if she will,” Liam says.
+
+“And what do we tell her about Lisette? The truth?” I’m skeptical that will go over well.
+
+“Maybe,” Davy says. “I mean, her family is more interested in stopping Iverson than anything else, and they all do think you’re the key to that,” he shrugs.
+
+“Based on the words of a madwoman,” I mutter, as I take another drink.
+
+“Yeah, well. We work with what we’ve got, and that’s not much right now.”
+
+“Fine. How are we going to get her away from my mother?” I ask Peter.
+
+He shrugs. “I don’t know. I’ll do something to piss her off, and then we’ll go from there, I guess,” he says taking a sip of his drink.
+
+I look at Liam, “I think he’s even worse at planning than I am.”
+
+Liam looks between us and sighs. “Do you think you can get her to come back here with you?” he finally asks Peter.
+
+“Probably.”
+
+“Okay.”
+
+----
+
+It’s been at least two and a half hours since Peter left with Giorgi and Gavin again. I have long since grown bored and managed to work my way into another table’s poker game using the remainder of the money I lifted from someone’s pocket on the way into town, combined with what Alex had. I didn’t see Alex pick anyone’s pocket, but I’m pretty sure he did. Just like I’m pretty sure he didn’t see me pick anyone’s pocket. But based on the look he gave me when it came time to pay for the first round of drinks and the two of us were the only ones with money, I’m pretty sure he knows I did too. Cheers. It’s not something I make a habit of, but needs must and all that. Except for Davy, who knows us both well enough, I’m not sure where the others think the money came from. But they haven’t asked so I haven’t said.
+
+Now I’m working on getting some more the honest way. Or at least the slightly less dishonest way. I’ve managed to increase what I started with tenfold by the time Peter walks back in with Gavin, Giorgi, and Amelia in tow. So even though I’m forced to bow out of the game, at least we can all eat tonight and I can pay the remainder of our tab. I take what I’ve won and return to my own table with the intent of letting someone other than me do the talking.
+
+“Hey Amelia,” I say as I sit down.
+
+“I can’t believe you guys left us,” she says.
+
+“We don’t even get a ‘hello’ before you start berating us?”
+
+“You should have heard her the entire way here,” Peter mutters. “You owe me,” he says as he flags down the barman.
+
+“Do I?” I ask him seriously.
+
+“Fine. But I still want a drink and it looks like you’ve got all the money, as usual.”
+
+“Yeah, sure,” I say, the raising my voice so the barman will hear me, “Another round for the table.”
+
+“You left us,” Amelia says again.
+
+“Blame Michael,” I tell her.
+
+“How is it Michael’s fault?” she asks hotly.
+
+“He is, or at least was—but I see no reason to expect that it’s changed—sleeping with Christine. And the very first thing we told him when she came on board was not to.”
+
+“He’s… You’re kidding, right?” she asks in disbelief.
+
+“No, I’m amazed you haven’t noticed. Ask him.”
+
+“I will,” she says decisively. “What do you all want? And where is Lisette?”
+
+I take that as my cue to let someone else do the talking.
+
+“Lisette’s dead,” Alex says before anyone else has the chance to speak.
+
+“What? How?” she asks looking more surprised than upset by the news.
+
+“You remember how we told you all that magic could go sideways fast?” Alex asks.
+
+Amelia nods.
+
+“Well, it went sideways for Lisette,” he says.
+
+It’s technically true. Nicely done, Alex.
+
+“Well, damn,” Amelia mutters.
+
+“As for your first question, we need your help,” Liam tells her.
+
+“With?” Amelia asks suspiciously.
+
+“Me,” I admit, when Liam looks at me. “I forged the documents for my enrollment into the war college. We need your family to create the records supporting those documents.”
+
+“Why would they want to help you with that?”
+
+“It’s honestly the best way to limit Dairuvar’s access to Hazel, which is to the benefit of all of Firgasu, if you believe Alexandria,” Liam tells her.
+
+“I’ll think about it,” Amelia says.
+
+“Well think fast,” Liam tells her, “because we all, you included, need to go back and as soon as we do, it’s going to start the clock.”
+
+“Fine. I’ll write them. What do the records need to say?”
+
+### 16 - Chapter Name TBD
+
+Alex, Giorgi, and I broke off from the others after Amelia left. I need to retrieve the copy of Liam’s key I made what feels like forever ago. Fortunately, I didn’t leave it in my room at the college, unfortunately I left it at Davy’s. Well, wedged into some of the brickwork near the roof of his building. I think there’s a solid chance that someone could be watching Davy’s flat, which is why I’m bringing Alex and Giorgi with me. Alex had basically been living at Davy’s before we left, so hopefully he’ll notice anything out of the ordinary that I might miss. And no one should really be looking for Giorgi at all. I didn’t bring Davy because supposedly, Iverson wants Davy and me, so at least this way if it all goes pear shaped he doesn’t get both of us.
+
+We’ve been watching the building from a rooftop a couple of blocks away for about half an hour, and haven’t seen anything. As far as any of us can tell, everything is completely normal. I don’t buy it though. If I was Iverson, or even my mother, I would have found this place and I would be watching it. Davy and I did our best to not be noticed, but it’s not like we were ghosts. I’m sure we left traces of ourselves all over the city that someone could find if they really wanted to.
+
+“What do you think?” Alex asks.
+
+I sigh. “I don’t like it. Giorgi, what do you think about going to knock on the door?”
+
+“Yeah, I could do that,” he says with a shrug.
+
+“Be ready to talk yourself out of it. Or run,” Alex tells him.
+
+Giorgi nods and disappears over the side of the building. A few minutes later, I see him approaching the building.
+
+“Curtains just moved,” Alex notes.
+
+“Damn.”
+
+Giorgi knocks but no one answers so he starts banging on the door. I think he’s shouting too, but whoever is in the flat isn’t taking the bait. After a few minutes Giorgi gives up and walks away.
+
+It’s another fifteen minutes before he shows back up on the rooftop.
+
+“Pretty sure there’s someone in there,” he tells us.
+
+“Yeah, I saw the curtains move,” Alex says. “What do you want to do, Hazel?”
+
+“I still need to get that key. I’ll circle around a few blocks and go across the rooftops.”
+
+“They’ll hear you when you hit the roof,” Alex tells me.
+
+I want to argue the point, that he didn’t hear me when I was on the roof, but I climbed up that time, I didn’t jump onto the roof.
+
+“Do you have a better idea?” I ask.
+
+“How mad do you think Davy would be about the windows?” Giorgi asks.
+
+“What do you have in mind?”
+
+“I was already there making a scene. I could go back and make a bigger one.” Giorgi shrugs. “Throw a brick or two through the windows. If we time it right, it will cover up any noise you’ll make when you land on the roof.”
+
+“That could work. What do you think, Alex?”
+
+“I think we need some bricks.”
+
+I nod. “Give me ten or fifteen minutes.”
+
+There aren’t any loose bricks sitting on this rooftop, but it shouldn’t be hard to find some. One of the buildings around here is bound to have some. It’s one of those things I’m running into all the time: piles of bricks left abandoned on rooftops. I guess the builders always think they’ll need more bricks than they do, and then when they don’t use them all, they just leave them rather than carrying them back down.That, or they want mayhem makers to be well equipped.
+
+I find what I’m looking for on the third rooftop I check. I manage to fit eight bricks in my bag. Should be more than enough. Hopefully.
+
+I make my way back to Alex and Giorgi and hand Giorgi my bag.
+
+“I’ll circle around, and come over the rooftops until I get to that building, I say pointing at the one closest to Davy’s. Once I get there, I’ll wait until you make your way back to Davy’s. Throw the first brick, and I when I hear it hit I’ll count to five and then jump. You throw a second brick at the same time. With any luck, they’ll never notice I was up there.”
+
+Giorgi nods.
+
+“I’ll signal if I see anything, Hazel. If I do, leave the key and run,” Alex tells me.
+
+“Okay,” I agree.
+
+----
+
+I’m waiting on the roof of the building next to Davy’s. Listening for the sound of the first brick. So far, it’s all quiet. A few minutes go by, and then I hear shouting followed by the tinkling sound of glass shattering.
+
+*One.* The shouting resumes. *Two.* Giorgi really knows how to put on a show. *Three.* I think he may have missed his calling as an actor. *Four.* Here goes nothing. *Five.* I jump. It sounds like the second brick hit the same moment as my feet. I hold still for a moment as the shouting resumes, and then begin creeping across the roof. I make it to the far side, and lean over the edge of the roof to the side of the building where there are some loose bricks. I gently pry them out, one by one, then grab the key. I don’t bother putting the bricks back. I just creep back and jump back to the building I came from. Giorgi has stopped shouting, so I make my exit as quickly as I can.
+
+By the time I make it back to the roof where we left Alex, Giorgi is already there.
+
+“All good?” Alex asks.
+
+“Yeah. Now we just need to make sure we’re not followed.”
+
+“Any idea who was in the house?”
+
+“No. Giorgi?”
+
+He shakes his head.
+
+“Okay, let’s go.”
+
+----
+
+We spend a few hours circling around the city, going over rooftops and through buildings. Sometimes just standing on inside an entry way for ten or fifteen minutes at a stretch. We separate and come back together a few times, and as far as any of us can tell, no one is following us.
+
+Eventually we meet back up with the others, who left Gavin waiting to tell us that they relocated to a twenty-four hour cafe several blocks away.
+
+“Did you know your brother’s a surprisingly good actor?” I ask Gavin as we walk. “He plays the part of ‘angry man with brick’ surprisingly well.”
+
+“Can’t say I’m surprised. So you were right then? Someone was watching the building?”
+
+“Yeah. They didn’t seem to know who Giorgi was, though. At least not by sight.”
+
+We walk in silence for a bit until we reach the cafe.
+
+Everyone is sitting around drinking coffee when we walk in and I’m not sure I’ve ever been so jealous in my life. It feels like forever since I’ve had a cup of coffee.
+
+“Alright, we can go,” I say to everyone.
+
+“Or we can sit,” Alex says. “And we can all eat something too, since I’m guessing there’s not a stocked kitchen where we’re going.”
+
+Liam shakes his head when he notices Alex looking at him.
+
+“Fine,” I grumble.
+
+(( does this suck??? Possibly ))
+
+“Did you eat yet, Gavin?” Alex asks.
+
+“Not yet, but even if I had. I could always eat again.”
+
+Alex comes back and hands out menus. “They have french toast, Hazel.”
+
+(( blah blah blah ))
+
+----
+
+
+
+
+
+
+
+
+
+----
+
+Things that need to happen:
+
+1. Go to the flat
+2. Figure out how to undo Alexandria’s magic on Liam
+3. Go back to the war college
+4. Peter double agent???
+5. Visit Reese for answers
+6. Get captured

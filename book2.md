@@ -228,7 +228,7 @@ He grins. “It was worth it. And who knows, maybe she’ll be less… Whatever 
 
 “I don’t know. Maybe sixty, forty?” He sighs. “I honestly have no clue.”
 
-### 2 - Where Is My Mind? ^^2000 words^^
+### 2 - That’s Not My Name ^^2000 words^^
 
 Early the next morning, I have Lisette, Gavin, Giorgi, and Henry standing knee deep in a broad shallow stream a few miles from the house. Fire’s not really any harder than anything else, but it’s a whole lot more dangerous and destructive than most things. Hence the stream. But it’s fucking cold this early in the morning.
 
@@ -3438,7 +3438,7 @@ Liam nods.
 
 Liam shrugs. “Never needed any. No one actually lives here.”
 
-### 17 - Get Over It ^^1900 words^^
+### 17 - Get Over It ^^3400 words^^
 
 The next morning I’m up early sitting on the rooftop, watching the sunrise over the city. I only slept a couple of hours. Liam finds me after I’ve been out there for about thirty minutes.
 
@@ -3662,7 +3662,7 @@ He shrugs. “We can ask her once the others get here, if you want.”
 
 “Well, let’s hope not.”
 
-### 18 - Chapter Name TBD ^^1400 words^^
+----
 
 Another hour goes by before Alex, Davy, and Liam arrive. I’ve long since finished off the churros when they take a seat on the blanket with us.
 
@@ -3838,7 +3838,7 @@ Liam sighs. “You’re not making this easy.”
 
 “Yeah, well, neither are you. It’s the best I can do for now.”
 
-### 19 - Chapter Name TBD
+### 18 - The Waiting  ((??? Could be something better )) ^^2100 words^^
 
 I spend the next day sequestered in the flat with Davy and Alex, trying to figure out the key.
 
@@ -3877,6 +3877,123 @@ Alex shrugs.
 “Let’s just focus on the key,” I finally say.
 
 “Yes. Let’s,” Davy adds.
+
+(( blah blah blah. Need more. Need less. Need something))
+
+“So what do you think we need to do?” I ask Davy.
+
+“I think the original key and locks were probably all cast from the same piece of metal, like the rings.”
+
+“Can we redo it without them all being from the same piece of metal?” I ask.
+
+“Yeah, but it’s harder. It’ll take more time to do.”
+
+“How much more time?”
+
+“I’m not sure,” Davy tells me.
+
+“Best guess?”
+
+“Maybe a few weeks?”
+
+“You can’t do it faster than that?”
+
+“Do you want to try it?” Davy asks sharply.
+
+I sigh. “I’d rather see you do it first.”
+
+“Then you’re going to have to wait.”
+
+----
+
+The next day, it’s time for Liam, Henry, Amelia and me to show back up to the war college, and for Liam and me to cross our fingers and hope that he’s right. I think he has more faith in his plan than I do, but I’m here with him anyway. So maybe I have more faith in Liam than I realize. Or maybe I like fire. I don’t even know what’s true anymore.
+
+I’m so confused about… everything. I’m stuck in a loop waiting for Davy to figure out the key. Waiting for Liam to figure out if the situation between me and Peter is tenable. Waiting to see if Iverson comes after me. Waiting to see if my mother does. Waiting to see if I live the day.
+
+The four of us walk back through the gates and Henry, Amelia and I return to our rooms, while Liam gores to speak with whomever. The official story is that Firgasu was sending correspondence as normal and no one knows what happened. The world’s a mysterious place. The delegation that was supposed to come couldn’t because the snow in the pass came early, and the decided the smart move was to not chance the crossing. And Lisette died because conditions in the pass were bad and we weren’t smart and we did chance it.
+
+It’s the most boring series of the simplest lies, and absolves everyone from wrongdoing. It’s so boring that no one should look twice at it, but that doesn’t mean it will. Henry and Amelia will be fine either way. They were just along for the ride. Liam’s the one who basically sanctioned everything, and I’m the one who basically did everything else. I’m not exactly nervous, more just anticipating the worst and waiting for it to happen.
+
+I set my pack in my room but don’t bother unpacking it. Who knows if it’s worth the time and effort. I stand in the middle of my room for a minute simultaneously grateful to finally have some privacy while also resenting, or maybe resenting that Liam isn’t also here with me. My emotions are such a mess. I want to leave, but I can’t because now people are actually paying attention to me, so I have to be on my best behavior. It’s everything I never wanted, yet here I am.
+
+I need to go do *something*. I’m going to go crazy if I don’t. Unfortunately it’s a Sunday. Which means there’s nothing going on. Nothing to distract myself with. Liam might be right that it would be easier in the general sense to come back on a weekend but at least if we’d come back tomorrow there would things that I had to do. Rooms to sit. People to pretend to listen to. I don’t know. Maybe it wouldn’t have been better.
+
+I decide to go to the gym, where at least I can hit something. I head out of my room and start down the hallway, only to find Amelia coming up it. I have no idea where her room is, but I’m pretty sure it’s not anywhere near here.
+
+I want to tell her to go away. I don’t know what she wants but I know I’m not in any mood to deal with whatever it is. I’m not fit for anyone’s company at the moment. If I were anyone else, I’d stay far away from me for the foreseeable future. So I don’t say anything since it feels like anything that comes out of my mouth will be nothing more than a snarl at best, and Amelia hasn’t done anything to deserve that.
+
+“Where are you going?” she asks when she gets close to me.
+
+“The gym.”
+
+“Good, I’ll come too.”
+
+I sigh but don’t say anything otherwise. When we get to the gym I immediately head for the heavy bag.
+
+“You don’t have gloves,” Amelia comments as I hit the bag the first few times.
+
+I shrug. “Did you want something, Amelia?”
+
+“Do you want to spar?” she asks.
+
+“With you? Now?”
+
+She nods.
+
+“That would be a bad idea.”
+
+“Why? I could take you.”
+
+“Hah,” I scoff. “I’m in a bad mood,” I tell her. “It’s not a good time to spar with me.”
+
+She shrugs. “I still say I could take you.”
+
+I look her up and down, considering. I’ve honestly never paid much attention to Amelia. If I’ve thought about her at all—and mostly I haven’t—it’s been in irritation, often relegating her to the role of ‘Peter’s ex’, which is kind of shitty of me, but we didn’t exactly get off on the right foot, and then it escalated. Then I had bigger problems, and then she was gone. After that, her stupid cousin was causing problems. All of which is to say, I have no idea what I think of Amelia as a person beyond any of that. I have no real idea what she’s capable of.
+
+I’m angry at myself for about a dozen reasons right now, so let’s just add that to the list as well. But at least this one I can address if I just make myself treat Amelia like a person instead of an annoyance.
+
+In that vein, I really consider her for the first time. She’s bigger than I am because most people are, but she’s not *that* much bigger. A few inches taller. Maybe twenty or twenty-five pounds heavier than me since I’m still too skinny. But she’s a lot closer to my size than most people are. If I want an actual sparring partner, there aren’t a whole lot of better choices around. Assuming she doesn’t suck.
+
+“Are you sure you want to do this? Like I said, I’m not exactly in a great mood.”
+
+“I’ll manage. Besides. You’re not the only who’s not in a great mood,” she tells me.
+
+“Yeah? What’s eating you?”
+
+“Michael’s a dipshit.”
+
+“You’re just getting that now?” I ask in a mocking tone.
+
+She throws a punch at my face in response. She’s quick, but I’m quicker. I manage to dodge out of the path of her fist, which leaves her slightly overextended. I move in close and use the momentum to carry me into her, knocking her sideways a couple of steps, but as I do, she’s smart enough to grab onto me and pull me to the floor with her as she falls.
+
+I come out on top and am raining blows into her ribs, but it only takes her a few seconds to get a leg wrapped around me and use that to throw me off. She tries to wrench my arm into a submissions hold as she does so, but I’m flexible enough that I just move with her until I can twist away, and we both come back to our feet and begin circling each other.
+
+“You’re better than I thought you’d be,” I acknowledge somewhat grudgingly.
+
+“You’re about as good as I thought you’d be,” she tells me as she moves back in, faster than she did the first time.
+
+I manage to dodge the punch she throws again, but only just. I dip under her arm and spin behind her, kicking at the back of her knee. It’s just a glancing blow though, and doesn’t send her to the ground like I had hoped.
+
+“Oh yeah?”
+
+“After the pass I figured I was probably wrong about you,” she tells me.
+
+I laugh. “After the pass, I didn’t think about you at all,” I admit as rush in, feinting with a jab at her face before driving my knee into her stomach. She twists though, so it catches her in the side and doesn’t knock the wind out of her. At the same time, she grabs my knee and sweeps the foot that was still on the ground out from under me. Then she uses the weight of her own body to drive me into the ground. It hurts and it knocks the wind out of me. My entire body wants to seize into a tiny ball as I fight for breath. I ignore it. This is *good*.
+
+I drive an elbow into her jaw and roll her off of me as I try and fail to suck in air. I get back onto my feet, finally gulping in a breath. I see Amelia rubbing at her jaw as I do, but she resumes a fighting stance and I do the same. She launches a kick at me, which I block as I retreat. She does another, and I catch her leg and use it to shove her backwards. She falls.
+
+As she does I feel something ripple across the atmosphere and it feels like the inside of my head is rapidly expanding. I turn searching for the source of the sensation. I’ve never felt anything like it in my life.
+
+Near the door, I see Liam with a drawn look on his face. It takes a moment before I register the man standing next to him, and another moment before recognition clicks into place. General Iverson.
+
+Amelia’s legs hit mine, and I’m so dumbstruck I make no move to roll, twist, or otherwise control the fall. I feel the base of my skull smack into the floor, and then the blackness swallows me up.
+
+
+
+
+
+----
+
 
 
 

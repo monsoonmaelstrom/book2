@@ -228,7 +228,7 @@ He grins. “It was worth it. And who knows, maybe she’ll be less… Whatever 
 
 “I don’t know. Maybe sixty, forty?” He sighs. “I honestly have no clue.”
 
-### 2 - Chapter Name TBD ^^2000 words^^
+### 2 - Where Is My Mind? ^^2000 words^^
 
 Early the next morning, I have Lisette, Gavin, Giorgi, and Henry standing knee deep in a broad shallow stream a few miles from the house. Fire’s not really any harder than anything else, but it’s a whole lot more dangerous and destructive than most things. Hence the stream. But it’s fucking cold this early in the morning.
 
@@ -1180,7 +1180,7 @@ I nod. “And Alex?”
 
 “Yeah.”
 
-### 6 - I Want to be Sedated (( I feel free??? )) ^^3200 words^^
+### 6 - I Want to Be Sedated ^^3200 words^^
 
 It’s two days later and we’re all riding to the port to board a ship and spend the next month and a half being bored out of our minds.
 
@@ -3218,7 +3218,7 @@ It’s technically true. Nicely done, Alex.
 
 “Fine. I’ll write them. What do the records need to say?”
 
-### 16 - Chapter Name TBD
+### 16 - The Boys Are Back in Town ^^2300 words^^
 
 Alex, Giorgi, and I broke off from the others after Amelia left. I need to retrieve the copy of Liam’s key I made what feels like forever ago. Fortunately, I didn’t leave it in my room at the college, unfortunately I left it at Davy’s. Well, wedged into some of the brickwork near the roof of his building. I think there’s a solid chance that someone could be watching Davy’s flat, which is why I’m bringing Alex and Giorgi with me. Alex had basically been living at Davy’s before we left, so hopefully he’ll notice anything out of the ordinary that I might miss. And no one should really be looking for Giorgi at all. I didn’t bring Davy because supposedly, Iverson wants Davy and me, so at least this way if it all goes pear shaped he doesn’t get both of us.
 
@@ -3328,7 +3328,7 @@ Liam shakes his head when he notices Alex looking at him.
 
 “Did you eat yet, Gavin?” Alex asks.
 
-“Not yet, but even if I had. I could always eat again.”
+“Not yet, but even if I had, I could always eat again.”
 
 Alex comes back and hands out menus. “They have french toast, Hazel.”
 
@@ -3336,10 +3336,509 @@ Alex comes back and hands out menus. “They have french toast, Hazel.”
 
 ----
 
+“What do you think?” I ask Liam. “Henry, Gavin, Giorgi, and Peter in the flat on the second floor? The rest of us in the one on the fifth?”
 
+“For now,” he nods.
 
+“Okay.”
 
+When we reach the building, I hand my un-magicked key to Peter.
 
+“You guys first,” Liam tells him.
+
+“You’re not coming?” Peter asks.
+
+“We are, different key though. I’ll show you tomorrow. Meet back here at ten. I have no idea how knocking will work,” Liam says more to himself than anyone else but it earns several odd looks.
+
+It must be too late for questions though, since no one asks for any clarification.
+
+“Alex, Davy, you’re with us tonight,” Liam states. “Peter lock the door behind you after you go in.”
+
+Peter nods.
+
+“Well, this is all very weird,” Alex says.
+
+“You have no idea. Liam, let Davy open the door. But Davy, let Liam go up the stairs first.”
+
+Davy nods and Liam passes him the key. Davy inserts the key into the lock, and then withdraws his hand. “What *is* that?” he asks looking at me.
+
+“Not mine,” I answer. Davy looks at Liam and I say, “Not his either.”
+
+“Whose then?”
+
+“I’m not sure.”
+
+Davy gives Liam a hard look.
+
+“Really,” Liam tells him. “I inherited it the key. So I assume my parents, but I don’t actually know. We’re going to try to find out though.”
+
+“Alex you’ve got to feel this,” Davy tells him moving back from the door.
+
+Alex reaches out to touch the key. “Huh.”
+
+“Take it out of the door,” Davy tells him.
+
+“Now that is interesting,” Alex says once he removes the key.
+
+“Can we go in?” Liam asks, and he seems a little bit on edge. “We can talk about how interesting all this is inside, but we look super suspicious just standing around in front of a door talking about how weird it is.”
+
+“Yeah, okay,” Davy agrees and Alex hands the key back to Liam.
+
+Once we walk through the door, Liam locks it behind us.
+
+“Just wait here a second,” I say to Alex and Davy as Liam begins ascending the stairs and disarming the trip wires. “Okay, you can go now,” I tell them once he’s done all four.
+
+Liam hands me the key as we walk past him and he sets about rearming them.
+
+“I don’t think we have any idea who Liam is,” Alex mutters to Davy as we continue going up the stairs. “I’m beginning to see why Hazel likes him so much.”
+
+I roll my eyes, but he’s probably right. You look at Liam and think you know what you’re getting, but then he does something that surprises you. So you reset your expectations, and once again, you think you know who Liam is, until he does something else you never saw coming.
+
+Once we get to the top of the staircase, I unlock the next door and let Alex and Davy go through while I wait for Liam. His hand brushes across mine as I pass back the key, invoking memories of the last time we were here. Without company. I sigh, and Liam smirks as if he knows what I’m thinking. We go through and Liam locks this door behind us as well.
+
+“Okay, explain,” Alex says once we turn to face him. He and Davy have both taken seats at the table where. Nope. Not thinking about that.
+
+“The other key, the one I gave to Peter is, at least as far as the physical shape of the key is concerned, identical to the key that we used to get into this flat. But when that key opens the door from the street, the staircase only goes to the second floor. There’s no way to use that key to get to this flat.”
+
+“Is that key the only one that can open the door to this flat?” Davy asks eying the key currently in Liam’s hand.
+
+“As far as I know,” Liam says passing it back to Davy.
+
+Davy turns it over in his hands.
+
+“When the key is in the lock, it feels a lot like whatever magic she used to bind Liam to her,” I tell Davy.
+
+He nods without looking up.
+
+I wait while Davy continues to look at the key. After a few minutes he hands it to Alex. Alex sets it on the table when he’s done looking at it.
+
+“I don’t think one person did all this,” Davy says finally.
+
+“Yeah, I had wondered about that myself.”
+
+Davy nods. “I think if we wanted to recreate this, it would take at least you and me working together to do it. You to provide the power and me to stabilize it all. Maybe after we’d done it a couple of times you could replicate alone, but the first time? I doubt it.” He drums his fingers over the table top lightly for a few minutes then finally sighs. “Fuck. It’d probably be a lot like the clearing. But worse. So much worse. I’d have to get everything set up, and then you’d have to blast the power through me. I wouldn’t be able to pull it through you fast enough.”
+
+“That would be… unbelievably dangerous,” I say, but I know I’m not telling him anything he doesn’t already know.
+
+He nods.
+
+“What about just tying the other key to this flat since all the magic already exists?” I ask.
+
+“I could probably figure it out in a few days,” he says.
+
+“You think it’s close enough to figure out how to undo what she did?”
+
+“Maybe. I’ll have a better idea in a couple of days.”
+
+“We should bring him to Reese’s when we go to talk to her,” I tell Liam. “She might know something that will help, and Davy will know which questions to ask if she does.”
+
+Liam nods.
+
+“Why doesn’t this place have any furniture?” Alex finally asks, looking at Liam.
+
+Liam shrugs. “Never needed any. No one actually lives here.”
+
+### 17 - Get Over It ^^1900 words^^
+
+The next morning I’m up early sitting on the rooftop, watching the sunrise over the city. I only slept a couple of hours. Liam finds me after I’ve been out there for about thirty minutes.
+
+“Couldn’t sleep?” I ask when he wraps his arms around me.
+
+“I noticed you were gone.”
+
+“I was thinking about going to Reese’s churro shop. We should watch it a while first. Make sure no one else is staking it out.”
+
+“Not a bad idea,” Liam agrees. “You should take Peter.”
+
+I can’t help but sigh.
+
+“You know I’m right. He’s the best person to go with you,” Liam states.
+
+“*You* could come with me,” I protest.
+
+“I could, but Peter is still a better option. And it will give you two a chance to talk. Alone. You need to get over it, Hazel. We need Peter, and you’ve been making things difficult for months now. You need to let it go.”
+
+“I don’t think I do,” I tell him as I step out of his arms and walk back inside.
+
+“You do,” Liam says following me.
+
+“He’s right, Hazel,” I hear Alex say from somewhere further inside. “You’re making things difficult for everyone. Not just Peter.”
+
+“Stop listening to conversations you’re not a part of, Alex.”
+
+“Oh, are we having the Peter conversation?” Davy asks as he walks out of the bathroom.
+
+“I hate you all.” I tell them. Clearly they’ve been discussing this. Probably for a while.
+
+“It’s possible, Hazel, that if everyone thinks you’re the problem,” Davy tells me, “you might actually be the problem.”
+
+“Seriously?” I say incredulously.
+
+“Seriously,” Davy responds. “Peter has apologized. You’re the one dragging this out.”
+
+“Peter apologized, and then right as I *started* to forgive him he tried to start a fight between Liam and me!”
+
+“Yeah, and he won’t do it again,” Liam tells me.
+
+“Why because you broke his nose? I’ve suffered worse injuries and come back for seconds,” I tell him as I spin back toward him
+
+“No.”
+
+“Then why? What’s he got to lose? What’s to stop him from fucking me over? From fucking us *all* over?”
+
+“Peter and I have talked,” Liam tells me.
+
+“Okay, about what?”
+
+“Do you trust me?” he asks, reaching out to take my hands as stares into my eyes.
+
+“Yes, of course I trust you,” I answer as I meet his gaze.
+
+“Then trust me when I tell you that he won’t.”
+
+“Fine. Whatever,” I say hotly. “I’ll take Peter.” *And make him answer my questions,* I think.
+
+Alex sighs.
+
+----
+
+Peter and I are sitting on a blanket in a small green space across from Reese’s shop, watching the storefront. We haven’t been here long. Probably less than twenty minutes, and hopefully to anyone passing by we just look like a couple of people enjoying the mild weather.
+
+“Liam says I need to forgive you.” I tell him, breaking the silence. “Davy and Alex, evidently, agree with him. They say I need to get over it. That I’m the one who’s the problem right now.”
+
+Peter flicks his eyes in my direction, so I know he’s listening, but he wisely says nothing.
+
+“And you know, I was actually ready to let it go back in Leisch. Before you tried to start a fight between Liam and me.”
+
+Peter sighs, but still doesn’t say anything.
+
+“I told Liam that you make it hard to trust you when you do things like that, and he said it was sorted. That you two had talked and he was sure you wouldn’t do anything like that again, and not just because he broke your nose. When I asked why, he said I should ask you,” I lie.
+
+Peter sighs again. Several minutes pass in silence, but I wait.
+
+Finally, Peter says, “I’m sorry about Leisch. I shouldn’t have lobbed what I knew was a bomb into the conversation and then walked away. I stand by the fact that Liam needed to know, but you’re both right that he didn’t need to know like that, and it wasn’t my place to tell him.”
+
+He sounds… sincere. It makes me even more suspicious. Which annoys me because maybe they’re right. Maybe there is no way for Peter to win with me right now.
+
+“And yes, Liam and I have talked about it. But I also know he didn’t tell you to ask me to relay the content of those conversations to you.”
+
+“It was worth a shot,” I mutter. “You’re all asking me to have a whole lot of faith in you when history demonstrates absolutely no reason I should.”
+
+“I think Liam is asking you to have faith in him,” Peter says.
+
+What in the hell am I supposed to say to that? That I don’t have faith in anyone? That half the time I’m not sure I trust anyone? Fuck.
+
+I’ve forgiven Alex for more or less the same thing a half a dozen times over. But Alex has also saved my life a half a dozen times over to make up for it. I sigh again.
+
+I decide to lay my cards on the table. “I want to trust you. I really do. It would make it easier for me. It would make it easier for Liam. It would be easier for everyone. But for as long as I’ve known you, I’ve done nothing to you except keep you alive. Whereas you’ve erased my memory, lied to me, and tried to drive a wedge between me and Liam, so hopefully you can see why that might be difficult for me.”
+
+“I get it, but it’s also like you said yesterday: it’s not like I can undo any of that.”
+
+“Yeah. I know.”
+
+“So where does that leave us?” Peter asks.
+
+“Trust is earned, so maybe try earning some, Peter. Stop acting like I’m going to bite you every time we’re in the same room together. I can’t make myself trust you, but I’ll stop with the snide remarks.”
+
+“Alright.”
+
+We sit silently, watching the shop for a while. After a while I ask something I’ve been wondering for a while. “What was with you trying to get my mother to call me by my name?”
+
+“*You* wanted her to call you by your name.”
+
+“Yeah, but somehow you were the only other person correcting her.”
+
+He shrugs.
+
+“I don’t know if you’re shrugging because that’s your answer or because you don’t want to answer.”
+
+After a long pause, Peter finally says, “It seemed important to you and it was a small ask. She clearly wasn’t listening when you told her, so I thought maybe if someone else did…”
+
+“Thanks.”
+
+“It didn’t seem to help.”
+
+“Yeah, well. Nothing does with her.”
+
+We fall back into silence, neither of us really having much to say to the other. I’m both bored and annoyed. I begin pulling some small purple flowers from the ground in irritation and twisting them into a crown as I watch the shop.
+
+Peter’s eyes dart back and forth between the shop and my hands for several minutes before he finally says, “You really can’t sit still, can you?”
+
+“I prefer not to.”
+
+“Giorgi calls it a character trait, you know.”
+
+“I’m aware.”
+
+“You guys seem to talk a lot,” Peter comments.
+
+I shrug. “Giorgi doesn’t talk a lot to anyone. Giorgi makes Liam seem like a chatterbox in comparison.”
+
+“And yet you two get along just fine.”
+
+“I get along with everyone.”
+
+“Except me.”
+
+“Pretty much.”
+
+“I asked you about your panic attacks, back in the pass,” Peter begins.
+
+“I remember. After you basically nodded to yourself when I initially mentioned it. Like I was confirming something you suspected.”
+
+“Yeah. Well I meant what I said about you not being the only one to have ever had a panic attack.”
+
+I don’t say anything.
+
+“Reese was basically forced into coming to Branton, and then when I was thirteen, I was forced to join her.”
+
+I had long wondered how one of the Crears ended up as a housekeeper for Liam’s grandparents.
+
+“Your father wanted someone watching the Martens just in case. Then when Liam showed up, apparently Reese alone wasn’t enough.”
+
+“Why your family?”
+
+“Because Reese and my mom were friends with yours, once upon a time. And because we’ve never been as magically gifted as the Iversons or Raidanes. Or even the Clarences, I guess.” Peter sighs. “Did you know I have a much younger brother?”
+
+“No.”
+
+“I haven’t seen him since he was two, when I was sent here to live with Reese, and he was, nominally, fostered out to the Clarences. I couldn’t even pick him out of a crowd.”
+
+“Ah. Leverage.”
+
+He nods.
+
+“Why are you telling me this?” I ask suspiciously.
+
+“To explain.”
+
+“You’re still not going to tell me why Liam says I should trust you?” I ask trying again.
+
+“No.”
+
+I sigh. “Go walk over to the shop and say hi. See what happens. Here,” I say handing him the flower crown I’ve been making. “You can give that to Reese.”
+
+I watch Peter walk across and enter the shop. Nothing changes, which is good. He walks in and Reese immediately rushes to hug him the same way she did with Liam. He hugs her back and then hands her the flower crown. She looks at it intently for a moment, and then looks at Peter in question. He shrugs. They talk for a few more minutes and then she hands him a bag. He hugs her and walks back out.
+
+Everything still looks the same.
+
+Peter crosses back over to where I’m still sitting on the blanket, and hands me the bag. “Here. Liam said you like churros.”
+
+“Thanks,” I say as I take the bag from him. I open it and lift it to inhale the scent of cinnamon and sugar. All churros are good churros, but these are *really* good churros.
+
+“She knew something was up with the flower crown,” Peter comments.
+
+“So it would seem,” I say as I pull out a churro and take a bite. Magic. This is actual magic. Way better than anything I can do. “Did you tell her who I was? After Liam brought me here?” I ask him.
+
+“No. I didn’t find out you had been here until somewhat recently. Liam didn’t tell me and Reese never mentioned it.”
+
+“Haven’t you wondered why? I mean you say she and my mother were best friends, and you’ve seen my mother. There’s no way she didn’t have a solid guess about who I was. Seems like the sort of thing you’d mention.”
+
+He shrugs. “We can ask her once the others get here, if you want.”
+
+“Do you want one of these?” I ask as I shake the bag of churros in his direction.
+
+“No. I’m pretty sure they’re for you.”
+
+“Did you tell her I was here?” I ask, since I’m pretty sure she wouldn’t be able to see us from the shop.
+
+“No.”
+
+“Then why… The flower crown. Huh.”
+
+“What?”
+
+“Do you know how to make a flower crown?”
+
+“No, why would I?”
+
+“Indeed. Why would anyone? Why do I?”
+
+“Is that a rhetorical question?” Peter asks, confused.
+
+“I know how to make flower crows. Alex knows how to make flower crowns. I bet Reese knows how to make flower crowns too. I bet we all make them the same way.” I sigh. “Do you think she’s still friends with my mother?”
+
+“I don’t think so, but I don’t really know that for sure.”
+
+“Well, let’s hope not.”
+
+### 18 - Chapter Name TBD ^^1400 words^^
+
+Another hour goes by before Alex, Davy, and Liam arrive. I’ve long since finished off the churros when they take a seat on the blanket with us.
+
+“Anything?” Liam asks.
+
+“No,” Peter says and I shake my head.
+
+“And have you two spent the past couple of hours becoming fast friends?” Alex teases.
+
+“Yeah. Peter braided my hair and everything,” I tell him sarcastically.
+
+“Are you two good?” Liam asks seriously.
+
+I look at Peter to find him looking at me as well. We both shrug.
+
+Liam sighs, and I can hear the frustration as he says, “Come on. Let’s go talk to Reese.”
+
+We enter the shop together, with Liam at the front and Peter bringing up the rear. Once we’re inside, Peter flips the sign on the door to closed and locks it behind him. Reese comes out from the back and takes one look at our group of five and then lets out an exhale that makes it sound like she has the weight of the world pressing down on her shoulders. There are no hugs for anyone this time.
+
+“I’ve been expecting you,” she says to me.
+
+“Since when?” I ask.
+
+“Since Liam brought you here.”
+
+“Sorry to have kept you waiting?”
+
+She laughs. “So who are your friends?”
+
+“This is my brother Alex and my cousin Davy,” I say gesturing to them in turn as she nods to each.
+
+“Well, you all may as well sit down.”
+
+The sound of the chair legs sliding across the floor seems to echo within the space today.
+
+“Has my mother been to see you yet?” I ask her.
+
+Reese’s eyes widen slightly. “No. She’s back?”
+
+“Yes, and you sound… worried? Which would make sense if you were me, but Peter says you used to be best friends.”
+
+“Emphasis on the ‘used to’.”
+
+“So what happened?”
+
+“She changed. Right around the time her brother died. She… I don’t know how she is now, but she became a different person after he died. It was subtle at first. Or maybe I just didn’t want to see it, but she became meaner and more vindictive. She went from being a person who had friends to being someone who only had people she used when she needed something from them. It wasn’t long after that that our friendship fell apart.”
+
+When I don’t offer any response to that, Liam picks up the conversation. “Reese, you gave me a key that you said my mother left for me. We need to know whatever it is you know about that key. How it was made, who made it, why.”
+
+“I—” Reese begins to rise, but Liam catches her wrists.
+
+“It’s important. Please.”
+
+Reese looks down at Liam’s hands on her wrists, and he lets go. “Your father made it,” she tells Liam. “With the help of Randall Iverson and William Raidane. That’s how he died,” she says softly. “They did something that made that key and the doors it unlocks, and it killed William and then Alexandria… It doesn’t matter. Anyway, it was the three of them together who made it. They wanted to prove they could, so they did, but it killed William in the process. Then James ended up with the key and gave it to Emma, and Emma gave it to me. I think James wanted to keep it away from Randall. Emma told me James told him it was stolen.”
+
+“Why did he want it?” I ask.
+
+“Why does Randall want anything?” Reese asks, and I get the feeling it’s rhetorical.
+
+“Do you know *how* they made it?” I ask.
+
+“Why?” she asks suspiciously.
+
+“My mother did something to Liam. Something that feels a lot like the magic on that key,” I tell her.
+
+“You look so much like her, you know.”
+
+“I’m aware,” I state flatly.
+
+“But you’re nothing like her. Not like how she was before William died, or who she became after. You made the flower crown Peter gave me earlier?”
+
+I nod.
+
+“We used to make crowns like that. I recognized the weaving. I taught her that,” Reese says, and I get the distinct impression she’s trying to avoid the question.
+
+“What was she like before?” Alex asks, letting her.
+
+“Quiet. Smart. Kind of a wallflower. Content to let others take the credit for her cleverness.”
+
+I can’t even begin to imagine my mother as that person, and based on Alex’s expression neither can he.
+
+“The key, Reese?” Liam says directing the conversation back to the original topic.
+
+“I don’t know exactly what they did. I wasn’t there, and the kind of stuff they were talking about was so far beyond my understanding.”
+
+“What kind of stuff,” Davy asks.
+
+“You’re Christine’s child?” she asks Davy.
+
+He nods.
+
+“I hope you’ll forgive me but, I never did like her very much.”
+
+“It’s an opinion I share,” Davy, assures her. “She’s with Alexandria now.”
+
+Reese sighs.
+
+“I don’t know. They were talking about using Randall to power the magic, and James to amplify it, and William to focus it. I don’t know the specifics beyond that. It was originally Alexandria’s idea. She would know more.”
+
+“Well, that explains why what she did to Liam feels so similar,” I mutter. At least it means my suspicions are right. I can figure out how to undo this. Or Davy and I together can. We just have to get it right the first time. No pressure.
+
+“Do you know about the prophecy?” I ask.
+
+Reese rolls her eyes. “The prophecy,” she mutters, seeming to echo how I feel.
+
+“So you don’t think my mother’s a seer or a prophet?”
+
+“No,” Reese states flatly. “I think your mother knows how to pay attention and make educated guess, and I think sometimes she gets lucky.”
+
+I ball my hands into fists beneath the table as I resist the urge to look at Peter and smirk, since while that’s not technically a comment doing so would probably still be snide.
+
+Still, my effort must show because Peter says, “Go ahead and say it, Hazel. I know you want to.”
+
+“I wasn’t going to say anything, but since you bring it up: I told you!” I burst out, never one to deny an invitation to say I was right.
+
+Reese laughs again. “Point of contention?”
+
+“A bit,” I admit. “Even if it’s not real, do you know what it says?
+
+Reese thinks for a minute. “It was some stupid rhyme.”
+
+“Mom’s specialty,” Alex mutters.
+
+“Something like:
+>   Forge their bonds into a chain,
+>   Use their lives to stake a claim.
+>   With secret deals and silent force,
+>   Rise unchecked and stay the course.
+>
+>   Bend their wills for endless breath,
+>   Cheat the grave, outrun death.
+>   Immortal now, your soul is bright,
+>   And all you gained is yours by right.
+>
+>   The tides of fate will turn at last,
+>   And allies strong will be outcast.
+>   Your rule undone, your power claimed,
+>   Usurped by those I once had named.”
+
+“It’s not even any good,” Alex scoffs when Reese is done.
+
+“To be fair,” Reese says, “I think it started out as a joke. Alexandria was convinced she could make the others believe she could predict the future, and it worked. At least with Randall.”
+
+“So what you’re telling me is he’s even crazier than she is,” I comment letting my head fall to my arms folded in front of me. The future looks bleak.
+
+“He’s power hungry, but I wouldn’t say he’s crazy,” Reese says.
+
+“You’d have to be crazy to believe something like that,” I say.
+
+“Maybe not if you’re the kind of powerful that lets you reshape reality,” Reese shrugs. “That kind of power makes most things seem possible.”
+
+“Great,” I mutter.
+
+----
+
+“What are you thinking about?” Liam asks as we slowly walk back to the flat.
+
+“Being the kind of powerful that makes most things seem possible,” I answer.
+
+“You mean the kind of powerful you are?” Liam asks.
+
+“Maybe.”
+
+Liam wraps an arm around my waist. “Did you and Peter talk?”
+
+“Yeah.”
+
+“And?”
+
+I shrug. “I have trust issues. I find it hard to trust Peter just because you think I should when you can’t or won’t give me any good reason to,” I answer honestly. “But I told him I’ll stop with the snide remarks if stops acting like I’m going to bite him every time I walk into a room.”
+
+Liam sighs. “You’re not making this easy.”
+
+“Yeah, well, neither are you. It’s the best I can do for now.”
+
+### 19 - Chapter Name TBD
 
 
 
@@ -3348,9 +3847,9 @@ Alex comes back and hands out menus. “They have french toast, Hazel.”
 
 Things that need to happen:
 
-1. Go to the flat
+
 2. Figure out how to undo Alexandria’s magic on Liam
 3. Go back to the war college
 4. Peter double agent???
-5. Visit Reese for answers
+
 6. Get captured

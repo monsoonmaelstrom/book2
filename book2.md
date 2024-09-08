@@ -3838,7 +3838,7 @@ Liam sighs. “You’re not making this easy.”
 
 “Yeah, well, neither are you. It’s the best I can do for now.”
 
-### 18 - The Waiting  ((??? Could be something better )) ^^2100 words^^
+### 18 - Waiting Room ^^2100 words^^
 
 I spend the next day sequestered in the flat with Davy and Alex, trying to figure out the key.
 
@@ -3984,10 +3984,369 @@ I drive an elbow into her jaw and roll her off of me as I try and fail to suck i
 
 As she does I feel something ripple across the atmosphere and it feels like the inside of my head is rapidly expanding. I turn searching for the source of the sensation. I’ve never felt anything like it in my life.
 
-Near the door, I see Liam with a drawn look on his face. It takes a moment before I register the man standing next to him, and another moment before recognition clicks into place. General Iverson.
+Near the door, I see Liam with a drawn look on his face. It takes a moment before I register the man standing next to him, and another moment before recognition clicks into place. General Iverson, wearing a completely closed expression as he watches us.
 
 Amelia’s legs hit mine, and I’m so dumbstruck I make no move to roll, twist, or otherwise control the fall. I feel the base of my skull smack into the floor, and then the blackness swallows me up.
 
+### 19 - Bad Girls ^^1800 words^^
+
+I wake up with a pounding headache and nausea and… a possible concussion? What the hell happened?
+
+“I told you I could take you,” someone says to my left.
+
+“What?” I ask, and I think it comes out as garbled as I feel. I try to sit up and, oh. That is *not* a good idea.
+
+“You lost.”
+
+“Amelia, you can go now,” Liam exhales in irritation.
+
+“Fine. I just wanted to make sure she knows.”
+
+I hear the door open and shut.
+
+“What happened?” I ask.
+
+“You don’t remember?” Liam asks.
+
+“I remember Amelia and I were sparring.” I pause. “And then I remember seeing you. And… Was General Iverson with you?”
+
+“Yes,” Liam says tightly. “I want Alex to look at your head. Can you get him here, please?”
+
+“With Iverson here? No way.”
+
+“Please? You were unconscious for a good thirty minutes and I’m pretty sure you have a concussion.”
+
+“I definitely have a concussion,” I mutter. “With Iverson here, it’s not safe.”
+
+“He’ll figure it out,” Liam tells me.
+
+“Fine,” I relent. “What happened?”
+
+“You lost.”
+
+“Yeah, after that?”
+
+“Iverson watched you for a minute and then walked out without saying a word.”
+
+“Why was he there?”
+
+“According to him, he wanted to meet the others who went to Firgasu.”
+
+“How did he know we were there?”
+
+“I don’t know,” Liam says shaking his head. “He was waiting with the Commander when I went to speak with him, and then when I was done he said he wanted to meet the others, and went straight to the gym.”
+
+I wasn’t using any magic. I haven’t used any magic since before we got back to Branton. How did he know where I was? Amelia? Maybe. I’ll have to ask her. But if not… I don’t like the implications of that.
+
+“What did he do?” Liam asks. “I felt magic rolling out from him, but I don’t know what it was.”
+
+“I have no idea. I’ve never felt anything like it in my life. It almost felt like a sounding.”
+
+“A sounding?”
+
+“Yeah, like when you measure the size or distance of something by seeing how long it takes a sound wave to move across it.” I note the look of confusion on his face. “Like with thunder. Never mind. It’s not important. I think maybe he was measuring my magic?”
+
+“Can he do that? Can you do that?”
+
+“I have absolutely no idea to either question.” I want to go to sleep even though I know that would be a bad idea. Instead, I ask, “Did he say anything?”
+
+“‘Ah.’”
+
+I close my eyes. “Before or after you felt his magic?”
+
+“After.”
+
+“Well, damn.” My head somehow hurts worse, if that’s possible. “Can you go ask Amelia if she’s done any magic—anything at all—since we got back here?”
+
+“Okay, I’ll go talk to her once Alex gets here.”
+
+“How did the rest of it go?” I ask trying to focus on something other than the pain, nausea, and desire to go to sleep.
+
+“It was find. I think Commander Selby was as surprised to have General Iverson sitting in as I was. In some ways it probably made that portion easier.”
+
+“Did Iverson ask any questions?”
+
+“No. He just sat there and stared.”
+
+“Great. Has Peter talked to him at all yet?”
+
+“Not that I know of,” Liam tells me.
+
+“You should ask him. He’s going to have to,” I tell Liam, even though the thought only adds to my nausea.
+
+I obviously knew Peter would have to talk to Iverson at some point, and I didn’t like the idea then, but since some point is apparently now, I like the idea even less. I am literally going to have to trust Peter based on nothing at all. Or maybe it doesn’t even matter. Iverson is already here. I’m not sure what Peter could say to him that would make it worse. Iverson evidently knows exactly who I am, and if I had to guess he’s got a pretty solid idea what I’m capable of. At this point, the best we can probably do is hope to keep Alex and Davy off his radar, and I don’t even know how feasible that is. Maybe if I’m interesting enough he’ll forget to look for Davy.
+
+“Okay,” Liam agrees. “How’s your head?”
+
+“I’ll live. At least for tonight. Probably.”
+
+Liam spends the next forty minutes or so it takes for Alex to arrive asking approximately once per minute if I’m still awake. By the time I hear a tapping on the window. I’m about five minutes away from trying to strangle Liam just to make him stop asking if I’m awake.
+
+“You couldn’t come through the door?” Liam asks as he opens the window for Alex.
+
+“I left my Captain of the Guard costume in Davy’s flat,” Alex tells him sarcastically. “Makes walking through the building a little harder. Do me a favor and bring me a new one? Save me the trouble of getting it myself? Unless you want me snooping through your things, in which case I’m happy to oblige. I *am* interested in what other secrets you might be keeping.”
+
+“I’ll trade you for it,” Liam tells him.
+
+I see a speculative look on Alex’s face when I look toward the foot of the bed where they’re talking, and even pointing my eyes in that direction is enough to send a new wave of nausea roiling through me.
+
+“What happened to Hazel?” Alex asks Liam, seeming to notice I’m here for the first time.
+
+“She lost,” Liam says.
+
+“I did not lose. It doesn’t count,” I retort.
+
+“What was it you told Gavin before? Winning is winning and dead is dead?”
+
+“Fuck off and go talk to Amelia, Liam.” I tell him. “And bring Alex a uniform when you come back. Please.”
+
+I hear the door open and close, then Alex asks again, “What happened.”
+
+“I fucking lost. To Amelia,” I grit out.
+
+“You lost a fight to Amelia?” Alex asks incredulously.
+
+“To be fair, she’s better than you would expect, but I was surprised.”
+
+“By?”
+
+“Can you fix my head first? So I can talk without fighting the urge to projectile vomit all over you? But with as little power as you possibly can.”
+
+Alex reaches around to the back of my head, and the pain fades from stabbing to bearable to gone in seconds.
+
+“Thanks,” I say as I’m finally able to leverage myself into a sitting position.
+
+“So what happened?”
+
+“Amelia and I were sparring. Then all of a sudden it felt like… I don’t know. Like standing next to a really large bell that was ringing, only without any sound. It was like the inside of my head was expanding. And when I looked around to figure out what the hell it was, I saw Iverson standing there watching us. Then Amelia got lucky, and the ground took issue with my head.”
+
+“Iverson? He was here watching you?”
+
+“Yeah.”
+
+“How did he know where to find you?”
+
+“No clue. I haven’t done any magic since well before we got back, exactly because of this. Maybe if Amelia did something? Who knows what mom taught her while we were gone,” I mutter.
+
+“What do you think he was doing? Could Liam feel it.”
+
+“Yeah, Liam felt it, but not like I did. I told Liam if felt like a sounding but for magic. I’m pretty sure he was trying to figure out exactly how powerful I am.”
+
+“Do you think he did?”
+
+“Yeah, maybe. Or at least I think he’s got a solid idea of what I *could* do, but maybe not necessarily what I *can* do,” I say with a shrug. “Like just because I could do something in theory, it doesn’t necessarily mean that I can do it in practice. Or at least I’m hoping I can convince him of that.”
+
+“You’re going to what? Play dumb?”
+
+“It’s worked before,” I shrug. “Do you have a better idea?”
+
+“Kill him?”
+
+“I have no idea if I can, Alex. I’ve never felt anything like that in my life my life.”
+
+“Well that’s reassuring.”
+
+“Yeah. I know. After what I just felt, I think Peter might have been right about her hiding,” I tell him quietly.
+
+“Do you know what Liam wants?” he asks, changing the subject. When he sees the look on my face he elaborates, “For the war college costume.”
+
+“Oh. No. No clue.”
+
+“Interesting. I still can’t believe you let *Amelia* get the drop on you. “I’m going to tell Peter,” Alex says, grinning.
+
+I sigh. “Yeah, well. Whatever. Tell him Iverson is around too.”
+
+We fall into silence while we wait for Liam to come back and it’s another ten minutes before I hear him tap on the door.
+
+“Good. You look better,” he says when I open the door, and based on the amount of relief I hear in his voice, I must have looked worse than I thought. I take his free hand in mine. “Here,” he says, tossing a uniform at Alex.
+
+“Perfect!” Alex says enthusiastically. “What do you want for it?”
+
+“Rings for you and Davy,” Liam tells him.
+
+“*Two* rings? For *one* uniform? Seems like a bit of a lopsided trade.”
+
+“Do you want a second uniform?”
+
+“No. Why do you want rings for me and Davy?”
+
+“Hazel wasn’t going to have you come take care of her head, and if something happens to her…”
+
+“Really, sis? You were going to chance it with that head injury?” Alex asks, turning a withering stare on me that clearly indicates he’s reevaluating how intelligent he thinks I am.
+
+“I wasn’t thinking clearly?” I try half-heartedly.
+
+Alex rolls his eyes.
+
+“Yeah, fine. Since my sister’s clearly an idiot,” Alex mutters looking back at Liam. “Davy’s already working on them for you anyhow. Has been since Leisch. Well, except for the time when Christine was around screwing with his head. Anyway. I should be going.”
+
+“Wait a sec. Liam, what did Amelia say?”
+
+“She said she hasn’t done anything either.”
+
+“Damn. Alex wait here for like fifteen or twenty minutes before you leave?”
+
+“Why?” he asks, clearly suspicious.
+
+“I’m going to go make a scene. I’m going to saturate the whole area in so much magic that hopefully Iverson will have no idea you were ever here, or are leaving. Hopefully it’ll be distracting enough that no one follows you. But still, be careful,” I tell him before I open my door and step out into the hallway.
+
+“You’d better go with her,” I hear Alex tell Liam behind me. “Whatever she’s doing sounds like it’s probably a bad idea.”
+
+### 20 - Ride ^^2200 words^^
+
+“What are you going doing?” Liam asks as he walks alongside me matching me step for step as I climb the stairs.
+
+“Going to the roof. Do you have the key for the door?”
+
+“Yes, but what are you going to *do*? You need to keep a low profile, remember?”
+
+“There’s not a whole lot of reason to keep a low profile, now that Iverson is *here*, and has seen me,” I tell him. “Right now, I need to do exactly the opposite of that. Don’t worry. Only Iverson will know it was me, and he’s not going to say anything,” I tell Liam with more confidence than I feel.
+
+I can tell Liam has doubts, but he unlocks the door once I reach it, and I fling it open and step out onto the rooftop.
+
+“You might want to cover your ears, so to speak. This is going to be loud,” I say over my shoulder.
+
+Liam nods.
+
+I start pulling power into me. A lot of power, as quickly as I can. I start using it to pick up the windspeed. Not for any reason other than to burn through it so that I can pull in more. I’m trying to drop the temperature drastically, and I’m trying to use a lot of magic with next to no finesse to do it—all power and no skill. I’m going to drop the temperature across the entire city and blanket the whole thing in snow. Kind of like what I did in (( Ponchar? Olten? ??? )). So right now I’m burning through power with that as my only goal.
+
+The temperature is rapidly plummeting, but I want even more. I can see my breath in the air now, but it’s not cold enough yet to make the snow last over night.
+
+If I’m right, I’m making such a cacophony right now, that there’s no way Iverson will be able to track anyone else’s magic, regardless of how he’s doing it. The temperature where I’m standing is cool enough now, but I want the whole city to be this cold. Fortunately the wind is also cycling the air, so it shouldn’t be too much longer.
+
+Once it’s almost cold enough, I send the temperature plummeting the last little bit when I coalesce the clouds overhead and the first flurries begin to fall. Then I cut it all off.
+
+I’m grinning as I hold out my palm to catch a flake. The snow is wonderful when you don’t have to worry about it killing you.
+
+“What was that?” Liam asks as he rushes toward me and grabs my shoulders.
+
+I encircle us so that no one listening, assuming anyone is, can hear our conversation. “A distraction. Hopefully.”
+
+“I’ve never felt you do anything like that,” Liam tells me.
+
+“Because normally I’m not endeavoring to show off in the stupidest possible way.”
+
+“And you think now is the time to do that? To make yourself a target?” he asks with a hint of anger.
+
+“I think,” I say, holding onto him a little tighter, “it worked on archery field.”
+
+“The.. what? That competition we had?”
+
+“Yes. I made myself a target, and then I trusted Davy and Alex to pick you all off. I bet you guys never even fired a single shot that was anywhere close to either of them because you were all so focused on me. Same principle. Whatever is going to happen with Iverson, confronting him head on isn’t going to work. But letting him think that’s what I’m doing might.” I kiss Liam gently.
+
+“I—a little warning might be nice.”
+
+“I told you I was going to cause a scene.”
+
+“Alex said you guys grew up playing games like this.”
+
+I shrug.
+
+“So… what? Your mom was teaching you guerrilla warfare tactics?”
+
+“She was… I don’t know. She was making weapons,” I tell him with a sigh. I’ve been saying it all along, and I’ve always thought it was true, but now I think maybe everyone else is starting to get it. “She taught us a lot. All of my childhood was bad, but it was almost all useful too,” I admit. Maybe even the really bad parts.
+
+“And what’s that look that just flashed across your face?”
+
+“What look?”
+
+“Hazel,” Liam says, his voice full of admonishment.
+
+“I think maybe she was teaching us to break without being broken.”
+
+“That sounds…”
+
+“Yeah, I know exactly how it sounds. It sounds like I’m justifying what she did. I’m not. I’m just saying that there may have been value to it.”
+
+Liam looks at me like I’ve grown two heads. I think Alex would have the same reaction. But I think Davy would understand. I need to talk to him. We need to undo her magic on Liam because I need to talk to her. I never thought I’d be thinking that, but I do, and I’m not willing to chance it while she can still use Liam against me. But I need to talk to her, and I need to do it soon.
+
+----
+
+The next few days go by unremarkably aside from the constant talk of how odd the weather has been lately. If I was a normal person, maybe I would start to feel like everything was going to be fine, but with each day that goes by, I feel like a wire being wound tighter and tighter. I’m almost sure it’s intentional. If Iverson wants to see who’s going to blink first, well. It’s not going to be me.
+
+I need to talk to Davy, but I’m unwilling to draw attention to him by doing so, especially since I know as soon as he thinks he’s got it figured out, he’ll let me know.
+
+So instead, I continue on pretending everything is fine. I show up to the classes I’m supposed to. I do the work I’m supposed to. In the evenings I’ve been sparring with Amelia. She hasn’t won since. I’ve been spending my nights in Liam’s room since he seems worried I’m going to do something stupid if left to my own devices. I’m not, but I’m also not complaining. It’s better than spending all night awake and alone in my room. While Liam sleeps each night, I’ve been trying to work out how Iverson knew where I was that first day, and I think I’ve got it. It’s those damn energy meridians. It’s got to be. Nothing else explains it. I bet he can sense them. I proved I can do it to an extent with Lisette. It’s definitely easier the closer I am, but I also bet the bigger they are the easier they are to feel. Meaning mine are probably the easiest to feel of all. I’ve been trying to feel them out in the nights when everyone else is asleep, and I can definitely feel Liam’s, but he’s right next to me. I feel twinges that I think might be others, much farther away and much dimmer. I think it’s partially that I’m not very good at it—yet—but also that distance diminishes it like it does with every other sense. Meaning he probably can’t find Davy and Alex unless he gets close to them, and if I’m making a bunch of other noise at the same time, he might not be able to even if he’s close.
+
+I bet the entire time Liam was reporting to Commander Selby, and he said Iverson was there but not asking any questions and wearing a blank expression the majority of his focus was on figuring out where I was so he could get up and walk there like he knew exactly where I was the whole time. It was a bluff. He was showing off. The realization is oddly comforting.
+
+Initially, it was bothering me that I couldn’t feel General Iverson. I’m not exactly sure where he is, but I’m sure he’s lurking somewhere. And based on what I felt in that gym, he should glow the same way I do. However it occurred to me not long after that if I can be really loud, I can probably be really quiet. It’s what I’ve been focused on the past several hours. It’s actively different from not using any magic or not pulling in any power. Even when I’m not doing either of those things, my energy meridians still practically glow. I think I’ve figured out the knack for making them dimmer though. I want to see if I can make them go dark though, and if I can, can I hold them like that? And what happens if I do? I feel like there could be some negative side effects, but it seems like it could be useful enough to chance it.
+
+Right now I’ve got them like banked ashes and I’ve been holding them there for close to thirty minutes. It takes no small amount of effort or focus, but I’m hoping it’s one of those things that gets easier with practice since Iverson seems to be able to do it almost constantly.
+
+I hear a knock on the door, which startles me, since it’s close to three in the morning and the halls have been silent for hours, but not enough to let my meridians flare back up. It does wake Liam up though. He looks at me with his eyebrows raised in question, and I shrug. I fade back into the shadows where I won’t be visible from the door, as Liam gets up to open it.
+
+“General Iverson?” Liam asks groggily.
+
+Shit.
+
+“Is Miss Raidane with you?” I hear from the other side of the door.
+
+*Lie. Lie. Lie.*
+
+“Why would she be with me?” Liam asks, still sounding half asleep.
+
+“Because she’s spent every night in this room since you returned.” It definitely sounds like a statement of fact and not a question or an assumption.
+
+*Hah! I’m right.* I grin but make sure to keep everything banked just the way it was before he knocked on the door.
+
+“I haven’t seen her,” Liam says tonelessly.
+
+“Hmm,” I hear and then the door shuts.
+
+“What was that about?” Liam asks when he sees the look on my face.
+
+I hold my finger up to my lips, but say nothing. I gesture to the air around us. Can Liam make a sound shield? I have no idea, but I can’t do it right now without potentially alerting Iverson of what I’ve been doing.
+
+Liam looks confused, so I gesture to the air around us again and point to my ear. I see him realize what I’m asking and he shrugs.
+
+“Fortunately, I’ve seen you do that a lot,” Liam says after a moment of concentration.
+
+I resist the urge to jump into his arms, barely. Instead I just fling myself against him, grinning like a maniac. “I’ve got it!”
+
+“Got what?”
+
+“I know how he found me in the gym that day. He just gave himself away!”
+
+I kiss him because I can’t help myself. All this exuberance I’m feeling has to go somewhere and he’s the only available target. By the time I come up for a breath, I am actually in his arms, and he looks thrilled for an entirely different set of reasons.
+
+“I can’t,” I tell him when he leans in for another kiss. “I can’t do that and this at the same time. Yet.”
+
+“This being?” he asks, but doesn’t set me down.
+
+“It’s a whole bunch of stuff with energy meridians. I’m going to have to try to teach you—to teach everyone. But I’m pretty sure that’s what he used to find me that day in the gym with Amelia. It occurred to me that I can kind of feel them, and I couldn’t think of any other way he could have done it, so I’ve been working on it at night.”
+
+“Instead of sleeping?”
+
+“Yes!”
+
+“I can feel yours when you’re close to me, and I think if I practiced more I could feel them from farther away, and I think maybe I can feel others in the distance, but I can’t feel his and I know he’s been hanging about, so I figured he must be doing something to hide them, and having been working on doing it too.”
+
+“Is that why you couldn’t do any magic?”
+
+“Yes! Right now I’ve got them all dimmed down really low, but to do magic I’m pretty sure I’d have to let them go back to normal, and as soon as I did that, he would know I was here, and then he would know I’ve figured it out.”
+
+“So how much focus does it take?” Liam asks as his mouth caresses the side of neck.
+
+I want to let him keep going. I really, really do but right now I can’t. “Too much.”
+
+“That’s a shame,” he breathes softly across my neck before setting me down.
+
+“Ask me again tonight,” I tell him. “By then I’ll probably need a… harder challenge.” That earns me an honest laugh.
+
+“Alright. Do you want to start trying to teach me how to do it then? I’m definitely not going to be able to fall back asleep.”
+
+
+### 21 - Chapter Name TBD
+
+
+
+
+
+
+
+
+
 
 
 
@@ -3996,13 +4355,7 @@ Amelia’s legs hit mine, and I’m so dumbstruck I make no move to roll, twist,
 
 
 
-
-
 ----
-
-
-
----- -
 
 
 
@@ -4010,7 +4363,7 @@ Things that need to happen:
 
 
 2. Figure out how to undo Alexandria’s magic on Liam
-3. Go back to the war college
+
 4. Peter double agent???
 
 6. Get captured

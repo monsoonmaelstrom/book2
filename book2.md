@@ -3026,8 +3026,6 @@ Davy rolls his eyes.
 
 I follow along because I’ve got nothing better going on.
 
-(( needs work, idk ))
-
 ## Part 2
 
 ### 15 - It Wasn’t Me/Anti-Hero ^^2200 words^^
@@ -4333,7 +4331,171 @@ That earns me an honest laugh.
 “Alright. Do you want to start trying to teach me how to do it then? I’m definitely not going to be able to fall back asleep.”
 
 
-### 21 - Chapter Name TBD
+### 21 - Just a Girl/Stupid Girl ^^1400 words^^
+
+The next day I’m sitting in the gallery listening to a last minute session about Avonare. The Avonarese Commander has been called in to give a briefing about the return of Avonare Polity’s heir. Apparently my mother chose this morning to announce that she’s back. From the sound of things, she hasn’t mentioned Alex or me, which is good news for both of us, as far as I’m concerned.
+
+Earlier this morning, Alexandria evidently summoned the Avonarese Commander to the residence she has been staying in, and requested that Commander Melbrin accompany her to Corriven. I haven’t been able to figure out the angle behind that request yet since, on its face, it’s a stupid request. Nothing about my mother’s return is official yet, and therefore Commander Melbrin doesn’t answer to her. The overall discussion so far has put forth the same argument.
+
+I don’t think my mother’s going to get what she’s asking for, but I also don’t think that she ever thought she was, so there must be some other reason she was asking for it. But the only reason I can figure that she might have was to cause this exact situation, which doesn’t make any sense to me either.
+
+People have been coming in and out of the gallery throughout the discussion—since as far as political gossip goes, this is prime—so when the bench creaks next to me, I pay it no mind. Slowly though, I begin to feel a ramp up in the energy around me. It goes from nothing, to a trickle, then a steady flow, to a raging river. I ignore it, and focus on the scene in front of me as if I feel nothing. I know it must be General Iverson. And evidently he’s hoping to elicit a reaction from me. But I know nothing. I see nothing. I feel nothing.
+
+*I know nothing. I see nothing. I feel nothing,* I repeat to myself as I work to look like I’m focused only on the proceedings in front of me. Eventually someone calls for a recess. As soon as the statement is made I feel a rap on the wood of the bench. I’ve been expecting it for a while. Nonetheless, I give a slight startle as if I haven’t been waiting for it before looking to my left. When I do, I let my eyes widen slightly in surprise.
+
+“General Iverson,” I say breathlessly, in a tone that I hope makes me sound slightly awed.
+
+“Miss Raidane. Are you finding the discussion interesting?” he inquires cooly.
+
+“I—it’s politics, sir. Perhaps I shouldn’t say so, but I don’t particularly see the appeal.”
+
+“Really?”
+
+“Yes. It’s just not my cup of tea.”
+
+“What is your cup of tea?”
+
+“I like oolong.” I pause for a moment. Then give a sheepish smile as I say, “Oh, that’s not what you meant! I, uh, I’m not sure.”
+
+“Where were you last night?”
+
+“Last night?” I repeat as if I’m confused by the question.
+
+“Yes. After curfew. Where were you?”
+
+“Asleep.”
+
+“Where?”
+
+“In my room?”
+
+“Are you sure?” he asks. “Because I knocked on your door and no one answered.”
+
+“On *my* door?” I wait but he says nothing. “I’m a heavy sleeper. I must not have heard you. I’m sorry. Is there something I can help you with now, sir?”
+
+“So you weren’t in Captain Marten’s room?”
+
+I shake my head mutely.
+
+“I saw you sparring in the gym.”
+
+“Last night?” I ask as if I can’t follow the subtext of the conversation at all.
+
+“No.”
+
+“Oh. When?”
+
+“The day you and the others returned.”
+
+“Oh. I don’t remember you being there. Sorry. I took kind of a nasty blow to the head that night. I had a concussion and everything,” I tell him as I rub at the back of my head like it still kind of hurts.
+
+“The weather was very peculiar that night.”
+
+“Oh! That was the night with all the snow! I remember seeing the snow when I woke up the next morning,” I say, nodding.
+
+He’s beginning to look just a touch exasperated. I fight the urge to grin, and instead school my face to attentiveness.
+
+“Do you know who I am Miss Raidane?”
+
+“Yes?” I say with what I hope is more than a fair amount of confusion. “You’re General Iverson. I haven’t confused you with someone else have I?”
+
+“Hmm,” he says before getting up and leaving.
+
+I debate calling out ‘Bye!’ to his receding back, but decide not to push my luck.
+
+----
+
+“I saw you talking to General Iverson earlier,” Henry says as we sit together at a table with Amelia.
+
+“Correction, you saw General Iverson talking to me earlier,” I tell him as I blow on a spoonful of soup.
+
+“Really?” Amelia asks.
+
+“Yeah, he just kind of showed up,” I explain.
+
+“What did he want?”
+
+“Information,” I answer.
+
+“What did you tell him?” Henry asks.
+
+“That I like oolong tea.”
+
+“No, seriously.”
+
+“Seriously. I told him I like oolong tea,” I grin remembering the annoyance that flickered across his face as I said that. “Do you guys remember the stuff about the energy meridians?” I ask changing the subject.
+
+They both nod.
+
+“Can you guys feel yours?” I ask them.
+
+“No,” Amelia says, and Henry shakes his head.
+
+“I need you guys to work on being able to feel them,” I tell them. “It’s important.”
+
+“Important why?” Amelia asks.
+
+“I’ll tell you when you figure out how to feel them. See you in the gym later?” I ask her as I stand up to leave.
+
+“Sure.”
+
+----
+
+Iverson shows up that night in the gym while Amelia and I are sparring. Of course he does. It’s good though because I was thinking he might. Glad to see I was right. I think I might be beginning to understand how he thinks.
+
+He didn’t bring Liam with him tonight, which also doesn’t surprise me.
+
+The first time he was here, he saw me lose to Amelia. I intend for him to see the same thing again this time. I expect he’ll do the same thing tonight he did that first night. Since he saw me react that first night, I can’t pretend like I don’t feel it, but I can act like I have no idea what it is or what the source is. Which is to say, if I’m right and he does, I intend to react exactly the same way I did that night. Let him think I still have no idea what it is or that it’s coming from him.
+
+I slow all my reactions just enough to give Amelia another slight advantage in addition to the size advantage she already has on me.
+
+Iverson has been watching us spar for probably close to ten minutes before I finally feel that same physical rippling sensation that makes the inside of my head feel like it’s expanding in size. Like before, I let myself appear distracted. Like I’m searching for the source.
+
+Amelia goes on the attack, taking advantage of the perceived lapse in my attention. This time though, I control the fall as she takes me to the ground. She comes out on top and is able to successfully pin me. It’s a good one. If I was really willing to suffer for it, maybe I could get out. But I’m not, so I don’t.
+
+I tap the mat. “You win.”
+
+“Hah!” Amelia says rising to her feet and extending a hand to pull me up. Amelia likes winning. I don’t mind though, so do I.
+
+“Nice,” I comment once we’re both back on our feet.
+
+“Want to go again?” she asks.
+
+“No, I was thinking about going for a run if you want to come, though,” I tell her. I really don’t want to spend any longer in this gym with Iverson watching me than I have to, and I have a feeling he’ll stick around as long as I do.
+
+As expected, she declines, and I spend the next hour running laps around the inside permitter of the walls, thinking. Davy really needs to hurry up. I need to get out of this holding pattern.
+
+
+### 22 - Chapter Name TBD
+
+“Have you heard anything?” I ask Liam several days later. “From anyone?”
+
+I’m getting edgy. It’s been close to two weeks since I’ve talked to Davy or Alex. I know Davy said a few weeks, but not being able to pop out and check up on how things are going is definitely beginning to get to me. This is the longest I’ve gone without talking to Davy in *years*. It’s also the longest stretch I’ve spent inside at night in years, and I’m not a fan of either.
+
+“I talked to Peter a few days ago.”
+
+“And?”
+
+I feel Liam shrug beneath me. “Everything was fine.”
+
+“I think we have different definitions of fine,” I mutter.
+
+“Just be patient.”
+
+“Just wait around for bad things to happen,” I sarcastically comment, rephrasing what he said to be more accurate.
+
+Liam sighs. “It’s a Friday night. Would you like to go do something?”
+
+“Yes.”
+
+“Okay, what?”
+
+“I don’t know. Anything. I feel like I’m dying being cooped up here all the time.”
+
+
+
+
+
 
 
 

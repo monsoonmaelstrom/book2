@@ -4698,9 +4698,9 @@ I open my mouth to answer his question but then close it. “That’s not fair. 
 
 “I’ll stay here,” I tell him as I walk through the door.
 
-### 23 - Chapter Name TBD
+### 23 - Here ^^2200 words^^
 
-The flat is practically cheery when I walk in. They’ve managed to add a couch and a couple of chair since we were last here, and it’s starting to feel like people live here. I’d probably like it if it my mood wasn’t plummeting in a manner equivalent to a long drop followed by a sudden stop.
+The flat is practically cheery when I walk in. They’ve managed to add a couch and a couple of chairs since we were last here, and it’s starting to feel like people live here. I’d probably like it if it my mood wasn’t plummeting in a manner equivalent to a long drop followed by a sudden stop.
 
 “Hi, Davy,” I say as I enter the room. I don’t wait for an acknowledgement before asking, “Can I stay here tonight? And no, Alex, I don’t want to talk about it.”
 
@@ -4757,6 +4757,160 @@ I can’t undo the magic on Liam. If the sameness of the object is crucial to th
 Shit.
 
 “I can’t undo it,” I tell Liam finally. “Undoing it would require changing who you are in a very fundamental way. Basically I’d have to make you into someone different, which I honestly don’t even think I could do, and even if I could I wouldn’t. Not to mention it would all become incredibly unstable in the process, and would probably kill you before I could finish it.”
+
+Liam’s expression is carefully neutral.
+
+“It’d be like trying to undo what she did to Alex and me,” I mutter.
+
+*Oh. Damn. No.* Those last thoughtless words out of my mouth give me an idea that induces near instant nausea and a rising sense of panic. I grab one of the keys off the table. (( keys need to be on the table first ))
+
+“I need to go outside,” I say as I grab one of the keys off the table and practically run to the door that goes to the roof. My hands are shaking as I stab the key into the lock, nearly missing the keyhole. I need to be outside *now*. *Nownownownow,* the voice in my head is screaming at me. I yank the door open it and smashes against the interior wall. But I don’t have time to care about that because I’m already running out onto the rooftop. I make it about five steps before the nausea overwhelms me and I’m emptying my stomach onto the roof.
+
+“Hazel?” Liam questions from the door.
+
+The sound of his voice kicks off a new round of vomiting that has me folded in half. Finally it recedes and I manage to choke out, “I can’t… I… I can’t talk to you right now. I just. Can you wait inside? Please?”
+
+I hear his footsteps retreat, and then a minute later I hear Alex’s footsteps approaching. “You should probably get Davy too,” I tell Alex as I stand and go over to the wall before sliding down it to a sitting position.
+
+“Davy, can you come out here? Bring that bottle of whiskey I picked up earlier,” Alex tells him.
+
+“Do you have anything stronger?” I ask. “Maybe some ether? Laudanum, perhaps?”
+
+“Liam, don’t leave,” Alex orders, ignoring me.
+
+“Wasn’t going to,” I hear from further inside.
+
+Great.
+
+Davy comes out carrying an unopened bottle of whiskey. I practically snatch it out of his hands. I’m raising the bottle to my lips as soon as I manage to uncap it. The glug as the whiskey flows from the bottle is almost identical to the one it makes as I gulp it down.
+
+Finally I lower the bottle and wipe my mouth with the back of my hand. “Did you realize?” I ask Davy, and it comes out sounding accusing. “Before I said it. Did. You. Realize?”
+
+“Yes,” he says flatly.
+
+“And you?” I ask Alex in the same tone.
+
+“No,” he answers shaking his head. “I’m still putting the pieces together.”
+
+I thump my head back against the bricks of the wall. The fog is still incredibly dense and I can’t see the stars at all. It feels appropriate. I drink some more. I want to empty this bottle so I don’t waste on of the whiskey when I smash it against the wall. Or Davy’s head, even though it’s not his fault. Not really.
+
+“You wanted me to find you a solution,” Davy says by way of explanation. “I found you a solution. I didn’t say it was a good solution, but I think it is the *only* solution.”
+
+“Can someone catch me up?” Alex asks us.
+
+“Go ahead,” I gesture for Davy to explain, while I drink some more.
+
+Davy sighs then looking at Alex, says, “You know Alexandria made you both more like her, but she made Hazel a lot more like her. I don’t know if it’s just that she got better at it after practicing on you, or because they’re both female, I’d guess it’s probably a combination of the two, but it doesn’t really matter. Anyway, Hazel is very similar to Alexandria, and Alexandria’s magic is targeted at herself and at Liam. But Hazel might be similar enough to Alexandria and powerful enough that she could *convince* Alexandria’s magic that she is Alexandria, and transfer it from Alexandria to herself.”
+
+“Or I could make myself more like her. Like you said, I’m close enough already that doing it probably wouldn’t kill me,” I add, saying the quiet part out loud.
+
+“Let’s hope that’s not necessary,” Davy states.
+
+Alex looks like he’s quickly understanding my earlier reaction. “Davy, that’s…”
+
+I nod.
+
+“You wanted a solution,” Davy says again. “You don’t have to use it. If I thought there was another way, I’d have said so.”
+
+“I know,” I respond quietly, because I do.
+
+“I’m going to talk to Liam for a minute,” Davy tells us.
+
+Alex sits down next to me and takes the bottle from my hands and takes a drink of his own. We sit together in silence. Presumably we both want to hear what Davy has to say to Liam.
+
+“Just wanted to let you know she’s not mad at you,” Davy informs Liam. “She’s mad at me. I think they both are now.” He sounds tired.
+
+“Why?” Liam asks him.
+
+“I’ll let her tell you. If she wants to.” The conversation from inside falls silent.
+
+“What was that about earlier? With you and Liam?” Alex asks me.
+
+“Liam thought we should’ve left the guy following us alive. And I didn’t.”
+
+“Leave him alive? That’s stupid. You never leave an enemy alive at your back.”
+
+“Yeah,” I agree. “Liam didn’t like my approach. He told me he needed time to think and when I asked if I should stay here tonight he asked me if *I* wanted to stay here tonight, which is bullshit and I told him as much. Then he *hesitated*, Alex. He *hesitated*.”
+
+Alex passes the bottle back. “That’s… rough.”
+
+I nod, and begin picking at the label on the bottle.
+
+“He’s going to want to talk to you before he leaves.”
+
+“I know,” I say, making no move to go back inside.
+
+“I’m going to send him out here,” Alex tells me as he rises to his feet, giving me the chance to object, but I don’t.
+
+A minute later Liam comes and sits down next to me. I don’t say anything. I just lean my head back against the wall again and close my eyes.
+
+“What happened earlier?”
+
+“I had a sudden, unfortunate realization,” I answer obliquely.
+
+“About me? Since my voice was enough to set you off…”
+
+“You were part of it. Yes,” I say as my fingers continue to pick at the label on the bottle.
+
+He doesn’t push me for details and instead lets the silence settle between us, which I appreciate. With the fog surrounding us, it’s easy to forget about the rest of the world. It’s a shame it can’t last.
+
+“I thought about it,” Liam tells me.
+
+“Yeah?”
+
+“You were right. I might not like it, but you were right.”
+
+I nod. “That was fast.”
+
+“I never said I needed a long time to think,” he responds.
+
+“Then why did you hesitate when I asked if you wanted me to stay here tonight?” I ask with more than hint of hurt in my voice. Even I hear it.
+
+“Because I trying to figure out the answer to your question,” he says, sliding closer to me so that his body is pressed alongside mine. “I just needed more than two seconds to figure it out.”
+
+I sigh. “Sorry. I’m not good at waiting. Or uncertainty.”
+
+“I know. So do you want to tell me what you realized?”
+
+“I can’t undo it.”
+
+“Yes, you said that already.”
+
+“But I might be able to… modify it. Move it so that’s not binding you to her but to me. You remember how I mentioned that she made Alex and me more like her?”
+
+Liam nods.
+
+“Davy and I both think that she might have made me similar enough to her that I could basically convince her magic that I was her and move it to me.”
+
+“Based on your response, I take it there’s more to it than that?”
+
+“Because that’s not bad enough?” I ask in disbelief. “There’s a chance that I might not quite be similar enough, but that given how similar I already am I could make myself similar enough without dying in the process.”
+
+“Ah.”
+
+I nod. “Davy doesn’t think I’d have to, but honestly neither of us knows. We’re just making educated guesses based on a fucking key.”
+
+“So what do you want to do?” Liam asks me. “It sounds like you’ve got more at risk than I do.”
+
+“I mean, we could *both* die. Definitely a non-zero chance of death for you, me, and my mother if I don’t get it right or if it doesn’t work the way that I think it will.”
+
+“What do you want to do, Hazel?”
+
+“I want you to think about it over night tonight. Because if I do this, and it works, your life is tied to mine forever, and if I do it and it doesn’t work, you’ll probably die. And I want you to do it *without* me. Go downstairs and stay with Peter, or whatever,” I tell him and the irony is not lost on me.
+
+### 24- Chapter Name TBD
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

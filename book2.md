@@ -5116,7 +5116,7 @@ He clasps his hand around mine, and uses it to pull me closer to him.
 
 “I know.”
 
-### 25 - Chapter Name TBD
+### 25 - Gold Chains ^^3300 words^^
 
 We meet up with Alex, Davy, and Peter at the cafe.
 
@@ -5126,51 +5126,341 @@ Peter nods to Liam and then says, “Hi, Hazel.”
 
 “Gavin and Giorgi are doing a walk-by of Davy’s flat,” Peter tells us as we sit down.
 
+“Okay. Good. How long have they been gone?” I ask.
 
+I’m wondering if I can get away with going to check up on them. Not because I think they need checking up on, but mostly just because don’t particularly want to be here. I’m still angry—not at anyone, just at the situation—and I don’t particularly want to be here. I’m not hungry and I don’t feel like sitting still. I definitely don’t feel like making small talk with anyone.
 
+“Only a few minutes,” Peter says.
 
+I sigh and order a cup of coffee.
 
+“I met with your father the other day,” Peter tells me.
 
+“Really?” I ask. I’m not surprised that they met, but I’m surprised that Peter is telling me.
 
+“Yes. He wanted to know what my impression of you was.”
 
+“What did you tell him?”
 
+“That it was hard to say, other than that you didn’t really seem to like me much.”
 
+I snort at that.
 
+“Did you really play as dumb as he made it sound like you did?” Peter asks.
 
+“Hopefully. Did he buy it?”
 
+“I think he’s withholding judgement, at the moment.”
 
+“I can work with that.”
 
+“He’s not going to keep withholding judgement when he finds the body in the river,” Liam mutters.
 
+“If.”
 
+Liam scoffs. “Okay, let me put it more bluntly, when his man doesn’t come back, he’s going to make the logical assumption,” Liam tells me, “and stop withholding judgement. *That* was my main issue last night.”
 
+“Problem?” Peter asks me.
 
+“Liam didn’t tell you?”
 
+“No.”
 
+“We were followed last night. So I made it so that we were no longer being followed.”
 
+“Well,” Peter says. “Liam is probably right. He’s suspicious by nature, so it’s not going to bode well. For either of you,” Peter looks at Liam as he says the last part. “He knows you two are… very involved.”
 
+“Great. How much does he know about Alex and Davy?”
 
+“The subject didn’t come up, and I wasn’t going to bring it up and put them on his radar.”
 
+I nod.
 
+“But fair warning in any case, if you killed one of his people he’s probably going to stop treating you like a puzzle and start treating you like an enemy, regardless of whether he finds the body or not.”
 
+I shrug. “We were bound to get there anyway.”
 
+I don’t like it, but it’s true. Regardless of whether or not he thought I was the village idiot, if he actually believes the nonsense my mother was spouting, it was always going to end badly for me. It’s hard not to have a defeatist attitude about the whole thing.
 
+Liam reaches over and takes my hand, running his thumb over the back of my knuckles. “We’ll figure it out,” he tells me softly.
 
+I nod, but I’m not sure there’s any solution that doesn’t end up with us all dead.
 
+“So what does he want from you?” I ask Peter.
 
+“The usual. Information. For me to keep an eye on Liam. To figure out what you’re up to, if I can. But since I told him you don’t exactly trust me, he’s probably not expecting much,” Peter explains.
 
+“You should tell him you ran into us here. He’s going to know we were in the area anyway.”
 
+Peter nods.
 
+“And tell him, I suppose, that we were up to something, but I wouldn’t tell you what,” I say with a shrug.
 
+“I have done this before, Hazel.”
 
+“Don’t remind me.”
 
+Giorgi and Gavin slide into seats at our table.
 
+“Looks fine,” Gavin says to everyone. “Doesn’t seem like it’s still being watched.”
 
+Giorgi nods in agreement.
 
+“Good to see you guys,” I say to both of them.
 
+I have actually missed hanging out with them. I want my life back. I want to be able to see people without having to worry that doing so is going to turn them into targets, but I’m not sure if I’m ever going to be able to do that again.
 
+I need to shake myself out of this funk. I gain nothing be being moody and sad about my situation. If anything it’s only going to reduce my ability to find possible solutions to the problems I’m facing.
 
+Step one would probably be eating something since it’s been close to a full day since I’ve had any food.
+
+“Did you guys already order food?” I ask.
+
+“I ordered for you both,” Alex says, answering my real question.
+
+“Thanks.”
+
+“So what’s new with you guys? Anything exciting?”
+
+“No, life is boring without you around, Hazel,” Gavin says morosely before Giorgi starts laughing, and Gavin breaks into a grin as well.
+
+Sitting together at the table with everyone, just eating and chatting almost makes me feel normal for a second, which in turn makes me realize just how on edge I’ve been over the past couple of weeks. It’s hard to be happy when you’re walking on eggshells.
 
 ----
+
+An hour later, Davy, Alex, Liam and I are back in Davy’s flat for the first time in months. I miss this place. I miss being here before everything started falling apart. I  throw myself onto Davy’s couch. Liam sits down next to me.
+
+“Are you ready I?” I ask him, knowing he is and dreading it at the same time.”
+
+He nods.
+
+“You’re going to have to be fast, sis,” Alex says. “Once she realizes what you’re up to, she’s going to fight you.”
+
+“I know.” I’m stronger, but this is her magic. She knows exactly how it works, and I’m just guessing with brute force and surprise being my only real advantages—and considering I don’t think I’m *that* much stronger than she is… I really don’t have much of an advantage at all.
+
+“Don’t forget about Iverson,” Davy adds softly. “If he realizes you’re up to something, who knows what he’ll do. He may try to interfere.”
+
+I nod. “Okay. Liam, move down to the end of the couch.” I wait for him to get situated before lying my head on his lap, using his leg for a pillow. “Just stay there and don’t move. I have no idea if you’ll feel anything, but hopefully not.”
+
+“Okay.”
+
+I close my eyes and focus my attention on Liam, trying to pick out the areas where I can feel my mother’s magic layer across him. When I finally pick up on it, I realize it’s been right in front of me the entire time. It’s covering him like a spiderweb—clinging and practically invisible until the light hits it just so. It’s massive, and it trails away from him, back to her, I assume.
+
+This would be a lot easier if I was doing it from her side of things and I could just try to pick it up off of her and move it onto me. But that will never happen. I think this is going to be a lot messier than I was hoping. I’m slightly less sure the outcome is going to be positive, but not enough to stop me from trying it anyway.
+
+The best I can do is look how it’s clinging to Liam, and guess what it looks like on my mother’s end. I’m going to have to hold that guess firmly in place as I grab onto the magic and pull it to me really, really hard, really, really fast before I slam it into place and hope for a good outcome. Hope that I got it right. Hope that it’s close enough and that I’m close enough.
+
+Awesome.
+
+I don’t bother to mention any of this to anyone else before I start working. It doesn’t matter. There’s nothing they can do about it. There’s nothing anyone can do about it. It’s just going to suck, like so many things in life do.
+
+I map out the entire web of magic clinging to Liam, and as I do, I’m trying to figure out the directionality of it all. How does it bind him to her, but not her to him? If I try to duplicate the pattern I see on him it won’t work. I’m sure of that, but I don’t know what the pattern on her end looks like.
+
+I don’t think my original plan is quite going to work. I’m really going to have to rely upon the fact that, according to everyone else, I can make reality bend to my will, and I’ve never quite believed that they were right. It’s all just energy. If I can slide the idea of me that is most like her into the web stretching between them, and then I pull ever so slightly, I might just be able to snap it from her to me. Hopefully it’ll be like a magnet, and since in that analogy I’m both the stronger magnet and the closer one, it might work. Maybe. There will probably be half a second of pure agony, followed by some amount of disorientation, but if it works, and I’m still conscious, then I do whatever is required to make it bidirectional.
+
+If. If it works. If we don’t all die. There’s nothing to it but to do it.
+
+I think about all the parts of me that are most like her, and not only the physical similarities. All the parts of myself that I typically try to lock away and pretend aren’t there. All of the parts of myself I like least. The parts that make me unlike a normal person. The parts of me that are willing to burn the world down to get exactly what I want. The parts of myself that let me slide a knife into a person’s chest, and toss a body into a river like it’s just piece of flotsam. The parts of me that think of the people I love as my possessions, as things that *belong* to me. And it’s this last one that I crystalize my self image around.
+
+I know she thinks of Alex and me as possessions that belong to her, rather than as individuals with our own desires and motivations, and I build my sense of self out of all of it, but mostly that Liam is mine and not hers. He belongs to me, and if there’s any magic that’s going to cut his life short, it’s going to be *mine*. My person. My magic. All of it is mine.
+
+I hold this version of myself front and center as I begin to force my way into the spider web of magic I sense coming off of Liam until I’m right in the center of it. So far, I haven’t broken or changed anything. Everything that connects Liam to my mother is still in tact. But now I’m going to give one hard tug on all of her magic, and hope that it snaps to me like a magnet. If I’m right, and it does, it won’t even require that much power because she already did that part. It’s just going to hurt. Probably a lot. And I’ll have to hold it there until it stops. At least it should hurt me more than it hurts Liam. I think.
+
+I take a deep breath, and let it out. In, and as I breathe out, I pull. I probably use more power than I need to, and I’m sure she’ll have a comment about that later, but I want to be sure. I want it, and I let myself have it.
+
+And then the screaming starts. Me. I’m the one screaming. I’m not surprised and I pull the pain in closer and closer holding it tight to me so that it doesn’t spill onto Liam. It’s not slowing or stoping though, and I holding the magic in place as it burns me from the inside out is all I can do. I can’t even separate myself from the pain.
+
+“Help her!” I hear Liam yelling.
+
+The screaming stops, but the pain doesn’t. Actually, I’m still screaming, it’s just soundless now.
+
+“Whatever you did, it didn’t work. She’s still in pain,” Liam says.
+
+“No shit,” Davy mutters, “but no one can think over the sound of that.”
+
+“So you just stopped the sound?” Liam asks, and he sounds aghast.
+
+I’d laugh if I wasn’t so busy silently screaming. Sometimes I don’t think Liam understands us at all. I don’t think the pain is lessening at all, but even I’m relieved not to hear the sound of it.
+
+“Yes. Alex, see what you can do about the pain. Liam, either shut up, or talk to Hazel. Hazel, as much as you can you need to let me in. I can’t help if I can’t see what’s happening.”
+
+I hear his words, but right now, I don’t have the ability to do it. Or the ability to tell him that. Or anything else.
+
+“Hazel,” Alex says, “I know you’re trying not to let it spill over onto Liam, but you need to let it or we’re not going to be able to fix it. And if you don’t it’s probably going to happen anyway. How long do you think you can keep this up?”
+
+As long as I need to is always the answer, but I can’t say that right now either.
+
+“If you don’t let it,” Alex threatens, “I’ll drug you and we’ll see how well you manage then. How much of it do you think will spill over onto Liam then? I bet it will be a lot.”
+
+Fuck. He’ll do it. I know he will. I’d do the same if our positions were reversed. It’s the logical decision. I hate it.
+
+I release the grip I have on the pain, and I swear I can almost feel it moving along the bond between Liam and me, and he starts to scream too, before Davy does the same thing to him he did to me.
+
+It frees up just enough space that I can lower my shields enough for Davy and Alex.
+
+Davy looks between me and Liam a few times, his gaze lingering longer and longer each time it lands on me.
+
+“Damn Hazel,” he finally mutters. “You’ve really botched this. What your mother did to him looks like needlework. What you just did to yourself looks like a giant knot. If you give me two or three weeks maybe I could fix it, but you’d both be in agony the entire time.”
+
+“Alex,” Davy sighs, and jerks his head away from us.
+
+They leave us screaming silently on the couch while they have a discussion out of my field of view. A few minutes go by and I hear footsteps on the staircase followed by the sound of the door opening and closing.
+
+Then Davy comes back to the couch and crouches in front of me. I want to ask him what he’s doing—I can’t though because I can’t do anything other than try to control the agony I’m feeling—but I’m afraid I already know.
+
+----
+
+I’m not sure how much time passes before I hear the door open and close, followed by two sets of footsteps.
+
+Fuck.
+
+Alex comes into my field of vision first. Followed by my mother of course. Who else could Davy possibly send for? And I know this was his idea and not Alex’s.
+
+“Alexandria, I need you to help me fix this,” Davy tells her.
+
+I see her flick her eyes to him, but she says nothing.
+
+“Mom,” Alex says, and I note he now has a knife at her back, “you will help us fix this.”
+
+“Why would I ever want to do that, Alexander? Your imbecile sister got herself into this mess. I see no reason to intervene now. Actions have consequences. If she didn’t want to feel them, she shouldn’t have been so stupid.” She looks at me. “Does it hurt, daughter? It looks painful. You were close. So very close. If only you weren’t so impatient, maybe you could have figured it out.”
+
+I’d spit on her if I could, and part of me very much wants to tell her I’d rather suffer this agony than accept her help, but I can’t because all I can do, assuming Davy even lets me make a sound, is scream.
+
+“Help them, or so help me, I will kill you myself,” Alex tells her.
+
+She rolls her eyes, and I can see Alex fighting the impulse apply just a little bit of forward pressure to the knife in his hand.
+
+“Alexandria,” Davy says, “I think he means it. If you help us, I promise that neither Hazel, Alex, nor I will attempt to harm you or interrupt your plans, so long as they do not involve us, now or at any future date.”
+
+“That’s an awfully big promise you’re making on behalf of my children, Davy,” she says thoughtfully. “Are you sure you speak for them?”
+
+“Yes,” Davy says.
+
+She looks at Alex and waits.
+
+“Yes,” Alex mutters frustratedly.
+
+“Very well, I will help.”
+
+“To be clear,” Alex begins, “in this context, help means that you will fix the magic on Hazel, you will not rebind Liam to you, and you will do nothing to Hazel other than fix that magic.”
+
+“Yes, of course,” she agrees.
+
+“Anything else makes the agreement null and void,” Alex emphasizes.
+
+“Obviously,” she tells him with more than a hint of annoyance.
+
+Davy comes over carrying two chairs, which he sets in front of us, and they both sit and begin working.
+
+Several minutes go by, and eventually my mother hisses sharply, “No, not there. Not like that. You’re barely any better at this than she is. It’s a *weaving* Davy, not macrame.”
+
+The skin around Davy’s eyes tightens but he only nods, and they continue working in silence.
+
+The light I can see outside tells me we’ve crossed the threshold into late afternoon. And my mother and Davy are still working. I think the pain has lessened enough that I would no longer be screaming. I could probably even move if they would let me, but Alex’s magic is locking me in place. Liam too, I assume.
+
+Late afternoon is trending toward evening when my mother waves Alex’s magic away and says to me, “You wanted this to be bidirectional, yes?”
+
+I nod.
+
+“Very well. It will allow me an easy way to kill you, should I so desire.”
+
+I roll my eyes because I still can’t speak.
+
+“Done,” Davy says, looking to my mother for confirmation.
+
+“Done,” she agrees. “I can’t believe you thought you could just thrust your way into a weaving, daughter,” she says derisively.
+
+Finally I feel Davy’s magic evaporate, and I tell her, “I was trying to be quick. I can’t reconstruct a*weaving* quickly.”
+
+“Perhaps you should have practiced then. It’s like I’ve taught you nothing,” she says, rising.
+
+“The stuff with the energy meridians, did you teach it to Iverson? Or did he teach it to you?” I ask.
+
+“Which do you think, daughter?”
+
+“I think you taught him, but I think he’s better than you at it. I think he’s better than you at everything,” I say trying to bait her.
+
+She shrugs noncommittally, and then asks, “The snow and the fog?”
+
+I think for a moment. “If I tell you, I want a favor.”
+
+“I just did you a favor.”
+
+“No. You did Davy and Alex a favor. I would have *never* called you. I would have figured it out eventually,” I tell her with far more confidence than I actually feel.
+
+She snorts in response. “Very well.”
+
+### 26 - Damage Gets Done (( ??? )) ^^
+
+Liam and I slowly walk back to the campus. At the rate we’re moving, dusk will have crossed into true night by the time we get back, but neither of us has it in us to hurry given the way the rest of the day went.
+
+I did everything wrong, and I know better. My mother wasn’t wrong when she said I deserved what I got. Liam didn’t deserve to share in that agony though. I’m honestly surprised she helped at all. I still think eventually I could have figured it out, it just would have taken days for me to be able to fight through the agony enough to do it though. Days I didn’t have. She wasn’t wrong when she said that binding me to Liam gives her an easy way to kill me though. But I still don’t think that’s enough to explain her decision, which worries me. I feel like I’m trying to put together a puzzle but some of the pieces are missing, and I don’t know how many because I don’t know what it’s supposed to look like when its done.
+
+Everything that happened earlier was my fault, and I’m angry at myself for being so recklessly impulsive.
+
+“I’m sorry,” I tell him as we cross the bridge to the ((??? )) side of the river. “She was right. I should have been more careful. I shouldn’t have rushed it. I should have spent days working on it before I did what I did.” They’re the first words either of us have said since we left Davy’s, and my eyes look at everything but Liam as I apologize.
+
+“Let’s stop for a minute,” Liam says after a few steps.
+
+“Why?”
+
+“If you remember, I like to have face to face conversations,” he comments as he pulls me toward the side of the bridge.
+
+I let him but I lean over the railing to stare at the water once we’re there. “That’s exactly what I was trying to avoid,” I mutter.
+
+“I know,” he says as he wraps his hands around my waist, and spins me toward him.
+
+“What are you—” I begin before he lifts me up to sit on the bridge’s parapet bring us nearly eye level with one another.
+
+“Face to face,” he tells me softly, his hands still around my waist.
+
+I sigh, but meet his eyes, only inches from my own. “I’m sorry,” I repeat. “It wasn’t supposed to hurt you. You shouldn’t have had to bear the consequences of my actions. You believed me when I said I could do it, and I was wrong.”
+
+“Hazel,” he says, and I think I hear frustration in the low rumble of his voice as he pushes the hair that’s fallen into my face back. “You told me we could both die. I was never under the impression you were sure it would work. *We* knew it was a risk, and *we* decided it was worth it anyway. Both of us.”
+
+“I don’t like being wrong.”
+
+“You don’t like *losing* and you feel like you just lost,” Liam tells me.
+
+I consider it for a second and realize he’s right. I do feel like I’ve just lost to my mother.
+
+“I think though,” he says, his thumb stroking along my cheek, “that you probably came out ahead.”
+
+“We’ll find out tomorrow, I guess.”
+
+“Mhmm,” Liam hums, his pupils having dilated so wide I can see my reflection in them in the remaining light that’s being scattered by the water. They feel like whirlpools pulling me in and I find myself unable to look away.
+
+“We should go back,” I say, barely above a whisper.
+
+“We should,” Liam agrees, but neither of us moves to do so.
+
+Instead, Liam moves closer, and I let him. He wraps an arm around my waist, pulling me to the edge of the bridge’s parapet and into him. It’s all the invitation I need. My lips are hungrily upon his.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+(( the favor is that Alexandria is going to claim there was an intruder and she killed Iverson’s man ))
+
+
+“Besides, you’ll like it. You can cause a scene. Be dramatic. Vengeful. Your bread and butter.”
+
+
+
+
+
+
+
 
 
 
@@ -5180,8 +5470,6 @@ Peter nods to Liam and then says, “Hi, Hazel.”
 
 Things that need to happen:
 
-
-2. Figure out how to undo Alexandria’s magic on Liam
 3. Go talk to Alexandria
 4. Peter double agent???
 5. Get captured

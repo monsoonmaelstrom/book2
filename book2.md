@@ -5388,9 +5388,9 @@ I think for a moment. “If I tell you, I want a favor.”
 
 “No. You did Davy and Alex a favor. I would have *never* called you. I would have figured it out eventually,” I tell her with far more confidence than I actually feel.
 
-She snorts in response. “Very well.”
+She snorts in response, but doesn’t go so far as to tell me I’m wrong. “Very well.”
 
-### 26 - Damage Gets Done (( ??? )) ^^
+### 26 - Closer ^^3500 words^^
 
 Liam and I slowly walk back to the campus. At the rate we’re moving, dusk will have crossed into true night by the time we get back, but neither of us has it in us to hurry given the way the rest of the day went.
 
@@ -5434,26 +5434,310 @@ I consider it for a second and realize he’s right. I do feel like I’ve just 
 
 “We should,” Liam agrees, but neither of us moves to do so.
 
-Instead, Liam moves closer, and I let him. He wraps an arm around my waist, pulling me to the edge of the bridge’s parapet and into him. It’s all the invitation I need. My lips are hungrily upon his.
+Instead, Liam moves closer, and I let him. He wraps an arm around my waist, pulling me to the edge of the bridge’s parapet and into him. It’s all the invitation I need. My lips are hungrily upon his. I throw my arms around the back of his neck to draw him in even further. He nips at my bottom lip, drawing it beneath his teeth before releasing it, and I moan softly. (( more more?? ))
 
+Finally, I force myself to pull back. “We should go,” I say again.
 
+Liam nods and lifts me off the parapet, setting me back on the ground, but doesn’t step away.
 
+“Did you…” he trails off.
 
+“Did I what?”
 
+“Nothing. Never mind.” He slides his hand to the small of my back. “Let’s go.”
 
+----
 
+It’s dark by the time we walk back through the gates, though well before curfew, not that that applies to Liam. It does to me though, and I am, at least in theory, still supposed to be on my best behavior. We’ll see how much longer that’s enough to hold Iverson at bay. We’ll see what tomorrow brings, but at least for tonight, things *should* be okay.
 
+Liam’s hand is still on my back as we both head toward his room. He hasn’t stopped touching me since the bridge, which I’m not complaining about since I don’t exactly want him to stop, but it is a little distracting, which is possibly why I fail to realize we’re quickly approaching General Iverson, until we practically run into him.
 
+I lurch to a stop in time to prevent a collision and Liam drops his hand from my back.
 
+“General Iverson, sorry!” I say quickly. “I didn’t see you.”
 
+“Miss Raidane,” he says cooly. “Where were you this weekend?”
 
+“Visiting family.”
 
+“And you Captain Marten?”
 
+“The same, sir,” Liam says.
 
-(( the favor is that Alexandria is going to claim there was an intruder and she killed Iverson’s man ))
+“So you were not together all weekend?”
 
+“No, sir,” I answer.
 
-“Besides, you’ll like it. You can cause a scene. Be dramatic. Vengeful. Your bread and butter.”
+He stands in front of us in the center of the hallway, blocking us from proceeding and looks between us saying nothing.
+
+“Can I help you with something, General?” Liam finally asks when Iverson continues to block our passage.
+
+“Yes, Captain. Come with me.”
+
+I step to the side of the hallway as Iverson brushes past me, dismissing me. Liam meets my eyes before glancing to his room as he turns to follow Iverson. The intent is clear—he’ll meet me there when he’s able to. His hand brushes across mine as he retreats back the direction we came from, following Iverson.
+
+I seriously debate following them, but it occurs to me that Iverson might want to see if I do. So I don’t. Instead I continue to Liam’s room to set my stuff down, and then go to take a shower.
+
+When I’m done, and lying alone on Liam’s bed with still damp hair, I begin to examine what my mother and Davy did. She and Davy were both right. It is like needlepoint. It’s delicate and precise, and exactly the sort of thing I hate doing. Exactly the sort of thing I always just try to brute force my way through. I can’t help but sigh. I guess I need to suck it up and start practicing.
+
+I note spots where it’s woven through and around my energy meridians and I think that’s loop around them are what she did to make it so that if Liam dies, I die. I think the strands that run through them mean that if I die, Liam also does.
+
+Great. So now every time I do something dangerous it’s not just my own life I’m playing with. I let my magic move across the strands that bind us together, and it feels like it creates a harmonic vibration not entirely dissimilar to what Iverson did.
+
+I lie there staring at the ceiling for a while, evaluating my options when suddenly I feel the ghost of a thrumming echo throughout my body and jolt upright.
+
+“What the hell?” I mutter, redirecting my focus inward. Everything looks… normal. Or at least whatever this new normal is. Once again I let my magic move across the strands stretching between Liam and me, and I feel the same humming sensation.
+
+Much quicker this time there’s a thrumming that spreads throughout my body in response. Fuck. This is… fuck.
+
+The room suddenly feels claustrophobic, and I need to get out of it. I go out the window. It’s the quickest way outside and onto the roof. Once I make it onto the flat section of roof (( compare to orig description)) I begin pacing. This is so not what I signed up for. I feel the need to crawl out of my skin. It’s like my body is not my own anymore. I don’t know if this is normal, but I don’t like it and it certainly doesn’t *feel* normal.
+
+I wish I had someone to talk to. But no one can come to me and I can’t go to anyone else. That leaves Amelia, who I don’t fully trust, and Henry who I like well enough, but this definitely isn’t the kind of thing I want to discuss with him.
+
+It’s too late to do anything about it. Literally. Metaphorically. But still. I wish I’d *known*. Finally, I give up on the pacing. It’s not helping anyway. I lie down on the roof and stare up at the stars. I think Liam realized it on the bridge. Or realized *something* at least. But I was too busy being annoyed that I botched it to notice at first, and then too distracted by him to realize it after that. Damn.
+
+I’m not sure how much time has gone by. I’ve lost track, but I think I’ve been lying on the roof for a few hours at least trying to reconcile the fact that the magic tying me to Liam is so much deeper than I realized. It doesn’t just bind our lives and deaths to one another, it’s… more. I don’t even know how much more. I feel like I should have been giving a manual. Some kind of instructions. I have a strong feeling this may not be normal, but the only person who is liable to know probably wouldn’t give me a straight answer even if I could ask her.
+
+The only reason I’m still sober is the tremendous lack of any kind of alcohol on this campus, which I’m beginning to view as a serious problem, but unfortunately, tonight is not the night to rectify it.
+
+Eventually, I give up and make my way back to Liam’s room. He’s still gone, so I crawl into bed alone and try to force myself to fall asleep. Apparently I’m successful because I’m woken by the bed sinking and Liam wrapping an arm around me.
+
+I nestle myself into his embrace. “You knew on the bridge,” I say groggily.
+
+“I felt something, but I didn’t know. Not really.”
+
+“Why didn’t you say anything?”
+
+“I was going to, but then…” he sighs and I feel him shrug behind me.
+
+“What time is it?”
+
+“Almost four in the morning.”
+
+“You smell like smoke,” I comment.
+
+“Sorry,” he says pulling away, “I’ll go shower.”
+
+“No,” I grab his arm to stop him from leaving. “Stay. What were you doing?”
+
+“Nothing good.”
+
+I find myself suddenly much more awake, and I turn to face him.
+
+“Nothing good like…?”
+
+“I think Iverson was trying to make a point.”
+
+“A point like…? What happened, Liam.”
+
+“He set fire to some barges on the river.”
+
+“Why? What kind of point is that making?”
+
+“Nominally because their ((?? Bearth? Manifest? Origin? )) didn’t originate in Branton, and they weren’t registered with the port authority, making them ‘potentially dangerous to ((??? More here figure it out )). I got the impression the point was directed at me though. There was no other reason for me to be there. I think he may have expected you to follow and that you might react if you had,” he says, running a hand through my hair.
+
+“Huh.” Would I have reacted? Or would I have sat in the shadows and watched the ships burn. Hard to say. Flip a coin. “Was anyone hurt?”
+
+“Not yet,” Liam sighs.
+
+It’s clearly only a matter of time. Dairuvar doesn’t want an alliance. They’re going to do something to break it. It’s only a matter of time until Iverson decides how he’s going to do it. So far, I’ve had the impression that the only thing stopping him is the public backlash, but clearly that’s no longer a deterrent.
+
+“Well, tomorrow should be interesting,” I say drily.
+
+“Yes,” Liam agrees trailing his fingers over the bare skin of my upper arm, and goosebumps spread across my skin in response.
+
+“Earlier on the bridge, what happened?” I ask as I move a little bit closer, since he seemed to have noticed something I didn’t.
+
+In response to my question, Liam kisses me. His mouth is soft on mine at first, but I sense the heat behind it, and as I tilt my head for a better angle, his intensity grows, and I press into him matching it. His lips part and I don’t need any additional invitation, my tongue is sliding over his. His hands slide down to my waist and then around my hips as he pulls me closer, and I moan softly against his mouth.
+
+He pulls away suddenly and says, “That.”
+
+“What?” I ask uncertainly.
+
+“You didn’t feel it?”
+
+I shake my head.
+
+“Pay attention to the magic stretching between us,” Liam tells me before quickly bringing his mouth back to mine.
+
+I try not to be distracted by the sensation of his tongue sliding over mine, and his hand gripping my ass as his hips press into mine, but I’m quickly losing focus to the feel of his body against mine. He moves onto his back pulling me on top of him, and I feel every hard line of his body beneath me. His hand moves up to caress my breast. The thrill of the sensation has me arching into his hand, moaning. Somehow, I’m still paying just enough attention that I see it this time.
+
+The magic between us flares, evidently in response to my desire for him. I pull back suddenly, gasping. I’m leaking magic. My cheeks go hot as I jump to my feet, moving away from the bed, from Liam.
+
+I hear my mother’s voice in my head mocking me:  *‘You clearly still can’t manage your power adequately.’* Fuck. I don’t know if I ever been so embarrassed in my life. My breathing is coming in rapid, ragged gasps now for all the wrong reasons. I reach for the wall to brace myself. A small, rational part of my brain is trying to tell me that I’m hyperventilating and I need to slow my breathing, but it’s definitely losing the battle as I hear her word echoing in my head.
+
+Liam’s standing in front of me, his hands are on my shoulders. I didn’t even see him move.
+
+“Hazel?”
+
+I close my eyes as I fight to regain control but the lack of visual reference only makes me dizzier. If it wasn’t for Liam’s hands on my shoulders, I probably would have fallen into the wall or the desk by now.
+
+I shake my head. I can’t. How could I not have noticed? Am I like this all the time? What is going on?
+
+“Hazel, calm down and talk to me,” Liam says, sliding his hands down my arms until his hands are wrapped around mine.
+
+“Am I always like this?” I blurt out.
+
+“Like what?” Liam asks evenly.
+
+“Wrong. Am I always wrong?” I ask desperately. Liam’s words were laced with just enough magic to take the edge off, but I’m still steps away from a full blown panic attack.
+
+“What do you mean?”
+
+“She said I couldn’t manage my power, and here I am leaking power onto you and not even noticing it just because I’m… excited,” I finish lamely.
+
+Liam laughs.
+
+“Don’t do that!” I say as I yank my hand from his.
+
+“Hey, wait,” he says quickly. “I’m sorry. I wasn’t laughing at you, I promise.” He enfolds me in his embrace. “And no, I don’t think you’re always like that. Or at least today is the first time I felt it. So no, I don’t think she’s right and no, you’re not always wrong. I think this is new and it probably makes it a lot easier for it to happen. It’s like adding a new spigot to a water pipe.”
+
+“I—I’m sorry. I had no idea.”
+
+“Don’t be. It feels… nice.”
+
+I don’t say anything. I’m still embarrassed, I guess. I can’t believe I didn’t notice. It’s seriously mortifying.
+
+Seeing my reaction, Liam sighs. “Here,” he says, tilting my chin up so that I’m looking at him. “Let’s try something, okay?”
+
+He waits a moment, and when I don’t respond, he lifts me up, pinning my body between his hips and the wall, and he brings his mouth to mine, kissing me gently at first, giving me the chance to object. When I don’t, his teeth nip at my bottom lip, and his hand moves under the shirt I was wearing to sleep. As always, his hands on my bare skin feels like fire, and my hands wind into his hair as I wrap my legs around his hips. Somehow, despite there being no space between my back and the wall, or my chest and his, he pulls my shirt free from my body. I moan as the pad of this thumb strokes over the sensitive skin of my nipple, instantly bringing it to a hard peak.
+
+Then I feel… everything all at once. It’s a flood of sensation across my entire body. Like Liam and I are existing, momentarily, in the same body. It’s a mixture of physical, magical, and emotional sensation unlike anything I’ve ever felt before. I think I’m experiencing his feelings for me and mine for him at the same time. It’s all blending together into a pleasure that’s just this side of pain, but oh, gods. It feels so good.
+
+When it finally ebbs, my whole body feels limp. I would be in a puddle on the floor if Liam wasn’t holding me up, and he still has all of his clothes on.
+
+“What did you just do?” I ask.
+
+“The same thing you did, only intentionally and—because it was intentional, instead of just spillover—more. Like I said it feels nice,” his mouth twitches into a half smile as he says that last part.
+
+“That was more than just nice,” I tell him. “I’ve never felt anything like that in my life.”
+
+He shrugs, and it’s hard to tell in this light, but I think he might be blushing.
+
+“Can you stand?” he asks me.
+
+“I have no idea. Carry me? I want to finish what we started.”
+
+That’s all it takes for him to spin us around and move to the bed. My mouth is on his neck, my tongue and teeth working across the sensitive flesh near the base of his jaw. He tastes like salt and smoke, and I want more. I’m pulling off his shirt as soon as my back hits the mattress, and he helps me by removing his pants. Immediately, I’m wrapping my hand around him, stroking him. His eyes flutter closed as groans.
+
+I’ve never wanted anyone the way I want Liam, and I’m pretty sure the feeling is mutual. It terrifies me more than any physical danger ever could.
+
+He lowers his weight onto me slowly and the bed sinks as his hands find mine and bring them above my head, pinning them to the bed. He drives into me with one quick thrust, wringing a shout from me. I roll my hips to meet his on the next thrust and we begin moving together, though he keeps my hands pinned. His mouth is on mine, and I feel every hard line of his body brushing against mine.
+
+I begin to let my feelings for him bleed into the magic connecting us, and I feel him gasp. I stroke my tongue across his and deepen the pressure of my mouth on his as I lightly feed more energy into magic binding us together—this time on purpose.
+
+“Hazel,” he groans above me, pausing.
+
+“I want *all* of you, Liam,” I say as I meet his eyes, and it feels like I’m falling head first into him.
+
+He hesitates.
+
+“*All* of you,” I reiterate.
+
+“If you keep that up, this is only going to last another minute or two,” he says raggedly.
+
+“I don’t care. I want you *now*.”
+
+That’s all it takes. He’s thrusting into me wildly, and I think we’re both feeding energy into the magic binding us, and it’s bouncing back and forth between us now the same way the agony was before, only now it’s ecstasy.
+
+A shout escapes from him as he comes into me, and the fullness coupled sensation already bouncing between us pushes me over the edge, and my body is writhing beneath him as I orgasm too.
+
+We stay entwined like that for several minutes, both unable and unwilling to move.
+
+“I love you so damn much,” Liam murmurs next to my ear, barely above a whisper.
+
+### 27 - Help, I’m Alive ^^1600 words^^
+
+I’m stepping out into the hallway, pulling Liam’s door closed behind me as the door to left opens. I pause, surprised.
+
+“You know these walls aren’t that thick?” an annoyed voice queries.
+
+“Hi, John. Yeah,” I say somewhat abashedly. “Sorry about last night. We’ll, uh…”
+
+“Be quieter?” he suggests.
+
+“Yeah. That.”
+
+He nods and walks off down the hallway. Probably half of this wing heard us. I sigh, and begin making my way to the cafeteria while I wait for the inevitable to happen.
+
+Liam left earlier, after getting a couple of hours of sleep. I’ve been awake since he got back, studying the magic that’s bind us together. Trying to understand it better, since so far it’s done nothing but surprise me. I think I have a basic understanding of it, but I’m sure there are layers to it, and there’s a lot I don’t know yet.
+
+And while there are clearly some… benefits, so to speak, I’m still not exactly thrilled about it all. At some point, I’m actually going to need to try to speak to my mother to answer the questions I have related to it, as well as a slew of others, like what the fuck she was doing with Iverson and the others forever ago. She seems to be the catalyst for everything that’s currently in motion, and I get the feeling she knows so much more than she’s even hinted at, let alone shared.
+
+I’m kind of hoping to find Amelia, before whatever’s going to happen, happens—which isn’t something I thought I’d ever find myself thinking a few months ago. Part of me was kind of hoping Liam would be around today, even though I know, logically, it’s probably better if he isn’t.
+
+I’m dreading today.
+
+I don’t see Amelia or Henry when I enter the cafeteria, so I grab I cup of coffee and a pastry and sit down alone. I slowly pick at the pastry more out of a sense of duty that I should eat something, and not because I’m actually hungry.
+
+I’ve been sitting in the cafeteria for about twenty minutes when the tenor of the conversations around me begin changing like ripples spreading outward across the surface of a pond. People begin filing out of the cafeteria, and others begin following, curious to find out what’s happening. I take that as my cue and follow the others, blending in.
+
+They’re all moving toward the main gallery. The largest one, with the most seating. By the time I enter though, all of the seats on the main floor are filled, and from what I can see of the balcony it looks equally full.
+
+I stay standing against the back wall, just to the right of the door. Nothing is happening yet, but word has spread widely that *something* will be happening soon, apparently, and I guess no one wants to miss out.
+
+Commander Melbrin files in finally, followed by my mother, who walks past me without so much as a glance in my direction. Damn. I didn’t expect her to come herself. I was anticipating her summoning Commander Melbrin and forcing her to deliver the message, just like she did when she request an escort.
+
+That was stupid of me. *Of course* she showed up. *Of course.* She’s going to cause a scene. Be dramatic. Vengeful. It’s her bread and butter. Of course she wouldn’t pass up an opportunity like this.
+
+I sigh. In for a penny. I make sure my face is expressionless by the time she reaches the front. Someone is going to figure it out. Probably lots of someones.
+
+Finally, General Iverson and Commander Selby enter the gallery and head to the front where my mother and Commander Melbrin are already waiting.
+
+The quiet stretches across the hall. Everyone is eager to hear what’s going on.
+
+“Alexandria Raidane of Avonare and Commander Melbrin are here today with an accusation of espionage and a failed assassination attempt by Dairuvar and General Iverson against Alexandria Raidane,” Commander Selby begins, pitching his voice to carry.
+
+I make sure my face still betrays no expression as he finishes with his first statement. I see a dark haired head begin scanning the room before finding me. John. He looks at my mother again, and then back at me before refocusing on the proceedings at the front. I see several others scattered throughout the room doing the same thing.
+
+I don’t move. I don’t make eye contact with anyone. I barely breathe. Still, the whispers start, and the head turns begin to ripple through the crowd as people find me and point me out to others.
+
+Now that they’ve heard the name Raidane and seen my mother at the same time, they’ve realized I’m not just *a* Raidane. I’m one of *the* Raidanes. I knew this was inevitable when I asked her for a favor, but I still don’t like it.
+
+I dig my nails into the palms of my hands, but I don’t acknowledge all the looks currently directed my way. I remain unresponsive and unmoving.
+
+General Iverson follows the stares of the others around the room, and his eyes finally bore into mine, and I see the wrath underlying his gaze.
+
+My mother steps forward. She doesn’t address the other Commanders in the room. She addresses the crowd. She doesn’t care about their decision. She’s already dismissed them. She’s going for hearts and minds, apparently.
+
+“On Saturday evening, I encountered a man in my residence, looking through my papers and personal effects. Upon confronting him, he attacked me. I was knocked to the floor, and he had a knife at my throat when one of my guards intervened, and killed the assassin. Upon searching his body, I found a Dairuvarian ((??? Check)) signet ring,” she says holding up a ring, which passes to Commander Selby after pausing for a few seconds to allow the crowd to take it in.
+
+Commander Selby inspects it, and then hands it off to (( ??? )), who does the same before passing it on.
+
+I wonder if it’s Christine’s ring. If not, I wonder how she got her hands on it.
+
+“You all know about Dairuvar’s hostility. It’s why I have returned. Someone needs to stand against Dairuvar and General Iverson,” she angles her body toward him slightly, as if she’s ready to confront him now.
+
+His eyes tighten slightly in response to her specifically calling him out by name.
+
+“I came back to be that person! To help Avonare! To help the Allied Polities!” she cries.
+
+She’s really getting into this. I want to roll my eyes, but I force myself to remain impassive.
+
+“General Iverson knows this! He understands the threat that a strong Avonare, united with the other polities, poses to his goals, and he tried to have me assassinated to prevent that from happening! This cannot stand! I call for him to be removed as the commanding General of the Allied Army, a position he never should have been permitted to assume given his ties to, and standing within, Dairuvar. If his actions are permitted, we all know it will not be long before he declares war on the other polities and uses the Allied Army to do it!”
+
+She’s definitely got the crowd with her right now, and I think she’s doing it all without any magic. I’ve never seen my mother put on a performance quite like this. I’m almost… impressed, as much as I hate to admit it.
+
+The crowd shifts slightly around me, and Liam steps into place beside, his upper arm brushing against my shoulder, as he folds his arms across his chest. His face is expressionless, but I can tell he’s angry. I’m just not sure why.
+
+The crowd begins murmuring, discussing my mother’s accusations. General Iverson steps forward, and waits, staring silently at the crowd waiting for them to quiet.
+
+Finally the murmuring begins to abate, and General Iverson clears his throat. “Despite what Alexandria Raidane claims, I know nothing of these accusations. No one from Dairuvar has been sent to interfere with her, and *certainly* no one from Dairuvar has been sent to interfere with her at my direction,” he pauses, and the force of his personality keeps the room silent as he does so. “I do not know where the ring she presented came from, but it was not from anyone with ties to Dairuvar.”
+
+*Bold claim, that,* I think to myself.
+
+“I further reject all of the… *accusations* she has made about my intentions, or the intentions of Dairuvar. No one respects the alliance more than Dairuvar, and *certainly* not someone who has been… absent for the last three decades, letting her own polity fall into disarray.” General Iverson steps back, obviously feeling those statements should speak for themselves.
+
+I can’t say I disagree.
+
+The crowd looks torn. They know he made some valid points, but *everyone* knows that what my mother said about Dairuvar was also accurate. And she brought props. Everyone loves a good show and tell.
+
+“We will reconvene tomorrow, after we have all had a chance to discuss these assertions among ourselves,” Commander Selby announces to the room.
+
+Conversations immediately breakout everywhere, and it’s seconds before the room is practically an indecipherable roar.
+
+I stay against the wall, where I’ve been the entire time, unmoving, as people begin to filter out of the room. Liam scowls at anyone who looks like they’re going to try to approach me, which I appreciate. The last thing I want is to talk to any of these vultures that are about to start circling.
+
 
 
 

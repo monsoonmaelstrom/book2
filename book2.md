@@ -5744,7 +5744,7 @@ Conversations immediately breakout everywhere, and it’s seconds before the roo
 
 I stay against the wall, where I’ve been the entire time, unmoving, as people begin to filter out of the room. Liam scowls at anyone who looks like they’re going to try to approach me, which I appreciate. The last thing I want is to talk to any of these vultures that are about to start circling.
 
-### 28 - Help, I’m Alive ^^
+### 28 - Help, I’m Alive ^^2400 words^^
 
 I let the room empty before I even think about moving. By the end, the only people still in the room are Commander Selby, the visiting Commanders of the armies of the Allied Polities, my mother, and General Iverson. Liam left after everyone else did, still looking angry, but I don’t know why.
 
@@ -5890,7 +5890,84 @@ She nods.
 
 I’m awake the next morning as night turns to dawn which gives way to day. I haven’t slept. I’m on approximately my thirteenth cup of coffee in half as many hours, but who’s counting? Liam never reappeared last night. If he’d given any indication that he was planning on not returning last night, I’d be less concerned. But he didn’t, so I am. Especially given his mood yesterday. I let my magic brush across the magic that’s binding us together, and I get no response. I heat up the ring I’m wearing for him, and once again, nothing.
 
-Clearly he’s still alive, because I’m still alive, but he’s completely unresponsive which means he’s either unconscious, or drugged. Or both.
+Clearly he’s still alive, because I’m still alive, but he’s completely unresponsive which means he’s either unconscious, or drugged. Or both. And there’s not much I can do about it right this second.
+
+I get dressed, braid my hair, and head to the cafeteria to get some food since I’m guessing this will probably be the one chance I have to eat today. I’m also hoping to see if I can find Henry or Amelia without having to go looking for them, which will be step two if I don’t run into them while I’m there.
+
+I get a cup of coffee and a bowl of oatmeal and sit facing the door. My attention is split between watching the door and one of the (( ??? Birds check what you called them )), looking for anything unusual.
+
+The (( ??? Birds check what you called them )) are far less useful, generally speaking, than you might expect when you’re looking for a specific thing. If it’s not looking at the thing that you’re looking for, when you’re looking for it, good luck. It’s better than nothing, particularly for a getting a bird’s eye view, but that’s not helping right now. My best bet is going to be waiting for Iverson to show up and then having the bird follow him, but that still makes several assumptions. First, that he’s the one who took Liam. For all I know, it could be my mother, or it could be completely unrelated. It’s not likely, but it’s not entirely outside the realm of possibilities. Second, it assumes that if he took Liam, he’s going to be stupid enough or brazen enough to go back to wherever he’s keeping Liam. My money would be on the second, given what I know about him.
+
+So right now, the bird (( ??? )) is just using the thermals to slowly circle above the city looking for anything obviously out of place, which I don’t expect to yield any results at all. Once Iverson gets here, I’ll make sure the bird ((???)) is in position to follow him.
+
+I’ve been in the cafeteria for about twenty minutes when Amelia comes in. I make sure to catch her eye so she knows I’m here, and a few minutes later she sits down.
+
+“Have you heard anything from Liam since we talked last night?” I ask without any sort of pleasantries.
+
+“No. Why?”
+
+“What about Peter? Have you talked to him.”
+
+“No,” she says again. “We were actually supposed to meet last night, but he never showed.”
+
+“Where were you supposed to meet?”
+
+“His place. Why?”
+
+“His place where?” I ask hoping he hasn’t been dumb enough to be brining people back to where they’ve all been staying (( you should probably figure out another name for this besides the magic flat, yo )).
+
+“Why?” She asks again.
+
+“Does Peter normally blow you off?”
+
+“No,” she answers. “You think this is connected to Liam?”
+
+“Yes.”
+
+Either Peter sold Liam out, or they’ve both been taken. Given Liam’s mood yesterday, I’m not sure which. I honestly don’t think Peter would sell Liam out, but I do think he might sell me out and Liam might be the most expedient way for him to do that. I don’t bother to say any of that to Amelia, though.
+
+“Do you think Peter…”
+
+I’m not exactly sure how she was going to finish that sentence, but the answer is the same either way: “I don’t know. Where were you supposed to meet him?”
+
+“I’ll take you,” she tells me.
+
+“Okay. After we hear what decision they’re rendering we’ll go. Can you go find Henry? Have him meet us here if he can do it before they start, or in the gallery if not? Tell him to blow off whatever he needs to and I’ll make sure it isn’t an issue.”
+
+Amelia nods, already rising to leave and I go back to monitoring the bird (( ??? )).
+
+----
+
+Amelia comes back with Henry shortly before eight. I’ve been sitting in the cafeteria for about an hour at this point, slowly picking at my bowl of oatmeal while looking for anything abnormal. So far there’s been nothing of note.
+
+“Have you seen Liam anytime in the past day?” I ask Henry.
+
+Henry nods. “I saw him yesterday, just after the assembly.”
+
+“Did he say where he was going?”
+
+“He said something about meeting Peter and Alex.”
+
+Fuck. I try my ring for Alex and similarly get no response. Almost definitely my mother or Iverson then. All three of them pretty much rules out any other possibility being the cause. And my money is on Iverson.
+
+“I need you to go get Giorgi and Gavin,” I tell Henry. “And Davy, if you can. Meet us at Reese’s churro shop at two. Davy or Giorgi will know where it is.” I don’t know for sure that Gavin and Giorgi have ever been there, but I’m pretty sure even if they haven’t, Giorgi will know where it is. “And it probably goes without saying, but make sure you’re not followed.”
+
+Just like yesterday, the tenor of the conversations around us begins to change and people begin filing out of the cafeteria. Apparently they’re going to be starting soon.
+
+“Well that’s our cue,” I say.
+
+Henry nods, saying, “I’ll see you later.”
+
+Amelia and I get up to follow the crowd of people moving to the main gallery.
+
+### 29 - Chapter Name TBD
+
+I’m not sure how it’s possible, but I think there are even more people crammed into the room today than were here yesterday.
+
+
+
+
+
 
 
 

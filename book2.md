@@ -2,7 +2,7 @@
 
 ## Part 1
 
-### 1 - Blue Monday ^^2500 words^^
+### 1 - Blue Monday ^^2600 words^^
 
 It’s two days after the dinner party where I didn’t kill my mother. Two miserable days. It seems like everyone else is falling in line. My mother says, *‘Jump!’* and they’re quick to ask *‘How high?’*
 
@@ -1682,7 +1682,7 @@ Somehow, he manages to slump a little bit more.
 
 “Right.”
 
-### 8 - Reasons I Drink ^^2000 words^^
+### 8 - Reasons I Drink ^^2900 words^^
 
 The days on ship go by in a monotonous succession, where one day is much the same as the next. My mother insists that everyone gets together each day, typically in the galley, away from the crew, so she can teach them. Or us? Or me? At this point, I’m not even sure who the target of these lessons is. It’s more nonsense with the energy meridians, except I think it’s percolating into my subconscious and it’s starting to make a terrifying kind of sense. I can feel my own energy meridians, and I think I can feel how they could be manipulated, and it’s like this whole realm of untapped magical potential. It’s making me nervous. Like I need even more power. I want to tell her to stop before some invisible line is crossed. I want to scream it at her until she shuts up, but I can’t. So instead, I sit there every day listening, and my anxiety swells.
 
@@ -2450,7 +2450,7 @@ I look at Liam, and we both shrug.
 
 I look for Lisette, and find her still fiddling with the knot, but she’s actually close now, and I can’t help but sigh. I really hope I’m wrong, and I’m pretty sure I’m not.
 
-### 12 - It’s Called Freefall ^^2100 words^^
+### 12 - It’s Called Freefall ^^2200 words^^
 
 We spend the next twelve days walking. It’s monotonous, but at least we’re doing something. Lisette peppers me with questions about magic throughout the process. I don’t think I’ve ever spent so much time talking about it in my life. To say she’s infatuated would be understating the matter.
 
@@ -2898,7 +2898,7 @@ Davy laughs.
 
 I lie in bed, curled next to Liam for what feels like hours, before finally giving up. Luckily, a defining characteristic of buildings everywhere is rooftops. I open the window and am able to stand on the sill and reach the eaves of the rooftop just enough to be able to pull myself up and over the edge. Definitely not the easiest maneuver, but I manage it.
 
-The night air is cool, with the last hints of winter giving way to spring, and it’s quiet. I lie back on the roof and stare up at the stars. I’m dreading tomorrow. My mother probably arrived in Branton at least two weeks ago, and who knows what she’s been doing since. It’s almost guaranteed Iverson knows about me, and knows that she’s back, which means both of them are going to be looking for me. Her return is probably also going to accelerate Dairuvar’s overall aggression toward the other polities, making war virtually a foregone conclusion. Add the fucking war college to that, who will definitely being looking for Liam, Henry and me—both behalf of themselves, but likely also at General Iverson’s bequest—and it’s going to be a nightmare.
+The night air is cool, with the last hints of winter giving way to spring, and it’s quiet. I lie back on the roof and stare up at the stars. I’m dreading tomorrow. My mother probably arrived in Branton at least two weeks ago, and who knows what she’s been doing since. It’s almost guaranteed Iverson knows about me, and knows that she’s back, which means both of them are going to be looking for me. Her return is probably also going to accelerate Dairuvar’s overall aggression toward the other polities, making war virtually a foregone conclusion. Add the fucking war college to that, who will definitely being looking for Liam, Henry and me—both on behalf of themselves, but likely also at General Iverson’s behest—and it’s going to be a nightmare.
 
 I wish there was someone else like me. We need to test out exactly how well and how precisely magic can be sensed, especially in a crowded area like a city, but we basically need two of me to do that, and the closest we have is a combination of me and Alex, and me and Liam. Even conducting the tests has risks—mostly that someone figures out where we are, which would be… bad. Very, very bad. Until we have some idea of what’s going to get us caught, all magic needs to be done with the lightest of touches, and even that will still be akin to playing with fire.
 
@@ -3324,7 +3324,7 @@ Liam shakes his head when he notices Alex looking at him.
 
 “Not yet, but even if I had, I could always eat again.”
 
-Alex comes back and hands out menus. “They have french toast, Hazel.”
+Alex comes back and hands out menus. “They have waffles, Hazel.”
 
 ----
 
@@ -4070,7 +4070,7 @@ I obviously knew Peter would have to talk to Iverson at some point, and I didn�
 
 “I’ll live. At least for tonight. Probably.”
 
-Liam spends the next forty minutes or so it takes for Alex to arrive asking approximately once per minute if I’m still awake. By the time I hear a tapping on the window. I’m about five minutes away from trying to strangle Liam just to make him stop asking if I’m awake.
+Liam spends the next forty minutes or so it takes for Alex to arrive asking approximately once per minute if I’m still awake. By the time I hear a tapping on the window, I’m about five minutes away from trying to strangle Liam just to make him stop asking if I’m awake.
 
 “You couldn’t come through the door?” Liam asks as he opens the window for Alex.
 
@@ -4142,7 +4142,7 @@ Alex reaches around to the back of my head, and the pain fades from stabbing to 
 
 “Oh. No. No clue.”
 
-“Interesting. I still can’t believe you let *Amelia* get the drop on you. “I’m going to tell Peter,” Alex says, grinning.
+“Interesting. I still can’t believe you let *Amelia* get the drop on you. I’m going to tell Peter,” Alex says, grinning.
 
 I sigh. “Yeah, well. Whatever. Tell him Iverson is around too.”
 
@@ -4182,7 +4182,7 @@ Alex rolls his eyes.
 
 “You’d better go with her,” I hear Alex tell Liam behind me. “Whatever she’s doing sounds like it’s probably a bad idea.”
 
-### 20 - Ride ^^2200 words^^
+### 20 - Ride ^^2300 words^^
 
 “Where are you going?” Liam asks as he walks alongside me matching me step for step as I climb the stairs.
 
@@ -4620,6 +4620,8 @@ The flat is about three miles away, the fog should last more than long enough to
 
 We walk for about twenty minutes when Liam suddenly pulls me sideways against the nearest wall pressing a finger against his lips. I strain to hear whatever it is he thinks he heard that has us pressed up against the wall, waiting. One minute goes by, then another. Liam keeps us unmoving, then finally I hear it. A careful shuffling forward. The sound of someone following us. Someone who stopped when we stopped, but is now unsure since we’ve been unmoving for so long. Someone creeping along.
 
+(( Tyler thinks that this is unrealistic and Liam wouldn’t have a problem with killing the guy ))
+
 Liam releases my hand when he’s sure I’ve heard what he has, and I see a knife in his palm. As soon as the man following us has walked past, Liam moves to slam the pommel of the knife into the back of his head. The man drops. Liam extends his hand waiting for me, like he intends to continue on.
 
 I shake my head, “No. Not yet,” I say quietly, drawing my own knife. I search the man’s pockets quickly, but find nothing. I place the tip of my knife against his chest.
@@ -4635,6 +4637,8 @@ I shake my head, “No. Not yet,” I say quietly, drawing my own knife. I searc
 I think I might have just killed off whatever delusions Liam may have still been harboring about me being a good person. I sigh.
 
 “You take his arms, I’ll get his legs,” I murmur.
+
+(( to here  from above ))
 
 Liam nods, and we shuffle our way a couple of streets over to the river where we toss the body in. It makes a muffled splash as it hits the surface.
 
@@ -5114,7 +5118,7 @@ He clasps his hand around mine, and uses it to pull me closer to him.
 
 “I know.”
 
-### 25 - Gold Chains ^^3300 words^^
+### 25 - Gold Chains ^^3400 words^^
 
 We meet up with Alex, Davy, and Peter at the cafe.
 
@@ -5388,7 +5392,7 @@ I think for a moment. “If I tell you, I want a favor.”
 
 She snorts in response, but doesn’t go so far as to tell me I’m wrong. “Very well.”
 
-### 26 - Closer ^^3500 words^^
+### 26 - Closer ^^3600 words^^
 
 Liam and I slowly walk back to the campus. At the rate we’re moving, dusk will have crossed into true night by the time we get back, but neither of us has it in us to hurry given the way the day went.
 
@@ -5618,7 +5622,7 @@ He shrugs, and it’s hard to tell in this light, but I think he might be blushi
 
 “I have no idea. Carry me? I want to finish what we started.”
 
-That’s all it takes for him to spin us around and move to the bed. My mouth is on his neck, my tongue and teeth working across the sensitive flesh near the base of his jaw. He tastes like salt and smoke, and I want more. I’m pulling off his shirt as soon as my back hits the mattress, and he helps me by removing his pants. Immediately, I’m wrapping my hand around him, stroking him. His eyes flutter closed as groans.
+That’s all it takes for him to spin us around and move to the bed. My mouth is on his neck, my tongue and teeth working across the sensitive flesh near the base of his jaw. He tastes like salt and smoke, and I want more. I’m pulling off his shirt as soon as my back hits the mattress, and he helps me by removing his pants. Immediately, I’m wrapping my hand around him, stroking him. His eyes flutter closed as he groans.
 
 I’ve never wanted anyone the way I want Liam, and I’m pretty sure the feeling is mutual. It terrifies me more than any physical danger ever could.
 
@@ -5640,7 +5644,7 @@ He hesitates.
 
 That’s all it takes. He’s thrusting into me wildly, and I think we’re both feeding energy into the magic binding us, and it’s bouncing back and forth between us now the same way the agony was before, only now it’s ecstasy.
 
-A shout escapes from him as he comes into me, and the fullness coupled sensation already bouncing between us pushes me over the edge, and my body is writhing beneath him as I orgasm too.
+A shout escapes from him as he comes into me, and the fullness coupled with the sensation already bouncing between us pushes me over the edge, and my body is writhing beneath him as I orgasm too.
 
 We stay entwined like that for several minutes, both unable and unwilling to move.
 
@@ -5740,11 +5744,160 @@ Conversations immediately breakout everywhere, and it’s seconds before the roo
 
 I stay against the wall, where I’ve been the entire time, unmoving, as people begin to filter out of the room. Liam scowls at anyone who looks like they’re going to try to approach me, which I appreciate. The last thing I want is to talk to any of these vultures that are about to start circling.
 
-### 28 - Chapter Name TBD
+### 28 - Help, I’m Alive ^^
 
-I let the room empty before I even think about moving. By the end, the only people still in the room are Commander Selby, the visiting Commanders of the armies of the Allied Polities, my mother, and General Iverson. Commander Selby has made note of me as well, evidently drawing the logical conclusions.
+I let the room empty before I even think about moving. By the end, the only people still in the room are Commander Selby, the visiting Commanders of the armies of the Allied Polities, my mother, and General Iverson. Liam left after everyone else did, still looking angry, but I don’t know why.
 
-It’s about to be a new world for me. I’m the only person at the war college whose mother is an heir to one of the Allied Polities’ ruling bloodlines, and now everyone knows it. No more blending in. No more fitting in. No more pretending to be like everyone else.
+Commander Selby has made note of me, evidently drawing the logical conclusions. It’s about to be a new world for me. I’m the only person at the war college whose mother is an heir to one of the Allied Polities’ ruling bloodlines—not just any bloodline either, but the Raidanes—and now everyone knows it. Now everyone knows who I am. No more blending in. No more fitting in. No more pretending to be like everyone else.
+
+Great.
+
+After a few more moments of observing the conversation between Commander Melbrin and Commander Selby, my mother begins make her way toward the exit. Toward me. I sigh internally but school my expression into one that hopefully looks neutral, if not pleased to see her.
+
+“Hi, mom!” I say, deliberately loudly enough to carry. I already told General Iverson I was visiting family, so let’s give him the impression that I’m chummy.
+
+“Hazel!” she says, finally using my name without having to be reminded.
+
+She wraps her arms around me in a simulacrum of a hug, and I have to fight the urge to grimace and shove her away.
+
+Clearly she got the memo.
+
+“I’m so glad you were out when the attack occurred! It was dreadful! I would have been beside myself if you’d been injured!’
+
+Now, I’m fighting the urge to roll my eyes. There’s no one in the world who would care less if I was injured.
+
+“I know! I’m so glad you weren’t hurt!” I say as we exit the gallery. As soon as the doors close behind us, I throw up a shield to stop our conversation from being overheard. “I need to talk to you,” I tell her, dropping the friendly facade.
+
+“I’m busy, daughter. Make an appointment,” she says before walking away.
+
+“That’s what I’m trying to do right now!” I call after her.
+
+My only answer is a shrug from her retreating back.
+
+----
+
+I’m sitting in a class that is *supposed* to be about tactics, but somehow the discussion has veered off onto the topic of supply chains. It’s always gods damned supply chains. Always. Except today, the professor is having a hard time keeping everyone focused on that, which normally—for reasons completely beyond my understanding—isn’t a difficult task. People here normally *want* to talk about supply chains and logistics. But not today.
+
+Today, heads just keep swiveling to me. I do my best to ignore them. I remind myself that I knew exactly what was going to happen when I asked my mother for a favor. Okay. Maybe not *exactly* but I knew this wasn’t an unlikely outcome, and I still decided it was worth it. I still decided that having her provide a reason to Iverson why the man he had following us wasn’t coming back was better than having his absence and presumed death placed at our feet.
+
+*Everything that’s happening right now is happening because I decided the benefits outweighed the costs,* I continue to remind myself.
+
+Professor Daly sighs loudly. I’m in the back center area of the room, and even I can hear it.
+
+I meet his eyes. *Sorry*, I mouth.
+
+He shrugs slightly, then gestures for me to approach the front of the room where he’s leaning against a desk.
+
+I resist the urge to shake my head and stay where I am. I brace myself, and then I stand and walk down the aisle between the student desks.
+
+“Best to get this over with now,” he says softly to me, before addressing the others again. “This is your classmate, Hazel Raidane. The daughter,” he pauses to glance at me.
+
+I nod tightly.
+
+“Of Alexandria Raidane of Avonare Polity. Presumably, since she has been in this class with the rest of you the entire time, and never mentioned her family connections, it’s not something she’s interested in discussing,” he states, glancing at me again.
+
+Once again, I nod.
+
+“Other than you all now knowing her mother’s name, nothing has changed. So perhaps we can keep the whispering to a minimum?”
+
+Professor Daly nods at me, and I begin walking back to my seat.
+
+“But where was she?” someone calls out. “For all those years, where was she?”
+
+“On holiday,” I say noncommittally, earning a spattering of laughter around the room.
+
+I sit down and Professor Daly tries to pick back up on the supply chain narrative he was discussing before. It’s slightly more successful and there are somewhat fewer heads turning to look at me as the class progresses.
+
+Other people love discussing logistics. I think it’s because logistics are just talking about doing things. Not actually doing them. If there’s one thing I’ve learned since being here, it’s that people *love* to talk about doing things. They always seem to like the actual doing of them far less, so tactics become logistics.
+
+----
+
+I’m in the gym sparring with Amelia once again. Or trying to, only suddenly there are three times as many people in here as there would be any other night. I know they’re all only here because I’m here, and I’ve suddenly become interesting. I hate being interesting.
+
+“Have you seen Liam recently?” I ask Amelia quietly as the two of us sit against one of the walls, waiting for some of the crowd to piss off.
+
+“Not since this morning. Why?”
+
+“No reason.”
+
+“Uh huh,” she says skeptically.
+
+“When I saw him earlier, he seemed angry, and Liam doesn’t really do angry, generally speaking. I didn’t get a chance to talk to him because of…” I wave my hand at the room. “And I haven’t seen him since.”
+
+“No clue. Did your mother really accuse General Iverson of trying to assassinate her?”
+
+I snort. “Yeah.”
+
+“Man. I wish I’d been there,” she comments wistfully.
+
+I’m surprised she wasn’t. It seemed like *everyone* was there. “Where were you?”
+
+“Nowhere,” she says quickly.
+
+“Nowhere like…?” I wait but she says nothing. “Nowhere like with Peter?” I guess.
+
+She winces slightly. Got it in one, evidently.
+
+“I know you’re not his biggest fan—” she starts.
+
+“I don’t care who you sleep with, Amelia,” I tell her. “It’s really none of my business.”
+
+“I gave you a hard time about Liam though,” she says softly.
+
+“I think you actually gave Liam a hard time about *me*,” I say, “which was kind of shitty of you. But whatever. How long have you two been back together?” I ask. I don’t really care, I’m just trying to steer the conversation toward something that doesn’t involve me.
+
+“We are *not* back together,” she says decisively.
+
+“Okay.”
+
+“I still don’t really trust him,” she admits.
+
+I want to say, *Who does?* but the answer to that seems to be everyone but Amelia and me, so I don’t bother. I just nod.
+
+“But to answer your question, since that night you all got back to Branton.”
+
+“Damn,” I say, whistling. “That’s a long time to not be back together.”
+
+She shrugs.
+
+The room isn’t looking quite as full since we’ve just been sitting against the wall not doing anything interesting. And by we, I probably just mean me. I don’t think anyone is here because of Amelia.
+
+“Shall we I?” I ask nodding toward the mat.
+
+“Yeah,” she agrees.
+
+As we take positions across from one another on the mat, I hear someone ask, “Can I spar with the winner?”
+
+I look around trying to find the speaker before my eyes finally land on a woman who’s about the same size as Amelia and a couple of inches taller than me. I want to tell her no, but I look at Amelia instead. She shrugs.
+
+“Fine,” I say.
+
+I must sound less than thrilled about it because she quickly says, “Sorry, I’m not trying to… I just. I saw you today, and then people said you spar at nights in the gym, and well I thought maybe I could join you because…”
+
+“Because we’re about the same size and there aren’t that many options?”
+
+She nods.
+
+“Yeah, alright,” I agree.
+
+“Hazel,” Amelia says softly, as we resume our positions across from one another, “if you throw this fight to get out of having to spar with someone new…”
+
+“I wouldn’t do that,” I tell her, knowing I totally would, having been considering doing just that.
+
+(( blah blah hazel wins and teaches new girl how to fight ))
+
+----
+
+I’m awake the next morning as night turns to dawn which gives way to day. I haven’t slept. I’m on approximately my thirteenth cup of coffee in half as many hours, but who’s counting? Liam never reappeared last night. If he’d given any indication that he was planning on not returning last night, I’d be less concerned. But he didn’t, so I am. Especially given his mood yesterday. I let my magic brush across the magic that’s binding us together, and I get no response. I heat up the ring I’m wearing for him, and once again, nothing.
+
+Clearly he’s still alive, because I’m still alive, but he’s completely unresponsive which means he’s either unconscious, or drugged. Or both.
+
+
+
+
+
+
+
 
 
 

@@ -1186,7 +1186,7 @@ It’s two days later and we’re all riding to the port to board a ship and spe
 
 At least we’ll be heading back to Branton—where hopefully I’ll be able to get some answers—instead of hanging around that stupid house. And when we get back, Reese’s churro shop is going to be my first stop.
 
-Liam told me a few days ago that he got the key for the flat from Reese. She told him it was his mother's. That may or may not be true, and I intend to find out. Either way, she knows a lot more than the rest of us. And I wouldn’t mind having some churros too. Two birds with one stone.
+Liam told me a few days ago that he got the key for the Ginnelstreet flat from Reese. She told him it was his mother's. That may or may not be true, and I intend to find out. Either way, she knows a lot more than the rest of us. And I wouldn’t mind having some churros too. Two birds with one stone.
 
 I wonder if she knew who I was the first time Liam brought me in. I wouldn’t have thought so, but if she was as good of friends with my mother as Peter claims, she may have taken one look at me and figured it out.
 
@@ -3808,7 +3808,7 @@ Reese thinks for a minute. “It was some stupid rhyme.”
 
 ----
 
-“What are you thinking about?” Liam asks as we slowly walk back to the flat, having left Reese’s shop more than half an hour ago.
+“What are you thinking about?” Liam asks as we slowly walk back to the Ginnelstreet flat, having left Reese’s shop more than half an hour ago.
 
 “Being the kind of powerful that makes most things seem possible,” I answer.
 
@@ -3830,7 +3830,7 @@ Liam sighs. “You’re not making this easy.”
 
 ### 18 - Waiting Room ^^2100 words^^
 
-I spend the next day sequestered in the flat with Davy and Alex, trying to figure out the key.
+I spend the next day sequestered in the flat on Ginnelstreet with Davy and Alex, trying to figure out the key.
 
 I think Liam might be a little irritated by my refusal to just accept on blind faith that things with Peter are good. I meant it when I said I’d stop with the remarks, but trusting anyone is hard for me. Trusting a person solely on the word of another person, even if that person is Liam, is honestly beyond me. It’s not a matter of being willing or unwilling. I can’t do it. So I’m doing my best but honestly, I’m not sure if it’s good enough. Part of me gets it. Really. Peter and Liam have been friends since forever. I’m the interloper. Which is both true, and a really shitty feeling to have. I think maybe I’m feeling… insecure? It’s not a feeling I have a ton of experience with.
 
@@ -4616,7 +4616,7 @@ He holds out his hand and I take it as I hop down off my stool. I let him lead t
 
 Outside visibility is down to no more than ten feet, even less in some places. If anyone is following us by line of sight they’ll have to be close enough that we’ll know it, and right now they shouldn’t be able to follow by tracking our magic. It’s the best I can do. I hope it’s good enough as I tug Liam into a fast walk. We’re both quiet as we move through the fog.
 
-The flat is about three miles away, the fog should last more than long enough to make it there before it begins to dissipate. I keep an eye on Liam as we walk since I’m truly not sure how long he can maintain keeping his energy meridians dimmed down.
+The Ginnelstreet flat is about three miles away, the fog should last more than long enough to make it there before it begins to dissipate. I keep an eye on Liam as we walk since I’m truly not sure how long he can maintain keeping his energy meridians dimmed down.
 
 We walk for about twenty minutes when Liam suddenly pulls me sideways against the nearest wall pressing a finger against his lips. I strain to hear whatever it is he thinks he heard that has us pressed up against the wall, waiting. One minute goes by, then another. Liam keeps us unmoving, then finally I hear it. A careful shuffling forward. The sound of someone following us. Someone who stopped when we stopped, but is now unsure since we’ve been unmoving for so long. Someone creeping along.
 
@@ -4644,7 +4644,7 @@ Liam nods, and we shuffle our way a couple of streets over to the river where we
 
 “Come on,” I whisper and we resume our trek.
 
-About half an hour later, we’re close to the flat and I’m letting just enough power creep back through my energy meridians to warm my rings for Davy and Alex so that they’ll meet us on the street so that we can get in. As soon as I’ve done it, I dim them back down. A minute goes by and I see the door open.
+About half an hour later, we’re close to the Ginnelstreet flat and I’m letting just enough power creep back through my energy meridians to warm my rings for Davy and Alex so that they’ll meet us on the street so that we can get in. As soon as I’ve done it, I dim them back down. A minute goes by and I see the door open.
 
 “It’s me,” I call out in warning before heading toward the door.
 
@@ -5744,9 +5744,9 @@ Conversations immediately breakout everywhere, and it’s seconds before the roo
 
 I stay against the wall, where I’ve been the entire time, unmoving, as people begin to filter out of the room. Liam scowls at anyone who looks like they’re going to try to approach me, which I appreciate. The last thing I want is to talk to any of these vultures that are about to start circling.
 
-### 28 - Help, I’m Alive ^^2400 words^^
+### 28 - Help, I’m Alive ^^2500 words^^
 
-I let the room empty before I even think about moving. By the end, the only people still in the room are Commander Selby, the visiting Commanders of the armies of the Allied Polities, my mother, and General Iverson. Liam left after everyone else did, still looking angry, but I don’t know why.
+I let the room empty before I even think about moving. By the end, the only people still in the room are Commander Selby, the visiting Commanders of the armies of the Allied Polities, my mother, and General Iverson. Liam left after everyone else did, still looking angry, but I didn’t have the chance to find out why.
 
 Commander Selby has made note of me, evidently drawing the logical conclusions. It’s about to be a new world for me. I’m the only person at the war college whose mother is an heir to one of the Allied Polities’ ruling bloodlines—not just any bloodline either, but the Raidanes—and now everyone knows it. Now everyone knows who I am. No more blending in. No more fitting in. No more pretending to be like everyone else.
 
@@ -5754,7 +5754,7 @@ Great.
 
 After a few more moments of observing the conversation between Commander Melbrin and Commander Selby, my mother begins make her way toward the exit. Toward me. I sigh internally but school my expression into one that hopefully looks neutral, if not pleased to see her.
 
-“Hi, mom!” I say, deliberately loudly enough to carry. I already told General Iverson I was visiting family, so let’s give him the impression that I’m chummy.
+“Hi, mom!” I say, deliberately loudly enough to carry. I already told General Iverson I was visiting family, so let’s give him the impression that we’re chummy.
 
 “Hazel!” she says, finally using my name without having to be reminded.
 
@@ -5778,7 +5778,7 @@ My only answer is a shrug from her retreating back.
 
 I’m sitting in a class that is *supposed* to be about tactics, but somehow the discussion has veered off onto the topic of supply chains. It’s always gods damned supply chains. Always. Except today, the professor is having a hard time keeping everyone focused on that, which normally—for reasons completely beyond my understanding—isn’t a difficult task. People here normally *want* to talk about supply chains and logistics. But not today.
 
-Today, heads just keep swiveling to me. I do my best to ignore them. I remind myself that I knew exactly what was going to happen when I asked my mother for a favor. Okay. Maybe not *exactly* but I knew this wasn’t an unlikely outcome, and I still decided it was worth it. I still decided that having her provide a reason to Iverson why the man he had following us wasn’t coming back was better than having his absence and presumed death placed at our feet.
+Today, heads just keep swiveling to me. I’m doing my best to ignore them. I remind myself that I knew exactly what was going to happen when I asked my mother for a favor. Okay. Maybe not *exactly* but I knew this wasn’t an unlikely outcome, and I still decided it was worth it. I still decided that having her provide a reason to Iverson why the man he had following us wasn’t coming back was better than having his absence and presumed death placed at our feet. (( Tyler thinks this doesn’t make sense but I think his reason for saying this doesn’t make sense doesn’t make sense, so idk ))
 
 *Everything that’s happening right now is happening because I decided the benefits outweighed the costs,* I continue to remind myself.
 
@@ -5822,7 +5822,7 @@ I’m in the gym sparring with Amelia once again. Or trying to, only suddenly th
 
 “Uh huh,” she says skeptically.
 
-“When I saw him earlier, he seemed angry, and Liam doesn’t really do angry, generally speaking. I didn’t get a chance to talk to him because of…” I wave my hand at the room. “And I haven’t seen him since.”
+“When I saw him earlier, he seemed angry,” I explain, “and Liam doesn’t really do angry, generally speaking. I didn’t get a chance to talk to him because of…” I wave my hand at the room. “And I haven’t seen him since.”
 
 “No clue. Did your mother really accuse General Iverson of trying to assassinate her?”
 
@@ -5860,9 +5860,9 @@ I want to say, *Who does?* but the answer to that seems to be everyone but Ameli
 
 She shrugs.
 
-The room isn’t looking quite as full since we’ve just been sitting against the wall not doing anything interesting. And by we, I probably just mean me. I don’t think anyone is here because of Amelia.
+The room isn’t looking quite as full since we’ve just been sitting against the wall not doing anything interesting. And by we, I mean me. I don’t think anyone is here because of Amelia.
 
-“Shall we I?” I ask nodding toward the mat.
+“Shall we?” I ask nodding toward the mat.
 
 “Yeah,” she agrees.
 
@@ -5884,21 +5884,21 @@ She nods.
 
 “I wouldn’t do that,” I tell her, knowing I totally would, having been considering doing just that.
 
-(( blah blah hazel wins and teaches new girl how to fight ))
-
 ----
 
-I’m awake the next morning as night turns to dawn which gives way to day. I haven’t slept. I’m on approximately my thirteenth cup of coffee in half as many hours, but who’s counting? Liam never reappeared last night. If he’d given any indication that he was planning on not returning last night, I’d be less concerned. But he didn’t, so I am. Especially given his mood yesterday. I let my magic brush across the magic that’s binding us together, and I get no response. I heat up the ring I’m wearing for him, and once again, nothing.
+I’m awake the next morning as night turns to dawn and gives way to day. I haven’t slept. I’m on approximately my thirteenth cup of coffee in half as many hours, but who’s counting? Liam never reappeared last night. If he’d given any indication that he was planning on not returning last night, I’d be less concerned. But he didn’t, so I am. Especially considering his mood yesterday. I let my magic brush across the magic that’s binding us together, and I get no response. I heat up the ring I’m wearing for him, and once again, nothing.
 
 Clearly he’s still alive, because I’m still alive, but he’s completely unresponsive which means he’s either unconscious, or drugged. Or both. And there’s not much I can do about it right this second.
 
 I get dressed, braid my hair, and head to the cafeteria to get some food since I’m guessing this will probably be the one chance I have to eat today. I’m also hoping to see if I can find Henry or Amelia without having to go looking for them, which will be step two if I don’t run into them while I’m there.
 
-I get a cup of coffee and a bowl of oatmeal and sit facing the door. My attention is split between watching the door and one of the (( ??? Birds check what you called them )), looking for anything unusual.
+I get a cup of coffee and a bowl of oatmeal and sit facing the door. My attention is split between watching the door and the spotted eagle that’s back on this side of the pass, looking for anything unusual.
 
-The (( ??? Birds check what you called them )) are far less useful, generally speaking, than you might expect when you’re looking for a specific thing. If it’s not looking at the thing that you’re looking for, when you’re looking for it, good luck. It’s better than nothing, particularly for a getting a bird’s eye view, but that’s not helping right now. My best bet is going to be waiting for Iverson to show up and then having the bird follow him, but that still makes several assumptions. First, that he’s the one who took Liam. For all I know, it could be my mother, or it could be completely unrelated. It’s not likely, but it’s not entirely outside the realm of possibilities. Second, it assumes that if he took Liam, he’s going to be stupid enough or brazen enough to go back to wherever he’s keeping Liam. My money would be on the second, given what I know about him.
+The spotted eagles are far less useful, generally speaking, than you might expect when you’re looking for a specific thing. If it’s not looking at the thing that you’re looking for, when you’re looking for it, good luck. It’s better than nothing, particularly for a getting a bird’s eye view, but that’s not helping right now. My best bet is going to be waiting for Iverson to show up and then having the eagle follow him, but that still makes several assumptions. First, that he’s the one who took Liam. For all I know, it could be my mother, or it could be completely unrelated. It’s not likely, but it’s not entirely outside the realm of possibilities. Second, it assumes that if he took Liam, he’s going to be stupid enough or brazen enough to go back to wherever he’s keeping Liam. My money would be on the second, given what I know about him.
 
-So right now, the bird (( ??? )) is just using the thermals to slowly circle above the city looking for anything obviously out of place, which I don’t expect to yield any results at all. Once Iverson gets here, I’ll make sure the bird ((???)) is in position to follow him.
+And while the eagles were useful as one of the few birds capable of crossing the mountains in the winter, they’re fairly notable within the confines of large city. Really, something like a crow or a pigeon would probably be better solely for its ability to blend in, but I’m working with what I’ve got at the moment.
+
+Right now, the eagle is just using the thermals to slowly circle above the city looking for anything obviously out of place, which I honestly don’t expect to yield any results at all. Once Iverson gets here, I’ll make sure it’s in position to follow him.
 
 I’ve been in the cafeteria for about twenty minutes when Amelia comes in. I make sure to catch her eye so she knows I’m here, and a few minutes later she sits down.
 
@@ -5914,7 +5914,7 @@ I’ve been in the cafeteria for about twenty minutes when Amelia comes in. I ma
 
 “His place. Why?”
 
-“His place where?” I ask hoping he hasn’t been dumb enough to be brining people back to where they’ve all been staying (( you should probably figure out another name for this besides the magic flat, yo )).
+“His place where?” I ask hoping he hasn’t been dumb enough to be bringing people back to the Ginnelstreet flats where they’ve all been staying.
 
 “Why?” She asks again.
 
@@ -5924,7 +5924,7 @@ I’ve been in the cafeteria for about twenty minutes when Amelia comes in. I ma
 
 “Yes.”
 
-Either Peter sold Liam out, or they’ve both been taken. Given Liam’s mood yesterday, I’m not sure which. I honestly don’t think Peter would sell Liam out, but I do think he might sell me out and Liam might be the most expedient way for him to do that. I don’t bother to say any of that to Amelia, though.
+Either Peter sold Liam out, or someone has both of them. Given Liam’s mood yesterday, I’m not sure which. I honestly don’t think Peter would sell Liam out, but I do think he might sell me out and Liam might be the most expedient way for him to do that. I don’t bother to say any of that to Amelia, though.
 
 “Do you think Peter…”
 
@@ -5934,7 +5934,7 @@ I’m not exactly sure how she was going to finish that sentence, but the answer
 
 “Okay. After we hear what decision they’re rendering we’ll go. Can you go find Henry? Have him meet us here if he can do it before they start, or in the gallery if not? Tell him to blow off whatever he needs to and I’ll make sure it isn’t an issue.”
 
-Amelia nods, already rising to leave and I go back to monitoring the bird (( ??? )).
+Amelia nods, already rising to leave and I go back to monitoring the eagle’s view of the city.
 
 ----
 
@@ -5960,9 +5960,130 @@ Henry nods, saying, “I’ll see you later.”
 
 Amelia and I get up to follow the crowd of people moving to the main gallery.
 
-### 29 - Chapter Name TBD
+### 29 - Gimme Shelter ^^1300 words^^
 
-I’m not sure how it’s possible, but I think there are even more people crammed into the room today than were here yesterday.
+I’m not sure how it’s possible, but I think there are even more people crammed into the room today than there were yesterday. I’m in roughly the same spot near the door with Amelia beside me. You couldn’t pay me to be any further from the exit than I currently am.
+
+The mood in the room feels tense, like there’s a storm brewing. It feels like the atmosphere in Branton has felt for weeks, if not months, only ratcheted up several notches. It definitely feels like violence is imminent. If I didn’t need to be here to hear this, I would do the smart thing and evacuate this room immediately, but I do need to be here to hear whatever this decision is, because it’s going to directly impact whatever I do next.
+
+The crowd is so thick I can barely see through it, but I do see my mother, Commander Selby, and General Iverson at the front of the room. I assume the other Commanders are up there somewhere too.
+
+Commander Selby holds up a hand and waits for the roar of conversation throughout the room to come to a halt. It takes a couple of minutes, but eventually people notice and shush or elbow those nearby into silence.
+
+“After lengthy discussion among ourselves over the past day, we have unanimously agreed that there is not enough evidence to either substantiate or repudiate Alexandria Raidane’s accusations toward General Iverson or Dairuvar,” he says in a rumble that carries throughout the room.
+
+The volume of the crowd immediately begins increasing at this statement.
+
+“However,” Commander Selby shouts, and waits for the room to quiet again. “However, we do agree that a recall vote regarding General Iverson’s ability to serve as the Allied Army’s commander is warranted.”
+
+I’m not surprised. This is exactly what my mother wanted, and I gave her the perfect way to go about obtaining it. I’m fairly confident this is going to end with a no confidence vote in his ability to act in the best interest of the Allied Polities rather than the best interests of Dairuvar. In which case, interim command of the Allied Army will fall to Commander Selby until new candidates are selected and voting concludes.
+
+I only know this because I consulted several of the books on Liam’s bookshelf last night in search of the answer to the question.
+
+Practically, this will likely be the equivalent to unmuzzling and unleashing General Iverson. While I agree he needs to be removed from his position, doing it like this is idiocy equivalent to giving him the position in the first place. The only way to adequately remove him from the position now isn’t via a vote, but via a targeted political assassination. If Commander Selby was smart, he wouldn’t be calling a vote this morning, he’d be raising a flag to half staff and announcing an untimely and unexpected demise. Sure there’d be rumors and allegations surrounding the timing of his death, but right now, whether he realizes it or not, Commander Selby is about to rip the alliance apart and trigger a civil war.
+
+Action, meet consequence.
+
+My mother looks immensely pleased. General Iverson looks like he’s contemplating tearing the war college apart, brick by brick. And since I’m pretty sure I could do it, I’m pretty sure he could too. If he has Liam and the others, this does not bode well for them or for me. It almost makes me hope my mother has them, but I’m pretty sure she doesn’t.
+
+“In the interest of transparency,” Commander Selby continues, “voting will take place now. Commander Melbrin, in the matter of removing General Iverson from his position, do you vote to remove him?”
+
+“Yes.”
+
+“Avonare votes to remove General Iverson,” Commander Selby calls out.
+
+The aide makes a note.
+
+“Commander Varit, how do you vote?”
+
+“I vote against removing General Iverson,” Commander Varit states, surprising no one. The last thing Dairuvar wants is to see Iverson ousted from his current position.
+
+“Commander Graham, how do you vote?”
+
+“I’m in favor of removing General Iverson’s position as Commander of the Army of the Allied Polities.”
+
+The aide continues to note down the votes.
+
+“Commander Errigan, how do you vote?”
+
+“Oulanen also is against removing General Iverson,” Command Errigan tells the assembly.
+
+“Commander Soto, how do you vote?”
+
+“Leira abstains,” Commander Soto states, also surprising no one.
+
+“The votes are two in favor of removing General Iverson, two against removing General Iverson, and one abstention.” Commander Selby casts a clearly annoyed look at Commander Soto. “Meaning as Commander of the War College of the Army of the Allied Polities, I cast the deciding vote. I also see the conflict that allowing General Iverson to maintain his position as the Commander of the Army of the Allied Polities presents. I vote with Avonare and Firgasu. General Iverson should be removed from his position, and we will begin the search for a new Commander.”
+
+All hell breaks loose. I grab Amelia’s arm and shove our way through the door into the hallway, beating the sea of people that will soon spill into it, and pull her toward Commander Selby’s office. I let us in as soon as we get there. Since everyone else is still in the press of people in the main gallery, there’s no one to see me do so, or raise any objections.
+
+“What are we doing here?” Amelia whispers once I’ve shut the office door.
+
+“Waiting for Commander Selby, obviously. You don’t have to whisper.”
+
+“*Why* are we waiting for Commander Selby?”
+
+“To make sure he doesn’t know where Liam is, and to make sure there are no unanswered questions about our absence,” I state as I survey the room.
+
+I’ve never been in his office before. It’s less military themed than I would have expected, which makes me realize I don’t really know anything at all about Commander Selby. I’ve never had any reason to speak to him, and avoided him beyond that, for obvious reasons.
+
+We’ve been in the office for a bit more than ten minutes when Commander Selby finally opens the door, striding into the room and locking the door behind him, clearly desperate to get away from the press of people. It’s another couple of seconds before he realizes we’re here.
+
+His eyes land on me, and the slight widening says he clearly knows who I am.
+
+He pinches the bride of his nose before saying, “Miss Raidane. Miss Price. To what do I owe the honor?”
+
+I’m both surprised and pleased he doesn’t feign outrage, or question how we got into his office. “Do you know where Captain Marten is?”
+
+“Liam?” Commander Selby asks, indicating a fair level of familiarity. “No. Why?”
+
+“No one has seen him since yesterday.”
+
+“And you think that’s a problem?”
+
+“Yes.”
+
+“And what would you like me to do about that?”
+
+“Nothing. I’d just like to ensure that the absences of ourselves and Henry Sheppard are not remarked upon until such a time as we return with Captain Marten.”
+
+“What happened to Lisette Clark, Miss Raidane?”
+
+“She died.”
+
+“How?”
+
+“Unpleasantly.”
+
+Commander Selby sighs. “I have bigger things to care about than your whereabouts.”
+
+That’s good enough for me, but since I’m already here, I decide to press my luck. “You cast the deciding vote,” I say.
+
+“Was there a question in there somewhere?” he asks irritably.
+
+“It seems like you probably understand what will happen next.”
+
+“Better than you do, certainly.”
+
+“Then why?”
+
+“He needed to be removed.”
+
+“You would have been better off removing him permanently,” I comment, and I hear a sharp intake of breath from Amelia.
+
+“We can’t just go around killing polity leaders, Miss Raidane.”
+
+“It’d be a lot simpler if you could,” I state as I stand.
+
+Amelia exits ahead of me, seemingly eager to be out of the room. As I pull the door shut behind me I think I hear him mutter, “I see why he likes you.”
+
+## Part 3
+
+### 30 - Chapter Name TBD
+
+
+
+
+
 
 
 
@@ -5990,7 +6111,10 @@ I’m not sure how it’s possible, but I think there are even more people cramm
 
 
 Things that need to happen:
-
-3. Go talk to Alexandria
-4. Peter double agent???
-5. Get captured
+1. Go to Peter’s
+2. Go to Reese’s
+3. Find Liam
+4. Rescue Liam
+5. Go talk to Alexandria
+6. Peter double agent???
+7. Get captured

@@ -6078,9 +6078,225 @@ Amelia exits ahead of me, seemingly eager to be out of the room. As I pull the d
 
 ## Part 3
 
-### 30 - Chapter Name TBD
+### 30 - Chapter Name TBD (( smooth criminal ?? )) ^^1700 words^^
 
+Amelia leads us southwest away from the war college toward, I’m guessing, wherever it is Peter normally lives when he’s not trying to be hard to find. The southwestern quadrant of Branton is by far the most quiet area of the city. It’s almost all small neighborhoods where old couples and people with young families live. It’s not really where I expected Peter would live.
 
+But if I strip out everything that’s happened over the past several months, and think back to the Peter that I met that first day in the pub with Davy, this is *exactly* where I would have expected him to live. Who knows, maybe the Peter I met that first day is closer to the real Peter than any other version.
+
+People are complicated. Mostly that’s a good thing. But when people are complicated the way Peter is, or even the way that Alex is, and definitely the way that I am… It’s just hard. Maybe those similarities between us are what Alex, Davy, and Liam have been trying to make me understand for a while.
+
+It’s roughly a thirty minute walk to reach Peter’s flat, deep in a neighborhood.
+
+“Do you know how long he’s lived here?” I ask Amelia.
+
+“A while, I think. At least a few years.”
+
+“Do you have a key?”
+
+“No. We don’t exactly have the ‘exchange keys’ kind of relationship.”
+
+“Okay,” I say nodding. “So when you got here last night you just knocked and no one answered? You didn’t go in?”
+
+She nods.
+
+I block the door with my body for a moment, pantomiming having a key while I use magic to unlock the door and check if anyone is in there, but the flat is empty. I open the door and allow Amelia to enter first, and then lock it behind me.
+
+“Anything look out of the ordinary?” I ask her.
+
+“No,” she says softly.
+
+I begin looking around. It’s very tidy and very homey. It gives off the vibe of the kind of person who would host dinner parties.
+
+“Bedroom?” I ask.
+
+“Back through the hall. Last door.”
+
+I find the bedroom door cracked, and push it all the way open. The bed is made, and the curtains are open. I begin opening drawers. It doesn’t look like any clothes are missing. At least not as far as I can tell.
+
+“Do you know how often Peter is here?” I call back to Amelia.
+
+“At least every couple of days,” she calls back.
+
+I continue opening drawers until I come across a small notebook. I flip it open. Writing, more writing. It looks like a journal. I flip to the end. The most recent entry is from three days ago. Nothing especially noteworthy. No roadmap written out detailing a plan to sell me out to Iverson, not that I’d expect Peter to be so dumb if he were planning something like that, but it still doesn’t hurt to check. I shove the notebook into my bag for later.
+
+I head to the bathroom. All the toiletries are still present. It looks like whatever happened, Peter expected to come back.
+
+“I don’t think there’s anything to find here,” I tell Amelia. “Let’s go.”
+
+----
+
+“What do you think happened?” Amelia asks as we walk toward Reese’s shop.
+
+“I think someone took them.”
+
+“Iverson?”
+
+“Or my mother,” I say. “But probably Iverson. Is Michael still hanging around with my mother and Christine?”
+
+“I don’t know. I haven’t talked to him in a while, but I assume so. He’s got nowhere else here to go.”
+
+“We should go to talk to him later,” I say more to myself than to her. I really don’t think my mother took them. If she had them, she’d want to make sure I knew she had them. She’d have left some sort of message or messenger, the same way she did after the pass, but it still doesn’t hurt to check.
+
+It takes about twenty five minutes to make it from Peter’s neighborhood to Reese’s shop. I lead us to the same spot where Peter and I scoped out the shop last time. I can already tell the shop doesn’t look open which, in the middle of the day is a bad sign for any business, but especially a twenty four hour one. I want to go in and see what I can find, but I decide to be smart, and watch the place for a while first, and give enough time for Henry, Giorgi, and Gavin to show up. Hopefully with Davy. If Iverson already has Davy it just makes the situation that much worse.
+
+We’re early, so we’ve got about an hour before the others are supposed to show up. We sit in silence, since neither of us is all that keen on conversation at the moment. During that time, I see no movement in the shop. No one goes in, and no one comes out. I can’t feel anything alive in there either, and stretching my senses out, I can’t feel any other magic users in the area. At least none that don’t have their energy meridians dimmed. If they did, I probably wouldn’t know about it unless I knew who they were and was able to visually see them. The shop gives me a bad feeling though.
+
+I pull out Peter’s journal and begin to flip through it while we wait for the others to show up.
+
+“What’s that?” Amelia asks eventually.
+
+“Nothing,” I answer.
+
+“You seem pretty interested in it for ‘nothing’.”
+
+I shrug, but don’t answer, and she goes back to watching the shop.
+
+“Well, shit,” I mutter as I flip through a few pages.
+
+“*What?*” Amelia asks, clearly exasperated.
+
+“Nothing,” I repeat.
+
+Amelia snatches the notebook from my hands. I make no move to grab it back. Doing so would just turn into a grappling match and undoubtably draw a bunch of attention we don’t need.
+
+“Well, shit,” she echoes as she reads the last few pages I just finished.
+
+Once she looks up, meeting my eyes, I snatch the journal back.
+
+“Hey!”
+
+“You probably shouldn’t snoop,” I tell her. “Even if you’re *not* in a relationship with Peter.”
+
+“It seems like *you’re* the one that shouldn’t be snooping,” Amelia retorts.
+
+“Yeah. Well.” It’s a valid statement to which I have no good response.
+
+“Did you know Liam told Peter that?”
+
+“No,” I answer truthfully.
+
+“You know they’ve been friends pretty much their entire lives, right?”
+
+“Yes.”
+
+“That’s pretty brutal.”
+
+I nod. No wonder Liam didn’t want to relay the content of their conversation to me. Fuck. Now I feel bad for Peter.
+
+“What’s brutal?” Gavin asks.
+
+I startle at the sound, having been so distracted by the journal and the conversation with Amelia that I didn’t realize they were approaching.
+
+“Nothing,” I answer quickly.
+
+At the same time Amelia says, “Liam told Peter that if Peter and Hazel couldn’t work their shit out, he’d choose Hazel. Regardless of what happened or how it went down, even if Hazel was the one forcing him to choose, he’d choose Hazel, so Peter had better figure out how to fix it to stop it from getting to that point.”
+
+“Oh. Obviously,” Gavin says.
+
+“Obviously?” Amelia and I ask at the same time. I’m not sure what her rationale is, but I’m not sure I’d choose me. Especially not if I was the one forcing the choice.
+
+“Obviously,” Gavin repeats but doesn’t elaborate.
+
+“Whatever,” I say. “It doesn’t matter right now. Davy! When did you last see Alex?”
+
+“Yesterday around noon when he left with Peter and Liam. No response since then.”
+
+“Do you know what they were doing? Liam seemed pissed.”
+
+“Coming here. Reese was missing,” he says, clearly worried, not that you’d be able to from his words alone.
+
+“Fuck,” I hiss. “Okay. Giorgi and I will go look around the shop. The rest of you stay here. Davy, be careful, yeah?”
+
+“You too,” Davy tells me.
+
+Giorgi and I enter through the front door. The shop isn’t quite trashed, but it’s not far from it. Someone clearly either didn’t care if anyone knew they were here or wanted to make sure anyone who came looking knew they were here. My money is on the second.
+
+“Do you know where Reese lives?” I ask Giorgi as I poke around.
+
+He nods.
+
+“I figured.”
+
+Giorgi shrugs. “Someone’s got to keep track of these things.”
+
+“Someone does,” I agree. “What do you think?”
+
+“Someone wanted to make sure it was obvious something happened here.”
+
+“Yeah. If Peter, Liam, and Alex weren’t all missing, I’d be questioning whether Reese could have done this,” I say.
+
+“Why?” Giorgi asks.
+
+“If you’d seen her last time we were here…” I say with a shrug. “She might have decided running was a good option. But it looks like someone decided for her.”
+
+“Or wanted to make it look like they decided for her. She still could have run, and someone else could have decided to make it look like they took her,” Giorgi says thinking aloud.
+
+“Yeah maybe. I’m not sure it makes any difference though.”
+
+He nods.
+
+“Okay. Let’s go.”
+
+I lock the door behind us, for all the good it will do, and we head back to the others. I give them the short version of what we saw in there.
+
+“I think Giorgi, Davy, and I should go check out Reese’s. Amelia, Gavin and Henry, you guys can go talk to Michael, make sure that Reese isn’t there and my mother isn’t—”
+
+I stop talking.
+
+“What?” Davy asks sharply.
+
+“How many people do you think live in the buildings around the Ginnelstreet flats?”
+
+“I don’t know. A couple of hundred maybe. Why?”
+
+“In the building itself?”
+
+“No one, as far as I can tell. All the other floors are empty. Why, Hazel?”
+
+“Alex would have had a key, right?”
+
+Davy nods and I’m already running.
+
+### 31 - Burning Down the House
+
+I’m too far away. I’ll never make it to the flat in time. I stop running and focus all my attention on the eagle as the others catch up. It’s only a few minutes before I see the building. Shit. They’re already there. It was all a diversion. I should have seen it.
+
+“Davy, I need rain! As much rain as fast as you can, everywhere! Have Giorgi help if you need it!”
+
+The situation is far from ideal. I’m a couple of miles away from the flat, and fire is difficult to control under ideal circumstances—circumstances which would at least place me within a couple of blocks of the building where I would be able to control this better, where I would be able to contain the spread of what I’m about to do. But it doesn’t matter because there’s not a better option I can see.
+
+Someone’s people are in the building, and it doesn’t matter if it’s my mother’s people or Iverson’s. If they have Alex, they have a key. And if getting the key was worth grabbing Alex, Peter, and Liam to do it, whatever is in there that they want, they can’t have it. They just can’t.
+
+While it doesn’t take *that* much energy to set a dry piece of wood alight, it *does* take a fair amount of energy to set every inch of a building ablaze at exactly the same moment in a conflagration so hot that it instantly turns the wood to ash. On top of that, I need *rain*, not snow, meaning I can’t take the energy from the heat in our current surroundings because Davy’s going to need it.
+
+Two out of the three deer managed to survive the winter, so I pull on the connections I have with them hard. A lot harder than is ideal, but letting whoever is in the flat have whatever they’re looking for would be a lot less ideal. I can’t explain why I’m so sure, I just am, so consequences be damned. I do it anyway.
+
+As soon as I start pulling power from the deer, I’m directing it as best I can from this distance at the Ginnelstreet flat, using what I can see via the eyes of a fucking bird to do it. This is so far from ideal. It’s like trying to perform surgery with a broadsword.
+
+Flames immediately engulf the building, but I keep feeding power into them because the structure hasn’t completely disintegrated into a pile of ash, which is the result I’m looking for. Because I have no idea what they’re trying to find, nothing can remain. Not the building, not any of the people in it—who according to Davy, should all be working for whoever took Liam and Alex—not the furniture. Everything needs to go.
+
+I’m fighting with the fire to keep it burning hot enough while also stopping it from spreading to easier, more flammable targets as the fire consumes more and more of the building. It feels like the amount of heat I’m radiating isn’t far off of what’s coming off of the building, but it doesn’t matter. If I don’t keep it under control, that whole twisted section of the city will go up. It’s almost all old wooden structures built a handful of feet away from each other at most.
+
+The building is still burning. I’m not sure exactly how long it’s been, but has to have been more than twenty minutes at this point. I haven’t seen anyone make it out of the building alive. Most of it has been reduced to ash, but there are still recognizable sections of the building that need to burn more. I want ash with a consistency like dry snow. By the end, I want the only evidence that a building ever existed there to be the gap where it once stood. So I continue to poor energy into it.
+
+Finally, I feel raindrops hit my skin.
+
+“She’s sizzling,” I hear someone say but it doesn’t matter.
+
+The frequency with which the raindrops are hitting my skin increases, and as it does, I throw the floodgates open. Within minutes the building is completely gone, and now I’m only fighting to keep the fire from spreading to the surrounding buildings. Putting out a fire this size is no small feat.
+
+I’ve cut off all the energy I was feeding into it, and I’m trying to pull back everything remaining, but I’m so far away that it’s proving next to impossible over this kind of distance after that kind of effort.
+
+Luckily, the rain has increased from a drizzle to a downpour to a deluge. It’s falling so heavily now, it’s actually becoming difficult to breathe, which is fine, because this is exactly the amount of water I needed. From a bird’s eye view, I no longer see any visible flames, only steam. Hopefully the rainfall will be sustained enough to keep anything from reigniting.
+
+I take a gasping breath, and stumble as I reach out for the side of the nearest building to brace myself.
+
+“We need to move,” I say raggedly. “I don’t care where for now, just anywhere not here.”
+
+“Okay,” Davy agrees, taking the lead.
+
+I stumble after him, trying not to trip over my own feet.
 
 
 

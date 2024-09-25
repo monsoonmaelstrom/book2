@@ -6078,7 +6078,7 @@ Amelia exits ahead of me, seemingly eager to be out of the room. As I pull the d
 
 ## Part 3
 
-### 30 - Chapter Name TBD (( smooth criminal ?? )) ^^1700 words^^
+### 30 - Smooth Criminal ^^1700 words^^
 
 Amelia leads us southwest away from the war college toward, I’m guessing, wherever it is Peter normally lives when he’s not trying to be hard to find. The southwestern quadrant of Branton is by far the most quiet area of the city. It’s almost all small neighborhoods where old couples and people with young families live. It’s not really where I expected Peter would live.
 
@@ -6414,9 +6414,172 @@ I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cl
 
 “I have invitations to deliver.”
 
-### 32 - Run!
+### 32 - Run! ^^2100 words^^
 
-I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize the list of things I need to do in the next twenty or so ours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same though, so I start heading back toward the city at a fast walk.
+I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty or so hours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same though, so I start heading back toward the city at a fast walk which quickly increases to a jog.
+
+Once I’ve covered about three miles, I slow back to a walk. The streets are still mostly empty. I’m still a few miles south of the city, and there isn’t much reason for people to be out this late in this part of the city. I begin scanning the buildings looking for one that looks like it has easy roof access with a mostly flat rooftop.
+
+It takes a few minutes because the buildings are a lot less dense here, but I finally find one with a drainpipe running along the length of the building that looks secure enough to hold my weight as I climb up it. When I reach the roof I move to the center and wait. After a minute I think I hear a scuff behind me.
+
+“Do you have any more of that bread?” I ask.
+
+“Yes. How long have you known I was following you?” Giorgi asks.
+
+“Pretty much since I left. Your idea or Davy’s?”
+
+“We both thought it was a good idea for everyone to have backup.”
+
+“And you were the obvious choice.”
+
+“Yes,” he agrees walking toward me to hand me what I assume is the remaining bread.
+
+I sigh, but don’t say anything else as I take the bread and begin crumbling it in my hand, letting my senses expand outward. A single spotted eagle isn’t going to cut it. It’s too big, too obvious, and too singular. There’s a flock of pigeons roosting not far from here. I urge the wind to pick up just enough to stir the branches of the tree they’re perching on causing a few of them to take flight or risk falling, and then call them to me.
+
+Before long, I have one pigeon perched immobile on my hand, and another on the ground in front of me. I begin making them into new extensions of myself. Me but not me. The one on my hand is first by virtue of being closest, and as the magic snaps into place, my stomach drops just a little bit. At this point I’m no longer sure it’s even distaste for what I’m doing. I think it might be some sort of sensory thing. Like seasickness. At least that’s what I tell myself as I start on the second one.
+
+My stomach flips a little bit more when the magic for the second snaps into place, and I send both of them back to roost for the night. Letting my senses expand back outward, looking, looking, looking.
+
+I feel an owl swooping over a nearby field after a few minutes, and urge it to me as well and begin the process again, sending it away when I’ve finished, breathing deeply to quell the nausea that’s building.
+
+*Two more. I need two more.*
+
+It takes longer to find them. They must have decent range sizes. Finally I find a second, and by the time I’ve finished, I’ve taken a knee and am bracing myself with a hand against the rooftop. It doesn’t matter that the world is slowly spinning around me. I still need one more. I let my senses expand outward while I keep my vision narrowly focused on my hand in front of me in an effort to still the world.
+
+*One more.*
+
+Eventually, another owl lands on the rooftop in front of me. I take a deep breath and resist the urge to preemptively apologize to it as I start working. Me but not me. Very, very much not me, since I don’t expect them all to live through the night. But it doesn’t matter. I want it, and I left myself have it.
+
+The dizziness slams into me with a new intensity and I’m heaving up a mixture of bread and stomach acid.
+
+“Fuck,” I mutter, wiping my mouth with the back of my hand. “I thought I was past that.”
+
+“Here,” Giorgi says, holding out a waterskin.
+
+“Thanks,” I say softly as I take it and rinse my mouth.
+
+“Is that how we got through the pass?”
+
+“Not exactly,” I answer truthfully and without elaborating. “I’m going have you take one of these. It’ll be good for Davy to have eyes on the top of the cliff.”
+
+“How?”
+
+“Imagine that I’m holding the magic in my hand,” I say, still kneeling. “And imagine your magic is like a hand, and you can reach out and take it. Then keep trying until you do.”
+
+It takes about twenty minutes of trial and error, but eventually he figures it out. I was pretty confident he’d be able to.
+
+“Now that you have it, let yourself look through its eyes. You’ll be able to nudge where it goes and what it does, but ultimately, it’s still just an owl. A light touch is best though.”
+
+“Huh,” is the entirety of Giorgi’s reaction.
+
+“Ready?”
+
+He nods.
+
+“Know any good night markets?” I ask once we’re back on the ground.
+
+“On a Tuesday? No. Why?”
+
+“I need a pen and paper.”
+
+“You have Peter’s journal, right? Just rip a page out of that,” Giorgi says with a shrug.
+
+I was going to give it back, but I can do that less a few pages, right?
+
+“Do you have anything to write with?” I ask him.
+
+“No, but there’s bound to be something in one of these buildings.”
+
+It’s true, but I sigh loudly anyway as I let us into the closest building. I hate looking. Looking takes forever.
+
+The first building is so jam-packed with stuff it’s difficult to move it. There’s probably something to write with in here somewhere, but good luck finding it. We decided to abandon it after a handful of minutes, and move on to the next. The next looks much more like I would expect the inside of a warehouse to look. It looks like it’s some sort of metal shop, but there appear to be small offices in the back that have both pencils and paper, so I don’t have to rip pages out of Peter’s journal.
+
+I scrawl five notes, which all say the same thing: *Northend Bluffs. Midnight. Alex, Peter, Liam unhurt and walking on their own. Trade.*
+
+I don’t bother to specify what we’re trading. Me for them, whatever was in the flat for them, three dozen eggs. Iverson can assign whatever meaning he wants to it, since I don’t have any intention of trading anything for them. He can’t take what’s mine and I won’t trade to get them back.
+
+Back outside, I find five rocks about half the size of my fist and begin ripping lengths of fabric from my shirt tying each note to a rock. Then I call both of the owls that are still bound to me, sending each on its way carrying a rock with a note tied to it. Two of five. Giorgi and I continue walking toward Branton in silence.
+
+It’s probably just after three in the morning when the first owl reaches its location, dropping the rock in the entry of Reese’s shop, and turning to fly back toward Giorgi and me. The next lands at the last spot I saw Iverson before diverting the eagle to the Ginnelstreet flats. I direct it to land on a wide windowsill and it moves the rock with the message from its talons to its beak and starts banging the rock against the window.
+
+On the seventh rap against the glass, the glass shatters, and the owl sets the rock down, and takes flight. I begin counting its wingbeats as it does so.
+
+*One. Two. Three. Fou—* It’s like I just took a hook to the side of my temple. I thought I was prepared, but the fact that I’m lying flat out on the ground says otherwise. I grab my head, waiting for my vision to clear, as Giorgi grabs me under the arms and begins pulling me upright.
+
+“What the hell just happened?” he asks, and it might be the first time I’ve ever heard him sound anything other than neutral, indifferent, or amused.
+
+“Iverson,” I managed to groan out, my hands still wrapped around my head as I try to force my brain to remember that it exists within the confines of my skull. “Killed. The messenger.” I manage to get out between panted breaths.
+
+“Well, I guess you can consider the invitations delivered. Can you stand?” Giorgi asks.
+
+“Give me a minute,” I say as I move a hand to one of his arms to brace myself. “Damn. That hurt.”
+
+----
+
+“We need to stop and get food,” I say. “Some sandwiches or something we can eat on the move.”
+
+“Hand pies?” Giorgi asks with a gleam in his eye.
+
+“I hate hand pies.”
+
+Giorgi grins.
+
+We find a vendor who’s just opening for the day. Fortunately, he’s not selling hand pies but frittatas. We order a couple each and start moving once we’ve received them.
+
+“So what’s the plan?” Giorgi finally asks.
+
+“Don’t die.”
+
+“Seriously.”
+
+“Seriously. I don’t have any plans.” That’s not *exactly* true. Just mostly true. “I have ideas about a bunch of ways to possibly not die. And one of those ideas involves getting to the Northend Bluffs sooner rather than later. So. Shall we?”
+
+If we hurry, we can be there in about an hour and a half, which will have us getting there around nine in the morning. We’ll be there well before everyone else, and have ample time to prepare. At least insofar as you can prepare to be bait.
+
+(( this needs mad work. Le sigh ))
+
+I’ve moved both of the pigeons to locations around the Dairuvar compound, where they’re currently just blending in, being pigeons, waiting for Iverson to move. For all I know though, he could have something similar in place, but I don’t think he does. Or at least, I don’t think he does *right now*. Mostly because I don’t think he knows where I am. But once I get to the Northend Bluffs he’ll know exactly where to look, which raises its own set of problems that I ponder as we make our way north.
+
+(( sam. What about the tracking magic???? WHAT ABOUT IT???? Fuck. ))
+
+I run through possible scenarios in my head, over and over, but all I see are flaws in all of them. I consider aiming for ‘trust me, I’m harmless’, but after the past twenty four hours, I think we’re well past that. He knows I’m not harmless, so I may as well aim for every possible advantage. Only anything advantage I have time to preemptively set up, he has time to counteract.
+
+I’m just going around in circles and getting nowhere. I need a change of perspective. I need to think about something else.
+
+“Tell me something I don’t know,” I say, apropos of nothing.
+
+Giorgi’s eyes dart to me and then quickly dance away. I see his jaw flex.
+
+“Oh,” I say. “You think you know something big that I don’t know! What is it?”
+
+“I didn’t say that.”
+
+“I’m pretty sure you did. At least your face did,” I tell him. “Which is actually interesting. So something big then.”
+
+“How do you figure?”
+
+“The question surprised you enough that whatever your first thought to it was, garnered a reaction of its own, so it must be something big.”
+
+Giorgi shrugs, but says nothing.
+
+I start guessing, watching his expression as I do. “Something about Liam? No. Not Liam. Something about Peter?” Nothing. “Probably not Alex. Have you figured out something about my mother? How would you have though? Same with Iverson… So not them. Amelia? No. Henry? Nope. Gavin? Gavin’s practically an open book. If it was about you, you wouldn’t have reacted. Hell, you wouldn’t have even thought it,” I mutter.
+
+“Davy? No, that doesn’t make any sense either. Davy’s a steel trap. Process of elimination says that only leaves me.”
+
+I think he momentarily misses a breath.
+
+“Something about me, then. Something big. What is it you think you know about me, Giorgi?”
+
+“Nothing.”
+
+“Definitely not nothing. Definitely something. What?”
+
+“Ask Davy. See what he says,” Giorgi tells me with a finality that lets me know I’m not going to get anything more out of him.
+
+
+
+
+
 
 
 

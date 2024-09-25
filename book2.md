@@ -6258,9 +6258,9 @@ I stop talking.
 
 Davy nods and I’m already running.
 
-### 31 - Burning Down the House
+### 31 - Burning Down the House ^^2000 words^^
 
-I’m too far away. I’ll never make it to the flat in time. I stop running and focus all my attention on the eagle as the others catch up. It’s only a few minutes before I see the building. Shit. They’re already there. It was all a diversion. I should have seen it.
+I’m too far away. I’ll never make it to the flat in time. I stop running and focus all my attention on the eagle above the city as the others catch up. It’s only a few minutes before I see the building. Shit. They’re already there. It was all a diversion. I should have seen it.
 
 “Davy, I need rain! As much rain as fast as you can, everywhere! Have Giorgi help if you need it!”
 
@@ -6298,6 +6298,142 @@ I take a gasping breath, and stumble as I reach out for the side of the nearest 
 
 I stumble after him, trying not to trip over my own feet.
 
+Davy looks back at me and says, “Gavin, Henry, help her. I have the feeling we need to be gone sooner rather than later.”
+
+----
+
+We come to a stop in front of a heavily disused warehouse several miles south of the docks where the fights frequently take place. It took a couple of hours of wending our way through the city to get here, with Gavin bracing me from one side and Henry on the other. I’d have long since fallen behind or forced the others to slow down if they weren’t halfway dragging me along. Firestorms are beastly things. Especially when you’re trying to wield them with precision. I need some food and a few hours of sleep. I’m not sure if I’ll get either though.
+
+The sky is still darkened by storm clouds making the late afternoon look more like late evening, but I’m grateful for the thick cloud cover and rain keeping people off of the streets. The fewer prying eyes to see our passage, the better.
+
+“In here,” Davy says as he slides a door open.
+
+The entire floor of the warehouse is covered in a thick layer of dust. Going based off of that, no one has been here in months, maybe even years. We come in dripping water in streams, turning the floor we’re standing on into a muddy tableau.
+
+Davy heaves the door shut, metal groaning in protest as he does, finally dropping a pin into the hasp to secure the door behind us. “We should be fine in here for a while if everyone who knows how to dim their energy meridians does so.”
+
+“What did you do?” Amelia asks looking at me.
+
+“I, uh, hope you guys didn’t have anything valuable in the flats,” I say by way of explanation as I look from Gavin to Giorgi.
+
+“Only all of our current worldly possessions,” Gavin answers.
+
+“Sorry,” I wince slightly as I say it. “The building no longer exactly… exists.”
+
+“Define ‘no longer exactly exists’,” Gavin says.
+
+“Went up in flames?” I try.
+
+“I think knowing you might be hazardous to our health,” Gavin comments, but he doesn’t sound particularly upset as he surveys the interior of the warehouse.
+
+“Yeah. Well, I did try to warn you all about that,” I say with a sigh. I can’t believe I burned the entire building to the ground. “So, how mad do you think Liam is going to be?”
+
+“Honestly?” Gavin asks. “I don’t think he’ll give a shit. It was just a building.”
+
+“I hope you’re right.”
+
+“He is,” Giorgi agrees. “Liam won’t care.”
+
+I nod. I’m exhausted, and we still need to *find* them. All that, and I have no idea where they are. I crouch down leaning my back against one of the warehouse’s structural support pillars and close my eyes, resisting the urge to scream.
+
+“Draw them out?” I ask after a moment, talking to Davy.
+
+“I think we’ll have to,” Davy answers, knowing the question was meant for him.
+
+“I’ll be the bait.”
+
+“You always are.”
+
+I always am.
+
+“We should all sleep,” I tell everyone. “Sleep now, tactics when we wake up. The earliest we’ll move will be tomorrow night. We’ll probably need to do something about food, if anyone wants to handle that.” I say, deciding that food falls under supply chain and logistics, which are not among my specialties.
+
+“I’ll see about finding some food,” Giorgi states.
+
+“Thanks,” Davy and I say together.
+
+----
+
+I wake up sometime later, slightly disoriented with the feeling that I’m forgetting something important. It must just be the remnants of a dream because at the moment, there’s nothing I could have forgotten.
+
+Amelia, Henry, and Gavin are engaged in a quiet conversation about a dozen feet away. Davy is napping a few feet away from me on my other side. And Giorgi is sitting alone, just… staring at me?
+
+“What?” I ask.
+
+“Food?” he queries in response.
+
+“Alright,” I answer, and he passes me some bread. “Why were you watching me sleep?”
+
+“No reason,” he says in a way that clearly indicates there was a reason.
+
+“Whatever,” I grumble. “What time is it?”
+
+“Just before midnight,” I think.
+
+“Damn. Davy, wake up,” I say as I stretch a leg across to jostle him. I’m guessing he didn’t sleep last night either. “Did the rest of you sleep?”
+
+Giorgi nods and says, “A couple of hours.”
+
+Davy sits up, rubbing the sleep from his eyes.
+
+“Good?” I ask him.
+
+“Yeah. What do you think about the Northend Bluffs?” Davy asks.
+
+“You’re thinking about the cliffs?”
+
+Davy nods.
+
+It’s not a bad idea if he’s thinking what I think he’s thinking. The cliffs are about fifty feet above the river there, and the river is deep enough to jump from the cliffs without having to worry about avoiding rocks or breaking bones. I know because we’ve done it. I’ve even done it in the dark. This time of year the water will still be cold but not freezing, and the river there has a decent current without being so fast that it’s dangerous. In theory it makes for a good egress point.
+
+“Can Peter swim?” I ask Giorgi.
+
+He nods.
+
+“We don’t know condition anyone will be in,” Gavin reminds us from the far side of the room, having apparently been listening in on our conversation.
+
+“We’ll stipulate condition,” I tell him, sounding more confidant than I’m sure I have any right to. “Iverson wants me. I’m the bait. We’ll stipulate the condition the others have to be in for me to show up.”
+
+“What are you thinking?” Gavin asks.
+
+“I can find us a couple of small boats,” Davy says thinking aloud. “The hard part is going to be getting everyone over the cliff and into the boats before he can do anything about it.”
+
+Yeah. That’s definitely the hard part.
+
+“I’ll come up with something,” I tell him, though I have no idea what. Maybe just a good old fashioned ‘Run!’ since beggars can’t be choosers and all that. “What time are you thinking? I want to send out invitations,” and do a few other things.
+
+“Midnight? May as well play into the drama of it all,” Davy says.
+
+I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cliff?”
+
+“Yes.”
+
+“Okay, I’ll see you guys tomorrow,” I tell them as I stand and head toward the door.
+
+“Where are you going?” Amelia asks.
+
+“I have invitations to deliver.”
+
+### 32 - Run!
+
+I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize the list of things I need to do in the next twenty or so ours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same though, so I start heading back toward the city at a fast walk.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -6327,7 +6463,6 @@ I stumble after him, trying not to trip over my own feet.
 
 
 Things that need to happen:
-1. Go to Peter’s
 2. Go to Reese’s
 3. Find Liam
 4. Rescue Liam

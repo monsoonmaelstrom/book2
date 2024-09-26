@@ -6078,17 +6078,17 @@ Amelia exits ahead of me, seemingly eager to be out of the room. As I pull the d
 
 ## Part 3
 
-### 30 - Smooth Criminal ^^1700 words^^
+### 30 - Smooth Criminal ^^1800 words^^
 
-Amelia leads us southwest away from the war college toward, I’m guessing, wherever it is Peter normally lives when he’s not trying to be hard to find. The southwestern quadrant of Branton is by far the most quiet area of the city. It’s almost all small neighborhoods where old couples and people with young families live. It’s not really where I expected Peter would live.
+Amelia leads us southwest, away from the war college toward, I’m guessing, wherever it is Peter normally lives when he’s not trying to be hard to find.
 
-But if I strip out everything that’s happened over the past several months, and think back to the Peter that I met that first day in the pub with Davy, this is *exactly* where I would have expected him to live. Who knows, maybe the Peter I met that first day is closer to the real Peter than any other version.
+The southwestern quadrant of Branton is by far the quietest area of the city. It’s almost all small neighborhoods interspersed with tiny green spaces, where old couples and people with young families live. It’s not really where I expected Peter to live. But if I strip out everything that’s happened over the past several months, and think back to the Peter that I met that first day in the pub with Davy, this is *exactly* where I would have expected that Peter to live. Who knows, maybe the Peter I met that first day is closer to the real Peter than any other version.
 
-People are complicated. Mostly that’s a good thing. But when people are complicated the way Peter is, or even the way that Alex is, and definitely the way that I am… It’s just hard. Maybe those similarities between us are what Alex, Davy, and Liam have been trying to make me understand for a while.
+People are complicated. Mostly that’s neither a good nor a bad thing. But when people are complicated the way Peter is, or even the way that Alex is, and definitely the way that I am… It’s just hard. Maybe those similarities between Peter and me are what Alex, Davy, and Liam have been trying to make me understand for a while now.
 
-It’s roughly a thirty minute walk to reach Peter’s flat, deep in a neighborhood.
+It’s roughly a thirty minute walk to reach Peter’s flat, deep within one of the southwestern quadrant’s many neighborhoods. His door is a cheery turquoise that looks like it’s been fairly recently painted.
 
-“Do you know how long he’s lived here?” I ask Amelia.
+“Do you know how long he’s lived here?” I ask Amelia as I look around the street.
 
 “A while, I think. At least a few years.”
 
@@ -6096,17 +6096,17 @@ It’s roughly a thirty minute walk to reach Peter’s flat, deep in a neighborh
 
 “No. We don’t exactly have the ‘exchange keys’ kind of relationship.”
 
-“Okay,” I say nodding. “So when you got here last night you just knocked and no one answered? You didn’t go in?”
+“Okay. So when you got here last night you just knocked and no one answered? You didn’t go in?” I ask.
 
-She nods.
+“No, I didn’t go in. I waited around for a while getting progressively more annoyed, and then left,” she tells me, sounding frustrated.
 
-I block the door with my body for a moment, pantomiming having a key while I use magic to unlock the door and check if anyone is in there, but the flat is empty. I open the door and allow Amelia to enter first, and then lock it behind me.
+I block the door with my body for a moment, pantomiming having a key while I use magic to unlock the door and check if anyone is in there, but the flat is empty. I open the door and allow Amelia to enter first, and then lock it behind me as I follow her in.
 
 “Anything look out of the ordinary?” I ask her.
 
-“No,” she says softly.
+“No,” she says softly after glancing over the space briefly.
 
-I begin looking around. It’s very tidy and very homey. It gives off the vibe of the kind of person who would host dinner parties.
+I begin looking around. It’s very tidy and very homey. It gives off the vibe of the kind of person who would enjoy hosting dinner parties.
 
 “Bedroom?” I ask.
 
@@ -6118,7 +6118,7 @@ I find the bedroom door cracked, and push it all the way open. The bed is made, 
 
 “At least every couple of days,” she calls back.
 
-I continue opening drawers until I come across a small notebook. I flip it open. Writing, more writing. It looks like a journal. I flip to the end. The most recent entry is from three days ago. Nothing especially noteworthy. No roadmap written out detailing a plan to sell me out to Iverson, not that I’d expect Peter to be so dumb if he were planning something like that, but it still doesn’t hurt to check. I shove the notebook into my bag for later.
+I continue opening drawers until I come across a small notebook. I flip it open. Writing, writing, more writing. It looks like a journal. I flip to the end. The most recent entry is from three days ago. Nothing especially noteworthy. No roadmap written out detailing a plan to sell me out to Iverson, not that I’d expect Peter to be so dumb if he were planning something like that, but it still doesn’t hurt to check. I shove the notebook into my bag for later.
 
 I head to the bathroom. All the toiletries are still present. It looks like whatever happened, Peter expected to come back.
 
@@ -6138,11 +6138,13 @@ I head to the bathroom. All the toiletries are still present. It looks like what
 
 “We should go to talk to him later,” I say more to myself than to her. I really don’t think my mother took them. If she had them, she’d want to make sure I knew she had them. She’d have left some sort of message or messenger, the same way she did after the pass, but it still doesn’t hurt to check.
 
-It takes about twenty five minutes to make it from Peter’s neighborhood to Reese’s shop. I lead us to the same spot where Peter and I scoped out the shop last time. I can already tell the shop doesn’t look open which, in the middle of the day is a bad sign for any business, but especially a twenty four hour one. I want to go in and see what I can find, but I decide to be smart, and watch the place for a while first, and give enough time for Henry, Giorgi, and Gavin to show up. Hopefully with Davy. If Iverson already has Davy it just makes the situation that much worse.
+It takes about twenty five minutes to make it from Peter’s neighborhood to Reese’s shop. I lead us to the same spot where Peter and I scoped out the shop last time. I can already tell the shop doesn’t look open which, in the middle of the day, is a bad sign for any business, but especially a twenty four hour one. I want to go in and see what I can find, but I decide to be smart and watch the place for a while first. It should give enough time for Henry, Giorgi, and Gavin to show up. Hopefully with Davy. If Iverson has Davy too, it just makes the situation that much worse.
 
-We’re early, so we’ve got about an hour before the others are supposed to show up. We sit in silence, since neither of us is all that keen on conversation at the moment. During that time, I see no movement in the shop. No one goes in, and no one comes out. I can’t feel anything alive in there either, and stretching my senses out, I can’t feel any other magic users in the area. At least none that don’t have their energy meridians dimmed. If they did, I probably wouldn’t know about it unless I knew who they were and was able to visually see them. The shop gives me a bad feeling though.
+Amelia and I are early, so we’ve got about an hour before the others are supposed to be here. We sit in silence, since neither of us is all that keen on conversation at the moment. During that time, I don’t see any movement in the shop. No one goes in, and no one comes out. I can’t feel anything alive in there either, and stretching my senses out, I can’t feel any other magic users in the area. If there are any around, they have their energy meridians dimmed, and I probably wouldn’t be able to tell they’re here unless I know who they are, and visually see them.
 
-I pull out Peter’s journal and begin to flip through it while we wait for the others to show up.
+The shop gives me a bad feeling though.
+
+After a while, I pull out Peter’s journal and begin to flip through it while we wait for the others to show up.
 
 “What’s that?” Amelia asks eventually.
 
@@ -6158,7 +6160,7 @@ I shrug, but don’t answer, and she goes back to watching the shop.
 
 “Nothing,” I repeat.
 
-Amelia snatches the notebook from my hands. I make no move to grab it back. Doing so would just turn into a grappling match and undoubtably draw a bunch of attention we don’t need.
+Amelia snatches the notebook from my hands. I sigh, but make no move to grab it back. Doing so would just turn into a grappling match and undoubtably draw a bunch of attention we don’t need.
 
 “Well, shit,” she echoes as she reads the last few pages I just finished.
 
@@ -6170,7 +6172,7 @@ Once she looks up, meeting my eyes, I snatch the journal back.
 
 “It seems like *you’re* the one that shouldn’t be snooping,” Amelia retorts.
 
-“Yeah. Well.” It’s a valid statement to which I have no good response.
+“Yeah. Well.” It’s a valid statement to which I have no good response, especially since I intend to continue snooping.
 
 “Did you know Liam told Peter that?”
 
@@ -6190,17 +6192,17 @@ I startle at the sound, having been so distracted by the journal and the convers
 
 “Nothing,” I answer quickly.
 
-At the same time Amelia says, “Liam told Peter that if Peter and Hazel couldn’t work their shit out, he’d choose Hazel. Regardless of what happened or how it went down, even if Hazel was the one forcing him to choose, he’d choose Hazel, so Peter had better figure out how to fix it to stop it from getting to that point.”
+At the same time Amelia says, “Liam told Peter that if Peter and Hazel couldn’t work their shit out, he’d choose Hazel. Regardless of what happened or how it went down, even if Hazel was the one forcing him to choose, he’d choose Hazel, so Peter had better figure out how to fix things in order to stop it from getting to that point.”
 
 “Oh. Obviously,” Gavin says.
 
-“Obviously?” Amelia and I ask at the same time. I’m not sure what her rationale is, but I’m not sure I’d choose me. Especially not if I was the one forcing the choice.
+“Obviously?” Amelia and I ask at the same time. I’m not sure what her rationale is, but I’m not sure *I* would choose me. Especially not if I was the one forcing the choice.
 
 “Obviously,” Gavin repeats but doesn’t elaborate.
 
 “Whatever,” I say. “It doesn’t matter right now. Davy! When did you last see Alex?”
 
-“Yesterday around noon when he left with Peter and Liam. No response since then.”
+“Yesterday, around noon, when he left with Peter and Liam. No response since then.”
 
 “Do you know what they were doing? Liam seemed pissed.”
 
@@ -6210,7 +6212,7 @@ At the same time Amelia says, “Liam told Peter that if Peter and Hazel couldn�
 
 “You too,” Davy tells me.
 
-Giorgi and I enter through the front door. The shop isn’t quite trashed, but it’s not far from it. Someone clearly either didn’t care if anyone knew they were here or wanted to make sure anyone who came looking knew they were here. My money is on the second.
+Giorgi and I enter through the front door, which is unlocked despite the shop being unoccupied. The shop isn’t quite trashed, but it’s not far from it. Someone clearly either didn’t care if anyone knew they were here or wanted to make sure anyone who came looking knew they were here. My money is on the latter.
 
 “Do you know where Reese lives?” I ask Giorgi as I poke around.
 
@@ -6224,11 +6226,11 @@ Giorgi shrugs. “Someone’s got to keep track of these things.”
 
 “Someone wanted to make sure it was obvious something happened here.”
 
-“Yeah. If Peter, Liam, and Alex weren’t all missing, I’d be questioning whether Reese could have done this,” I say.
+“Yeah. If Peter, Liam, and Alex weren’t all missing, I’d be questioning whether Reese could have done this,” I comment.
 
 “Why?” Giorgi asks.
 
-“If you’d seen her last time we were here…” I say with a shrug. “She might have decided running was a good option. But it looks like someone decided for her.”
+“If you’d seen her last time we were here…” I say with a shrug. “She might have decided running was a good option. But since the others are all missing too, it looks like someone decided for her.”
 
 “Or wanted to make it look like they decided for her. She still could have run, and someone else could have decided to make it look like they took her,” Giorgi says thinking aloud.
 
@@ -6252,7 +6254,7 @@ I stop talking.
 
 “In the building itself?”
 
-“No one, as far as I can tell. All the other floors are empty. Why, Hazel?”
+“No one, as far as I can tell. All the other floors are empty. Hazel, *why*?”
 
 “Alex would have had a key, right?”
 
@@ -6260,29 +6262,31 @@ Davy nods and I’m already running.
 
 ### 31 - Burning Down the House ^^2000 words^^
 
-I’m too far away. I’ll never make it to the flat in time. I stop running and focus all my attention on the eagle above the city as the others catch up. It’s only a few minutes before I see the building. Shit. They’re already there. It was all a diversion. I should have seen it.
+I’m too far away. I’ll never make it to the flat in time. I stop running and focus all my attention on the eagle above the city as the others catch up. It’s only a few minutes before I see the building. Shit. They’re already there. It was all a diversion. I *should* have seen it.
 
 “Davy, I need rain! As much rain as fast as you can, everywhere! Have Giorgi help if you need it!”
 
-The situation is far from ideal. I’m a couple of miles away from the flat, and fire is difficult to control under ideal circumstances—circumstances which would at least place me within a couple of blocks of the building where I would be able to control this better, where I would be able to contain the spread of what I’m about to do. But it doesn’t matter because there’s not a better option I can see.
+The situation is far from ideal. I’m a couple of miles away from the flat, and fire can be difficult to control under the best of circumstances—circumstances which would at least place me within a couple of blocks of the building where I would be able to control this better, where I would be able to contain the spread of what I’m about to do. But it doesn’t matter because there’s not a better option I can see.
 
-Someone’s people are in the building, and it doesn’t matter if it’s my mother’s people or Iverson’s. If they have Alex, they have a key. And if getting the key was worth grabbing Alex, Peter, and Liam to do it, whatever is in there that they want, they can’t have it. They just can’t.
+Someone’s people are in the building, and it doesn’t matter if it’s my mother’s people or Iverson’s. If they have Alex, they have a key. And if getting the key was worth grabbing Alex, Peter, and Liam to do it, whatever is in there that they want, I’ve already decided they can’t have it. They just can’t.
 
-While it doesn’t take *that* much energy to set a dry piece of wood alight, it *does* take a fair amount of energy to set every inch of a building ablaze at exactly the same moment in a conflagration so hot that it instantly turns the wood to ash. On top of that, I need *rain*, not snow, meaning I can’t take the energy from the heat in our current surroundings because Davy’s going to need it.
+While it doesn’t take *that* much energy to set a dry piece of wood alight, it *does* take a fair amount of energy to set every inch of a building ablaze at exactly the same moment in a conflagration so hot that it almost instantly turns the wood to ash. On top of that, I need *rain*, not snow, meaning I can’t take the energy from the heat in our current surroundings because Davy’s going to need it.
+
+(( you need to make sure previous descriptions of the building align with it being wooden ))
 
 Two out of the three deer managed to survive the winter, so I pull on the connections I have with them hard. A lot harder than is ideal, but letting whoever is in the flat have whatever they’re looking for would be a lot less ideal. I can’t explain why I’m so sure, I just am, so consequences be damned. I do it anyway.
 
-As soon as I start pulling power from the deer, I’m directing it as best I can from this distance at the Ginnelstreet flat, using what I can see via the eyes of a fucking bird to do it. This is so far from ideal. It’s like trying to perform surgery with a broadsword.
+As soon as I start pulling power from the deer, I’m directing it, as best I can from this distance, at the Ginnelstreet flat, using what I can see via the eyes of a fucking bird to do it. This is so far from ideal. It’s like trying to perform surgery with a broadsword.
 
-Flames immediately engulf the building, but I keep feeding power into them because the structure hasn’t completely disintegrated into a pile of ash, which is the result I’m looking for. Because I have no idea what they’re trying to find, nothing can remain. Not the building, not any of the people in it—who according to Davy, should all be working for whoever took Liam and Alex—not the furniture. Everything needs to go.
+Flames immediately engulf the building, but I keep feeding power into the fire because the structure hasn’t completely disintegrated into a pile of ash, which is the result I’m looking for. Since I have no idea what they’re trying to find, nothing can remain. Not the building, not any of the people in it—who according to Davy, *should* all be working for whoever took Liam and Alex—not the furniture. Everything needs to go.
 
-I’m fighting with the fire to keep it burning hot enough while also stopping it from spreading to easier, more flammable targets as the fire consumes more and more of the building. It feels like the amount of heat I’m radiating isn’t far off of what’s coming off of the building, but it doesn’t matter. If I don’t keep it under control, that whole twisted section of the city will go up. It’s almost all old wooden structures built a handful of feet away from each other at most.
+I’m fighting with the fire to keep it burning hot enough while also stopping it from spreading to easier, more flammable structures nearby as the fire consumes more and more of the building. It feels like the amount of heat radiating off of my body isn’t tremendously different from what’s coming off of the building, but it doesn’t matter. If I don’t keep the fire under control, that whole twisted section of the city will go up in flames. It’s almost all old wooden structures built a handful of feet away from each other.
 
-The building is still burning. I’m not sure exactly how long it’s been, but has to have been more than twenty minutes at this point. I haven’t seen anyone make it out of the building alive. Most of it has been reduced to ash, but there are still recognizable sections of the building that need to burn more. I want ash with a consistency like dry snow. By the end, I want the only evidence that a building ever existed there to be the gap where it once stood. So I continue to poor energy into it.
+The building is still burning. I’m not sure exactly how long it’s been, but I fee like it has to have been more than twenty minutes at this point. I haven’t seen anyone make it out of the building alive. Most of it has been reduced to ash, but there are still recognizable sections of the building that need to keep burning. I want ash with a consistency like dry snow. By the time the fire is out, I want the only evidence that a building ever existed there to be the gap where it once stood. So I continue to pour energy into it.
 
 Finally, I feel raindrops hit my skin.
 
-“She’s sizzling,” I hear someone say but it doesn’t matter.
+“She’s sizzling,” I hear someone say, but it doesn’t matter.
 
 The frequency with which the raindrops are hitting my skin increases, and as it does, I throw the floodgates open. Within minutes the building is completely gone, and now I’m only fighting to keep the fire from spreading to the surrounding buildings. Putting out a fire this size is no small feat.
 
@@ -6298,11 +6302,11 @@ I take a gasping breath, and stumble as I reach out for the side of the nearest 
 
 I stumble after him, trying not to trip over my own feet.
 
-Davy looks back at me and says, “Gavin, Henry, help her. I have the feeling we need to be gone sooner rather than later.”
+Davy looks back at me and says, “Gavin, Henry, help her. I have the feeling we want to be gone sooner rather than later.”
 
 ----
 
-We come to a stop in front of a heavily disused warehouse several miles south of the docks where the fights frequently take place. It took a couple of hours of wending our way through the city to get here, with Gavin bracing me from one side and Henry on the other. I’d have long since fallen behind or forced the others to slow down if they weren’t halfway dragging me along. Firestorms are beastly things. Especially when you’re trying to wield them with precision. I need some food and a few hours of sleep. I’m not sure if I’ll get either though.
+We come to a stop in front of a heavily disused warehouse several miles south of the docks where the fights frequently take place. It took a couple of hours of wending our way through Branton’s twistier streets to get here, with Gavin bracing me on one side and Henry on the other. I’d have long since fallen behind or forced the others to slow down if they weren’t halfway dragging me along. Firestorms are beastly things. Especially when you’re trying to wield them with precision. I need some food and a few hours of sleep. I’m not sure if I’ll get either though.
 
 The sky is still darkened by storm clouds making the late afternoon look more like late evening, but I’m grateful for the thick cloud cover and rain keeping people off of the streets. The fewer prying eyes to see our passage, the better.
 
@@ -6326,7 +6330,7 @@ Davy heaves the door shut, metal groaning in protest as he does, finally droppin
 
 “I think knowing you might be hazardous to our health,” Gavin comments, but he doesn’t sound particularly upset as he surveys the interior of the warehouse.
 
-“Yeah. Well, I did try to warn you all about that,” I say with a sigh. I can’t believe I burned the entire building to the ground. “So, how mad do you think Liam is going to be?”
+“Yeah. Well, I did try to warn you all about that,” I say with a sigh. A small part of me can’t believe I burned the entire building to the ground. “So, how mad do you think Liam is going to be?”
 
 “Honestly?” Gavin asks. “I don’t think he’ll give a shit. It was just a building.”
 
@@ -6334,7 +6338,7 @@ Davy heaves the door shut, metal groaning in protest as he does, finally droppin
 
 “He is,” Giorgi agrees. “Liam won’t care.”
 
-I nod. I’m exhausted, and we still need to *find* them. All that, and I have no idea where they are. I crouch down leaning my back against one of the warehouse’s structural support pillars and close my eyes, resisting the urge to scream.
+I nod. I’m exhausted, and we still need to *find* them. All that, and I have no idea where they are. I crouch down, leaning my back against one of the warehouse’s structural support pillars and close my eyes, resisting the urge to scream in frustration.
 
 “Draw them out?” I ask after a moment, talking to Davy.
 
@@ -6348,15 +6352,15 @@ I always am.
 
 “We should all sleep,” I tell everyone. “Sleep now, tactics when we wake up. The earliest we’ll move will be tomorrow night. We’ll probably need to do something about food, if anyone wants to handle that.” I say, deciding that food falls under supply chain and logistics, which are not among my specialties.
 
-“I’ll see about finding some food,” Giorgi states.
+“I’ll do it,” Giorgi states.
 
 “Thanks,” Davy and I say together.
 
 ----
 
-I wake up sometime later, slightly disoriented with the feeling that I’m forgetting something important. It must just be the remnants of a dream because at the moment, there’s nothing I could have forgotten.
+I wake up sometime later, slightly disoriented with the feeling that I’m forgetting something important. It must just be the remnants of a dream because, at the moment, there’s nothing I could have forgotten.
 
-Amelia, Henry, and Gavin are engaged in a quiet conversation about a dozen feet away. Davy is napping a few feet away from me on my other side. And Giorgi is sitting alone, just… staring at me?
+Amelia, Henry, and Gavin are engaged in a quiet conversation about a dozen feet away. Davy is napping a few feet away from me on my other side with an arm thrown over his face. And Giorgi is sitting alone, just… staring at me?
 
 “What?” I ask.
 
@@ -6384,7 +6388,7 @@ Davy sits up, rubbing the sleep from his eyes.
 
 Davy nods.
 
-It’s not a bad idea if he’s thinking what I think he’s thinking. The cliffs are about fifty feet above the river there, and the river is deep enough to jump from the cliffs without having to worry about avoiding rocks or breaking bones. I know because we’ve done it. I’ve even done it in the dark. This time of year the water will still be cold but not freezing, and the river there has a decent current without being so fast that it’s dangerous. In theory it makes for a good egress point.
+If he’s thinking what I think he’s thinking, it’s not a bad idea. The cliffs are about fifty feet above the river there, and the river is deep enough to jump from the cliffs without having to worry about avoiding rocks or breaking bones. I know because we’ve done it. I’ve even done it in the dark. This time of year, the water will still be cold but not freezing, and the river has a decent current there, without being so fast that it’s dangerous. In theory, it makes for a good egress point.
 
 “Can Peter swim?” I ask Giorgi.
 
@@ -6394,7 +6398,7 @@ He nods.
 
 “We’ll stipulate condition,” I tell him, sounding more confidant than I’m sure I have any right to. “Iverson wants me. I’m the bait. We’ll stipulate the condition the others have to be in for me to show up.”
 
-“What are you thinking?” Gavin asks.
+“What are you guys thinking?” Gavin asks.
 
 “I can find us a couple of small boats,” Davy says thinking aloud. “The hard part is going to be getting everyone over the cliff and into the boats before he can do anything about it.”
 
@@ -6414,13 +6418,13 @@ I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cl
 
 “I have invitations to deliver.”
 
-### 32 - Run! ^^2100 words^^
+### 32 - Run! ^^2300 words^^
 
 I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty or so hours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same though, so I start heading back toward the city at a fast walk which quickly increases to a jog.
 
-Once I’ve covered about three miles, I slow back to a walk. The streets are still mostly empty. I’m still a few miles south of the city, and there isn’t much reason for people to be out this late in this part of the city. I begin scanning the buildings looking for one that looks like it has easy roof access with a mostly flat rooftop.
+Once I’ve covered about three miles, I slow back to a walk. The streets are still mostly empty. I’m still a few miles south of the city, and there isn’t much reason for people to be out this late in this part of the city. I begin scanning the buildings looking for one that looks like it has easy rooftop access with a mostly flat roof.
 
-It takes a few minutes because the buildings are a lot less dense here, but I finally find one with a drainpipe running along the length of the building that looks secure enough to hold my weight as I climb up it. When I reach the roof I move to the center and wait. After a minute I think I hear a scuff behind me.
+It takes a few minutes because the buildings are a lot less dense here, but I finally find one with a drainpipe running along the exterior of the building that looks secure enough to hold my weight as I climb up it. When I reach the roof I move to the center and wait. After a minute I think I hear a scuff behind me.
 
 “Do you have any more of that bread?” I ask.
 
@@ -6436,21 +6440,21 @@ It takes a few minutes because the buildings are a lot less dense here, but I fi
 
 I sigh, but don’t say anything else as I take the bread and begin crumbling it in my hand, letting my senses expand outward. A single spotted eagle isn’t going to cut it. It’s too big, too obvious, and too singular. There’s a flock of pigeons roosting not far from here. I urge the wind to pick up just enough to stir the branches of the tree they’re perching on causing a few of them to take flight or risk falling, and then call them to me.
 
-Before long, I have one pigeon perched immobile on my hand, and another on the ground in front of me. I begin making them into new extensions of myself. Me but not me. The one on my hand is first by virtue of being closest, and as the magic snaps into place, my stomach drops just a little bit. At this point I’m no longer sure it’s even distaste for what I’m doing. I think it might be some sort of sensory thing. Like seasickness. At least that’s what I tell myself as I start on the second one.
+Before long, I have one pigeon perched immobile on my hand, and another on the ground in front of me. I begin making them into new extensions of myself. Me, but not me. The one on my hand is first by virtue of being closest, and as the magic snaps into place, my stomach drops just a little bit. At this point I’m no longer sure it’s even distaste for what I’m doing. I think it might be some sort of sensory thing. Like seasickness. At least that’s what I tell myself as I start on the second one.
 
-My stomach flips a little bit more when the magic for the second snaps into place, and I send both of them back to roost for the night. Letting my senses expand back outward, looking, looking, looking.
+My stomach flips a little bit more when the magic for the second settles into place, and I send both of them back to roost for the night. Once again, I let my senses expand back outward, looking, looking, looking.
 
 I feel an owl swooping over a nearby field after a few minutes, and urge it to me as well and begin the process again, sending it away when I’ve finished, breathing deeply to quell the nausea that’s building.
 
 *Two more. I need two more.*
 
-It takes longer to find them. They must have decent range sizes. Finally I find a second, and by the time I’ve finished, I’ve taken a knee and am bracing myself with a hand against the rooftop. It doesn’t matter that the world is slowly spinning around me. I still need one more. I let my senses expand outward while I keep my vision narrowly focused on my hand in front of me in an effort to still the world.
+It takes longer to find them. I know next to nothing about owls, but finding them takes long enough that I figure they must have decent range sizes. Finally I locate a second, and by the time I’ve finished, I’ve taken a knee and am bracing myself with a hand flat against the rooftop. It doesn’t matter that the world is slowly spinning around me. I still need one more. I let my senses expand outward while I keep my vision narrowly focused on my hand in front of me in an effort to still the world.
 
 *One more.*
 
-Eventually, another owl lands on the rooftop in front of me. I take a deep breath and resist the urge to preemptively apologize to it as I start working. Me but not me. Very, very much not me, since I don’t expect them all to live through the night. But it doesn’t matter. I want it, and I left myself have it.
+Eventually, another owl lands on the rooftop in front of me. I take a deep breath and resist the urge to preemptively apologize to it as I start working. Me, but not me. Very, very much not me, since I don’t expect them all to live through the night. But it doesn’t matter. I want it, and I left myself have it.
 
-The dizziness slams into me with a new intensity and I’m heaving up a mixture of bread and stomach acid.
+The dizziness slams into me with a new intensity and I’m heaving up a mixture of bread and bile.
 
 “Fuck,” I mutter, wiping my mouth with the back of my hand. “I thought I was past that.”
 
@@ -6492,29 +6496,35 @@ I was going to give it back, but I can do that less a few pages, right?
 
 It’s true, but I sigh loudly anyway as I let us into the closest building. I hate looking. Looking takes forever.
 
-The first building is so jam-packed with stuff it’s difficult to move it. There’s probably something to write with in here somewhere, but good luck finding it. We decided to abandon it after a handful of minutes, and move on to the next. The next looks much more like I would expect the inside of a warehouse to look. It looks like it’s some sort of metal shop, but there appear to be small offices in the back that have both pencils and paper, so I don’t have to rip pages out of Peter’s journal.
+The first building is so jam-packed with stuff it’s difficult to move in. There’s probably something to write with in here somewhere, but good luck finding it. We decided to abandon it after a handful of minutes, and move on to the next. The next looks much more like I would expect the inside of a warehouse to look. It seems like it’s some sort of metal shop, but there are a couple of small offices in the back that have both pencils and paper, so I don’t have to rip pages out of Peter’s journal.
 
-I scrawl five notes, which all say the same thing: *Northend Bluffs. Midnight. Alex, Peter, Liam unhurt and walking on their own. Trade.*
+I scrawl five notes just to be safe, though I’m not sure I’ll need them. They all say the same thing: *Northend Bluffs. Midnight. Alex, Peter, Liam unhurt and walking on their own. Trade.*
 
-I don’t bother to specify what we’re trading. Me for them, whatever was in the flat for them, three dozen eggs. Iverson can assign whatever meaning he wants to it, since I don’t have any intention of trading anything for them. He can’t take what’s mine and I won’t trade to get them back.
+I don’t bother to specify what we’re trading. Me for them, whatever was in the flat for them, three dozen eggs for them. Iverson can assign whatever meaning he wants to it, since I don’t have any intention of trading anything for them. He can’t take what’s mine and I won’t trade to get them back.
 
-Back outside, I find five rocks about half the size of my fist and begin ripping lengths of fabric from my shirt tying each note to a rock. Then I call both of the owls that are still bound to me, sending each on its way carrying a rock with a note tied to it. Two of five. Giorgi and I continue walking toward Branton in silence.
+Back outside, I find five rocks about half the size of my fist and begin ripping lengths of fabric from my shirt, wrapping each note around a rock and using the fabric to tie it in place. Then I call both of the owls that are still bound to me, sending each on its way carrying a rock with a note tied to it. Two of five. We’ll see if I need the other three.
 
-It’s probably just after three in the morning when the first owl reaches its location, dropping the rock in the entry of Reese’s shop, and turning to fly back toward Giorgi and me. The next lands at the last spot I saw Iverson before diverting the eagle to the Ginnelstreet flats. I direct it to land on a wide windowsill and it moves the rock with the message from its talons to its beak and starts banging the rock against the window.
+Giorgi and I continue walking toward Branton in silence.
 
-On the seventh rap against the glass, the glass shatters, and the owl sets the rock down, and takes flight. I begin counting its wingbeats as it does so.
+It’s probably just after three in the morning when the first owl reaches its location, dropping the rock in the entry of Reese’s shop, and turning to fly back toward Giorgi and me. The next lands at the last spot I saw Iverson before diverting the eagle to the Ginnelstreet flats. I direct it to land on a wide windowsill and it moves the rock from its talons to its beak, then starts banging the rock against the window.
 
-*One. Two. Three. Fou—* It’s like I just took a hook to the side of my temple. I thought I was prepared, but the fact that I’m lying flat out on the ground says otherwise. I grab my head, waiting for my vision to clear, as Giorgi grabs me under the arms and begins pulling me upright.
+On the seventh rap against the glass, the glass shatters. The owl drops the rock and takes flight. I begin counting its wingbeats as it flies away.
+
+*One. Two. Three. Fou—* It’s like I just took a hook to the side of my temple. I thought I was prepared, but the fact that I’m lying flat out on the ground says otherwise. I hold my head, waiting for my vision to clear, as Giorgi grabs me under the arms and begins pulling me upright.
 
 “What the hell just happened?” he asks, and it might be the first time I’ve ever heard him sound anything other than neutral, indifferent, or amused.
 
-“Iverson,” I managed to groan out, my hands still wrapped around my head as I try to force my brain to remember that it exists within the confines of my skull. “Killed. The messenger.” I manage to get out between panted breaths.
+“Iverson,” I managed to groan out, my hands still wrapped around my head as I try to force my brain to remember that it exists within the confines of my skull. “Killed. The messenger.” I manage to get out between ragged gasps of pain.
 
 “Well, I guess you can consider the invitations delivered. Can you stand?” Giorgi asks.
 
 “Give me a minute,” I say as I move a hand to one of his arms to brace myself. “Damn. That hurt.”
 
 ----
+
+I’ve moved both of the pigeons to locations around the Dairuvar compound, where they’re currently just blending in, being pigeons, waiting for Iverson to move. For all I know though, he could have something similar in place, but I don’t think he does. Or at least, I don’t think he does *right now*. Mostly because I don’t think he knows where I am. But once I get to the Northend Bluffs he’ll know exactly where to look, which raises its own set of problems that I ponder as we make our way north.
+
+At least I know he’s still there based on the reception the owl delivering my message received, though.
 
 “We need to stop and get food,” I say. “Some sandwiches or something we can eat on the move.”
 
@@ -6524,7 +6534,7 @@ On the seventh rap against the glass, the glass shatters, and the owl sets the r
 
 Giorgi grins.
 
-We find a vendor who’s just opening for the day. Fortunately, he’s not selling hand pies but frittatas. We order a couple each and start moving once we’ve received them.
+We find a vendor who’s just opening for the day. Fortunately, he’s not selling hand pies but frittatas. We order a couple each and are back on the move again as soon as we receive them.
 
 “So what’s the plan?” Giorgi finally asks.
 
@@ -6532,17 +6542,17 @@ We find a vendor who’s just opening for the day. Fortunately, he’s not selli
 
 “Seriously.”
 
-“Seriously. I don’t have any plans.” That’s not *exactly* true. Just mostly true. “I have ideas about a bunch of ways to possibly not die. And one of those ideas involves getting to the Northend Bluffs sooner rather than later. So. Shall we?”
+(( this section needs mad work. Le sigh ))
 
-If we hurry, we can be there in about an hour and a half, which will have us getting there around nine in the morning. We’ll be there well before everyone else, and have ample time to prepare. At least insofar as you can prepare to be bait.
+“Seriously. I don’t have any plans.” I tell him, which isn’t *exactly* true. Just mostly true. “I have ideas about a bunch of ways to possibly avoid dying. And one of those ideas involves getting to the Northend Bluffs sooner rather than later. So. Shall we?”
 
-(( this needs mad work. Le sigh ))
-
-I’ve moved both of the pigeons to locations around the Dairuvar compound, where they’re currently just blending in, being pigeons, waiting for Iverson to move. For all I know though, he could have something similar in place, but I don’t think he does. Or at least, I don’t think he does *right now*. Mostly because I don’t think he knows where I am. But once I get to the Northend Bluffs he’ll know exactly where to look, which raises its own set of problems that I ponder as we make our way north.
+If we hurry, we can be there in about an hour and a half, which should be around mid-morning. We’ll be there well before everyone else, and have ample time to prepare. At least insofar as you can prepare to be bait.
 
 (( sam. What about the tracking magic???? WHAT ABOUT IT???? Fuck. ))
 
 I run through possible scenarios in my head, over and over, but all I see are flaws in all of them. I consider aiming for ‘trust me, I’m harmless’, but after the past twenty four hours, I think we’re well past that. He knows I’m not harmless, so I may as well aim for every possible advantage. Only anything advantage I have time to preemptively set up, he has time to counteract.
+
+(( this section needs mad work. Le sigh - probably through here ))
 
 I’m just going around in circles and getting nowhere. I need a change of perspective. I need to think about something else.
 
@@ -6550,21 +6560,23 @@ I’m just going around in circles and getting nowhere. I need a change of persp
 
 Giorgi’s eyes dart to me and then quickly dance away. I see his jaw flex.
 
-“Oh,” I say. “You think you know something big that I don’t know! What is it?”
+“Oh,” I say. “You think you know something *big* that I don’t know! What is it?”
 
 “I didn’t say that.”
 
-“I’m pretty sure you did. At least your face did,” I tell him. “Which is actually interesting. So something big then.”
+“I’m pretty sure you did. At least your face did,” I tell him. “Which is actually interesting because it means it’s definitely something big. Or at least you think it is.”
 
 “How do you figure?”
 
-“The question surprised you enough that whatever your first thought to it was, garnered a reaction of its own, so it must be something big.”
+“The question surprised you enough that whatever your first response to it was garnered a reaction of its own, so it must be something big.”
 
 Giorgi shrugs, but says nothing.
 
-I start guessing, watching his expression as I do. “Something about Liam? No. Not Liam. Something about Peter?” Nothing. “Probably not Alex. Have you figured out something about my mother? How would you have though? Same with Iverson… So not them. Amelia? No. Henry? Nope. Gavin? Gavin’s practically an open book. If it was about you, you wouldn’t have reacted. Hell, you wouldn’t have even thought it,” I mutter.
+I start guessing, watching his expression as I do.
 
-“Davy? No, that doesn’t make any sense either. Davy’s a steel trap. Process of elimination says that only leaves me.”
+“Something about Liam?” I ask, pausing long enough to see if I get a reaction. “No. Not Liam. Something about Peter?” Still nothing. “Probably not Alex. Have you figured out something about my mother?” I wait half a second, but there’s no reaction. “How would you have, though? Same with Iverson. So not either of them. Amelia?” Still nothing. “No. Henry? Nope. Gavin? Gavin’s practically an open book. If it was about you, you wouldn’t have reacted. Hell, you wouldn’t have even thought it,” I mutter.
+
+“Davy? No, that doesn’t make any sense either. Davy’s a steel trap. Process of elimination says that only leaves me,” I say, remembering the way he was staring at me when I woke up earlier.
 
 I think he momentarily misses a breath.
 
@@ -6572,7 +6584,7 @@ I think he momentarily misses a breath.
 
 “Nothing.”
 
-“Definitely not nothing. Definitely something. What?”
+“Definitely not nothing. Definitely something. And you think it’s something I don’t know. What?”
 
 “Ask Davy. See what he says,” Giorgi tells me with a finality that lets me know I’m not going to get anything more out of him.
 

@@ -6984,47 +6984,87 @@ He grins. “But it’s so entertaining in there.”
 
 “She’d probably tell you that you’ll get used to it. Anyway, if you can use it for… other things, I don’t see why you wouldn’t be able to use it for this. Try.”
 
-### 35 - Chapter Name TBD
+### 35 - Virtue ^^1300 words^^
 
-I feel like I’ve been floating in a silent darkness forever. There’s no wind. No temperature. No smell. No anything. It’s formless. I’d say I was lost, but there’s nothing here, so be lost seems technically impossible.
+I feel like I’ve been floating in a silent darkness forever. There’s no wind. No temperature. No smell. No anything. It’s formless. I’d say I was lost, but there’s nothing here, so being lost seems technically impossible.
 
 I remember what was happening. I remember everything. I remember Iverson fighting against me, and the distant feel of the water as we hit it. I remember seeing Liam before that, and the relief I felt at that, even though I *knew* he was still okay before that.
 
 I *remember* everything, but I don’t *know* anything. I don’t know how I got here, and I don’t know how to get out. I don’t know what happened to Iverson when I came into this nothing, and I don’t know what happened to me either.
 
-There’s no magic here, and I don’t know if that’s *because* there’s no magic here, the way there’s no temperature, or if it’s because I broke myself with what I did. I can’t even feel the magic binding me to Liam, which has been omnipresent
+There’s no magic here, and I don’t know if that’s *because* there’s no magic here, the way there’s no temperature, no ground, and no sky or if it’s because I broke myself with what I did. I can’t even feel the magic binding me to Liam, which has been omnipresent since its inception.
 
+There’s just nothing.
 
+I’m not sure how long I’ve been here. I have no idea if time is moving very slowly, or very quickly. I haven’t been hungry, thirsty, or tired since I’ve been here. I’m honestly not even totally sure if I’m corporeal or if I’m just an idea. I keep trying to feel my own body, and I think for brief moments, I do. But then the idea of it collapses like a sandcastle that’s too close to the water, and I’m not sure if I imagined it or not.
 
+I’m going to go crazy if I can’t find a way out of here. If Liam can’t find a way to get me out. Because I really think he’s the only one that might be able to. I have no idea how Alex or Davy could even find me. It’s only the connection Liam has to me that might allow him to do it, and that’s assuming it’s still intact outside of this place.
 
+I could be dead, but I’m pretty sure I’m not. It seems like the kind of thing you’d know, and I definitely don’t *feel* dead. What I feel, is really fucking annoyed.
 
+I’m annoyed at myself for ending up in whatever state I’m in. I’m annoyed that somehow I didn’t manage to pull Iverson here with me. I don’t know if he’s elsewhere in a similar state—I hope so—but for all I know he might have managed to keep himself out of it somehow. I’m annoyed that it’s taking Liam so long to get me out of here, even though I don’t actually know that it is. For all I know only five minutes has passed in the real world.
 
+I want to yell, but it doesn’t seem to have any effect. And I don’t even know if that’s because I don’t have a voice, or if it’s because this place is sucking the sound out of my words before it even has a chance to become audible. The not knowing is maddening.
 
+If this were a room, I’d be banging my hands against the door in rage, but even that’s denied to me because there is no door, and because I possibly don’t even have hands.
 
+That’s the weirdest part of it all: not knowing if I have a body or not, and not being able to look to see it, or even reach down and touch it.
 
+I am currently as formless as this place is. I hate it. It vexes me terribly.
 
+----
 
+I feel like a hundred years have gone by. Maybe even a thousand. I’m starting to feel like I never existed anywhere else. I think I’m starting to forget, and I feel like forgetting would be a very bad thing in this place. I’m just not sure why. And I’m not sure if that’s because I’ve forgotten, or because I never knew.
 
+I feel like there’s so much I’ve forgotten. My name is Hazel. I know that. I know it was dark before I came here. And I know I’m waiting for someone. Or I think I am. I hope I am. I don’t want to be here all alone forever. That seems undesirable.
 
+I am a person. People are supposed to be with other people. I’m pretty sure that’s one of those rules, or something.
 
+I wish I knew how I got here.
 
+I wish I knew how long I was going to be here.
 
+----
 
+The darkness seems darker. I’m not sure how long it’s seemed darker, but I don’t like it. I think it’s another bad sign. I think there are only bad signs here.
 
+I don’t think I’m ever going to get out of here. Getting out of here implies that there is somewhere else. Another place. But I don’t remember being anywhere else. I think I’ve been here forever.
 
+Except… there’s somewhere else. Right? Right?
 
+----
 
+There’s a person called Hazel. Or maybe there used to be? I’m not sure.
 
+----
 
+Me. I’m the person called Hazel. I’m a person. I have a name. There are other people. Lots of other people. It’s not just me. I mean, here it is. Here, it’s just me. But somewhere there are other people. Other people that I need to get back to. Liam and Alex and Davy. They’re people like me. They’re my people. There are others too. I just can’t remember them. Yet. I can’t remember them *yet.* But I think maybe I will?
 
+Maybe?
 
+----
 
+The darkness seems less dark. I think it’s been less dark for a while. But it’s hard to tell. I need to get out of here.
 
+I know who I am again. I think I forgot for a while, which seems like a very bad thing, but now I know who I am again, and that seems… better. I think.
 
+But I need to get out of here. I can’t stay here. It feels like maybe the barrier between this place and everywhere else is getting thinner. Like maybe soon I’ll be able to break through it. Or would be able to if I had a body.
 
+How do you get a body? A body is just a thing you have. Where is mine? How do I get it back?
 
+Liam is the one who can get me out. I’m sure of it. I focus everything I can on thoughts of him.
 
+The annoying way he’s always asking questions. So many questions. Questions about me, questions about magic, questions about us, questions about Davy, questions about Alex, questions I don’t want to answer. Only now maybe I do want to answer them.
 
+The way his eyes crinkle slightly when he laughs. The way his body engulfs mine, how the second he wraps his arms around me I lose all desire to be anywhere else. I think about how stubborn he can be when he thinks he’s right, or when he thinks I’m wrong. The way he’s always trying to keep me safe, even though I’m so much more powerful than he is—so much more powerful than he can even begin to understand—and the irony that I need him to come to my rescue now is not lost on me. I think about the look on his face that night we made paper lanterns and watched them float away. I think about falling in love with him, and I hold onto that thought with everything I can.
+
+I feel the magic binding us together flare to life, and as soon as I do, I’m grasping at it like it’s a life preserver, because I’m pretty sure it is. It feels like I’m being pulled. I’m just not sure if I’m being pulled out of here, or pulled apart. I don’t think it matters though, because either way it’s something different.
+
+I think maybe I hear screaming, and maybe I feel pressure.
+
+I think I’m alive.
+
+### 36 - Chapter Name TBD
 
 
 
@@ -7045,9 +7085,7 @@ There’s no magic here, and I don’t know if that’s *because* there’s no m
 
 
 Things that need to happen:
-2. Go to Reese’s
-3. Find Liam
-4. Rescue Liam
+
 5. Go talk to Alexandria
 6. Peter double agent???
 7. Get captured

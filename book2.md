@@ -6418,7 +6418,7 @@ I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cl
 
 “I have invitations to deliver.”
 
-### 32 - Run! ^^2300 words^^
+### 32 - Repeat ^^2300 words^^
 
 I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty or so hours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same though, so I start heading back toward the city at a fast walk which quickly increases to a jog.
 
@@ -6496,7 +6496,7 @@ I was going to give it back, but I can do that less a few pages, right?
 
 It’s true, but I sigh loudly anyway as I let us into the closest building. I hate looking. Looking takes forever.
 
-The first building is so jam-packed with stuff it’s difficult to move in. There’s probably something to write with in here somewhere, but good luck finding it. We decided to abandon it after a handful of minutes, and move on to the next. The next looks much more like I would expect the inside of a warehouse to look. It seems like it’s some sort of metal shop, but there are a couple of small offices in the back that have both pencils and paper, so I don’t have to rip pages out of Peter’s journal.
+The first building is so jam-packed with stuff it’s difficult to move in. There’s probably something to write with in here somewhere, but good luck finding it. We decide to abandon it after a handful of minutes, and move on to the next. The next looks much more like I would expect the inside of a warehouse to look. It seems like it’s some sort of metal shop, but there are a couple of small offices in the back that have both pencils and paper, so I don’t have to rip pages out of Peter’s journal.
 
 I scrawl five notes just to be safe, though I’m not sure I’ll need them. They all say the same thing: *Northend Bluffs. Midnight. Alex, Peter, Liam unhurt and walking on their own. Trade.*
 
@@ -6538,7 +6538,7 @@ We find a vendor who’s just opening for the day. Fortunately, he’s not selli
 
 “So what’s the plan?” Giorgi finally asks.
 
-“Don’t die.”
+“Don’t die. Don’t lose.”
 
 “Seriously.”
 
@@ -6587,6 +6587,413 @@ I think he momentarily misses a breath.
 “Definitely not nothing. Definitely something. And you think it’s something I don’t know. What?”
 
 “Ask Davy. See what he says,” Giorgi tells me with a finality that lets me know I’m not going to get anything more out of him.
+
+### 33 - Run! ^^1500 words^^
+
+I’ve been waiting at the Northend Bluffs for hours. Giorgi and I separated shortly before I got here. He tried to argue, tried to convince me that he should stay with me, at least for a while but the fact of the matter is that he needs to meet up with Davy, and I don’t need Iverson following him to Davy when he does. On top of that, I don’t need anyone else on top of the cliff to worry about when Iverson gets here. Giorgi’s capable, but he’s not *that* capable. I’m not sure anyone is that capable. Including me.
+
+It’s probably close to seven in the evening, and since I’ve arrived, I’ve done practically nothing. I’m operating under the assumption that I’m being watched, so at least that’s how I’m hoping it looks from the outside. When I first got here, I took a quick look around, and counted my steps to the edge of the cliff. Since that point I’ve been sitting on the ground about thirty-five feet away from the cliff’s edge, waiting.
+
+I briefly considered having a thick fog roll in before I got here, to make things difficult for anyone watching, but ultimately decided it wasn’t worth the effort. Iverson could likely dissipate if he really wanted to, and wasting energy battling over the weather would be useless. Instead, I’ve been very subtly cultivating the conditions for fog immediately over the river at the base of the cliff, in a way that will hopefully look completely natural and be entirely undetectable once night sets in. It should be just enough to obscure Davy and the others, and nothing more, since I don’t want to give Iverson any reason to think twice about the river.
+
+I know there’s a good chance Iverson will either show up earlier or later than the appointed time, and even though we didn’t discuss it, Davy will know it too. I expect he’ll be ready and waiting regardless.
+
+So. I’ve been sitting here, communing with nature, building a mental map of the bluff, just in case, since you never know what might be useful. The hours tick by with agonizing slowness, but I give no outward sign of my agitation.
+
+I *can* be calm and hold still when I have to.
+
+Finally, as night falls, I see Iverson leaving the Dairuvar compound. He’s on horseback, along with three men I don’t recognize. Alex, Liam, and Peter are being loaded into an open wagon, but they’re all conscious, which is good news. I estimate that they’ll probably arrive sometime around eleven.
+
+Still, I don’t move or give any outward sign that I know they’re coming, even though my heart rate has definitely picked up its cadence. I breathe in, and I breathe out as I watch them progress northward through the city.
+
+*Soon, soon, soon, soon,* my inner voice repetitively chants needing something to do as they draw closer and closer.
+
+The breeze tickles my skin, and the leaves on the trees rustle softly. I hear an owl hoot somewhere nearby, and briefly wonder if it’s the one I gave to Giorgi keeping watch, not that it matters—my brain just won’t shut up. The waiting is always the worst part. I would prefer to be actively doing something, even if it’s something terrible. But right now, I wait.
+
+They’re less than a mile away now, but I remain seated on the ground, unmoving, until I can see them with my own eyes. When I finally do, I stand. Iverson stops their group about twenty feet away from me.
+
+I can see Liam, Alex, and Peter in the wagon. Peter’s head is bowed and he’s looking down at his hands. Liam’s eyes are surveying our immediate vicinity, maybe looking for the others. Alex is looking at me intently, and he’s the one I’m focused on. I’m throwing all my feelings directly at him—screaming ‘Jump!’—hoping he picks up on them, which it seems like he’s trying to do.
+
+(( you should do more description here ))
+
+I stand waiting silently until Iverson dismounts. The others in his party stay atop their horses. We stare across the distance at one another for a few moments.
+
+“Hi, dad,” I say.
+
+It’s difficult to tell in this light, but I think he winces slightly, and I grin in response. Score one point for me.
+
+“So, are you going to let them go or what?” I ask him.
+
+“You said you would trade,” he says in a low voice that still manages to carry to me.
+
+I nod. “I did. We will. Let them out, and I’ll give you what you want.”
+
+“Give me what I want, and I’ll let them out,” he says, giving the obvious response.
+
+I shake my head. “Sorry. Not until you let them out. See, right now things are skewed a little too far in your favor. There are four of you and only one of me. I’d prefer if our sides were a little more balanced before giving you want you want. Especially since I’m pretty sure you’re quite a bit more powerful than me.” I tack the last bit on just for good measure. You never know what casually stroking someone’s ego can do for you.
+
+He makes no move to release them, and gives no order for his men to do so. He only stands there silently evaluating me.
+
+I sigh, and then sit back down on the ground, as if I am completely unbothered and have nothing better to be doing and nowhere better to be doing it.
+
+At least two minutes tick by, but I do and say nothing. Eventually he turns to one of his men and nods. The man walks back to the wagon, and lowers the back gate before climbing in and untying them. They all step out, and begin walking toward me.
+
+“The trade,” Iverson states.
+
+“Yes, of course,” I answer. “One second.”
+
+(( description ))
+
+Liam reaches me first, followed ever so slightly by Peter and Alex. I give Liam a quick glance, but otherwise ignore him, focusing all my attention on Alex and directing all my feelings toward him—still silently screaming ‘Jump!’
+
+I hope that the answer to the question, ‘If all your friends jump off the cliff, are you going to?’ is, ‘Yes, obviously.’
+
+“Alex, do you remember what you spent all summer teaching me when I was five?” I ask softly.
+
+He gives a quick nod.
+
+“Do you remember why?”
+
+Another nod.
+
+“I need you to do it again.” I grab his hand. “Run!” I scream and pull us toward the cliff, but I’m already gone.
+
+I’ve thrown the floodgates to my magic open in a way I’ve never allowed myself to do before. Everything, all at once, all directed at Iverson, all for the people I love.
+
+The trick to it—and there’s always a trick to everything—is that I don’t need to win. I just need to make sure that Iverson can’t win either, and then trust the people around me to take care of the rest of it.
+
+We’ll jump over the cliff, and Alex will make sure I don’t drown. Then once we’re in the water, Davy will make sure we get out and get away, and the others will help him get us somewhere safe. And once they do, if I’m very, very lucky, Liam will be able to figure out how to use the magic stretching between us to pull me back.
+
+Until then, I just need to not lose.
+
+Everything, all at once. My mind is already divorced from my body, and I’m throwing all of my magic around Iverson, tangling us together, binding us so tightly that neither of us can do anything, weaving my magic through and around both of our energy meridians and pulling it tighter and tighter and tighter—just like the snares for the rabbits, the more he struggles, the tighter it should get.
+
+All I need to do is make sure he can’t use his magic at all, and the only way I know how to accomplish that is to use mine to make such a mess of both of our energy meridians that *neither* of us can do anything. Because if he can use his magic, he can stop Davy from getting us away from here. He could drop the cliff on them, or freeze the river, or sink the boats or a thousand other things, all of which result in us losing.
+
+So just like I did to Liam on the archery field, I grab onto Iverson and trust Alex, Davy, and now Liam to handle the rest.
+
+I continue weaving my magic through Iverson’s with the sole goal of creating such a mess that we’re both mired in it for a good, long while. I’m distantly aware of the air rushing past me, and then being under water.
+
+Then there’s nothing but darkness and the feeling of someone struggling against me, trying to shove me away but I just hold on tighter. Then there’s pain, and more pain, but I keep holding on.
+
+Then there’s nothing.
+
+Just nothing.
+
+Forever.
+
+### 34 - No Light, No Light ^^3800 words^^
+
+“She’s still not awake,” I manage to grate out. Saying even that much feels like I’m trying to swallow shards of glass. “Three days, Davy. It’s been three damn days. You said she’d be awake by now.” I resist the urge to step into his personal space in an effort to intimidate him, primarily because I know it won’t have the desired effect, but also because doing so would likely put me that much closer to slamming a fist into his face.
+
+“Try breathing,” Alex says from off to my left.
+
+I feel my jaw clench as I resist directing my anger and fear at him instead.
+
+“How could you let her do this?” I ask, just shy of a roar, still taking my ire out on Davy, who doesn’t even have the decency to try to defend himself.
+
+“No one *lets* Hazel do anything,” Alex comments.
+
+This time I round on him. “Shut the fuck up, Alex. No one asked for your input, and I don’t need a gods damned running commentary right now!”
+
+He holds up his hands, stepping back a step as he lets out a sigh. “Fine. Be an asshole then. Just remember that you’re going to need to apologize to *everyone* when she wakes up,” he mutters.
+
+“This is your fault, Davy. I swear, if she doesn’t wake up…” I don’t finish the thought mostly because I can’t.
+
+“Actually, I’m pretty sure it’s *your* fault,” Gavin comments from the doorway, having just walked back into the room.
+
+“Come again?” I ask slowly.
+
+“You heard me,” Gavin answers, his voice as irritatingly cocksure as always. “But sure, Liam. I’ll say it again: It’s *your* fault. If you hadn’t gotten captured, Hazel wouldn’t have had to save your ass. If you’d been able to escape, she wouldn’t have had to take on Iverson for you. If you want to blame someone, you should go find a mirror.”
+
+“Now you’ve done it,” I hear Giorgi mutter from behind me as I launch myself at Gavin.
+
+My relationship with Gavin can be tense at the best of times. We’re both too alike in all the wrong ways and completely different in the rest. I’m not in the mood to deal with him, and I *am* in the mood to hit someone.
+
+I grab him around his waist as I slam my shoulder into him knocking him back a step. He’s already trying to twist away, but I keep driving forward until his back slams into the wall of the room behind him, pinning him in place momentarily, but he drives an elbow down into my upper back and I grunt in pain.
+
+“Should we do something about this?” I hear Alex ask someone behind me. Probably Peter or Giorgi.
+
+“Nope,” Peter comments disinterestedly.
+
+“Nah,” Giorgi agrees.
+
+Gavin’s hands are on my shoulders, shoving me back, but my hands are twisted around the fabric of his shirt and I pull him with me as I roll down onto my back and use the momentum to flip us both over so that when we stop moving I have him pinned beneath me. I manage to land one hit to his jaw that sends his head rocking sideways before he twists beneath me and somehow manages to drive both feet into my solar plexus sending me flying backwards, unable to breathe.
+
+“Are you done?” he asks me derisively as he slowly stands, rubbing his jaw with one hand. After a moment, he extends the other out to me.
+
+I look up at him angrily, and consider not taking it.
+
+“Stop being an asshole,” Gavin says, hand still extended out to me.
+
+I reach up and take it, allowing him to pull me back to my feet. “Fine,” I mutter, glaring at him.
+
+“You win some, you lose some, Liam. Hazel knew what she was doing. Besides, it’s not like Davy could have stopped her.”
+
+I scoff. “If you don’t think Davy could have stopped her, Gavin, you haven’t been paying attention. If he didn’t want her on that cliff, she wouldn’t have been there,” I say loudly enough for everyone to hear me because it’s damn well true.
+
+Alex sighs loudly, and now I do round on him.
+
+“No, don’t you even fucking start, Alex. You *know* it’s true. You *know* it as well as I do, if not better. He could have stopped her if he’d wanted to.”
+
+“You overestimate the authority I have over Hazel,” Davy finally says. They’re the first words he’s said in the more than thirty minutes my anger toward him has been clearly on display for everyone in the room.
+
+“I’m not overestimating anything, Davy,” I tell him coldly. “Do you want to poll the room?”
+
+“Do you really think she would have just left you with him on my say so?” Davy asks.
+
+“I think if you told her to, if you’d come up with *any* other plan, yeah. She would have.”
+
+I look at Alex.
+
+“Yeah. Maybe,” he says with a shrug.
+
+I know Alex is of the opinion that what’s done is done, but I’m finding it a little less easy to accept that.
+
+“Neither of us wanted to leave either of you with him. Is that what you want to hear me say?” Davy asks.
+
+“No. I want you to say you know how to fix her!”
+
+“Well, I don’t,” Davy says, dropping his head to hands and burrowing his fingers into his hair, sounding exhausted. “I have no gods damned idea what she did and I have no fucking idea how to fix it. I’ve been trying to work it out for the past three days, Liam. *You’re* the one who can feel her magic the best. You’re the one who’s *bound* to her, so why don’t you stop shouting at me and start trying to help me figure out how to fix it!” he tells me acerbically. “Whatever she did, she thought it was survivable—*fixable*—or she wouldn’t have done it.”
+
+“He has a point,” Alex says.
+
+“A good one,” Gavin agrees.
+
+He does. It takes the wind out of my sails. I’m still not used to having magic as a tool that I can use, and I honestly forget about it more often than not, and the fact that I spent the last couple of days with (( the magic suppression drug )) working its way out of my system doesn’t help.
+
+“Fine.”
+
+I sit down on the bed next to Hazel’s limp body. We’re all crammed into some tiny three room flat Davy found or borrowed, and Hazel’s occupying the only bed. I’ve never seen her like this, and it terrifies me. There was that time in Ponchar (( ??? Check )) after she restored my memory where she was asleep for three days, but that was different. I was also asleep for two of the three of those days, but more importantly she *looked* like she was just asleep then.
+
+Even in the pass when Davy tied her to her horse, then tied me to mine, and she was out for days, she didn’t look this bad. But she could have stopped that any time she wanted. I get the feeling she can’t stop whatever this is.
+
+Right now, she looks like she’s dying. Her complexion is sallow and she has dark circles under eyes. She’s barely breathing. I keep having to check that she’s still alive, which just serves to illustrate how irrational I’m being, since if I’m still alive she must be too. I don’t need to check, but I still keep doing it.
+
+I wrap my palm around hers, and it engulfs her entire hand. Her skin feels cold, and every time I touch her, I worry that it’s going to be the last time. It’s hard to breathe around that thought. It feels like my chest is being squeezed from the inside out.
+
+She’s getting thinner too. I can see the bones in her wrist sharply through her skin. She never completely regained all the weight she lost in the pass. I’m so worried that I feel paralyzed.
+
+“Liam, relax,” Alex says from a chair he’s pulled up to the other side of the bed. “I meant it earlier when I said you should try breathing. If you can’t keep your own shit together, you’re not going to be able to help her.”
+
+“I know,” I say softly. “I just don’t know how.”
+
+“Stop thinking. That’s the trick to getting through the really bad stuff. You have to be able to *stop*. There was no before. There will be no after. There’s only now. Only the world as it is. When there’s nothing else to compare it to, it can’t be anything except for what it is, and what it is, is *fine*. Right here, right now, she’s fine. *Everything* is *fine*.”
+
+“That’s—”
+
+“Just try it, Liam. You have to be able to detach. Whether you’ve realized it or not, you’ve watched all three of us do it. We know a thing or two about this,” Alex says, sympathetically. “The rest of you can go find somewhere else to be,” he tells the others, in a tone that doesn’t leave any room for argument.
+
+I take a breath. No before. No after.
+
+“Fine. What do you want me to do?”
+
+I see Alex glance at Davy, and Davy gives him a small nod, indicating Alex should run the show. I’m not sure if he thinks it’s because Alex will do a better job, or if he’s worried that I’ll lose what little composure I have if he starts talking to me.
+
+“Can you feel the magic connecting the two of you?”
+
+“Yes.”
+
+“Okay, good. Can you touch it at all?”
+
+“Yes.”
+
+“Does it look any different?”
+
+“I don’t know. I don’t think so,” I answer. I wish I was better at this. For the first time, I wish I’d spent my entire life learning how to do this. How am I the best tool for this? There’s no way I’m going to be able to do what they’re asking. I have no idea about any of this.
+
+“Liam,” Alex says, getting my attention, “whatever you’re thinking, stop.”
+
+I inhale sharply but nod, running my thumb over the skin on the back of her hand. It’s so cold. No one alive should be this cold.
+
+“What are you doing?” Davy asks.
+
+“Nothing,” I answer, staring at my hand wrapped around hers.
+
+“Okay, well keep doing that. What happened last time?”
+
+“Last time what?” I ask, keeping my eyes on our hands.
+
+“When Alex asked if you could touch the magic bonding you and Hazel together, you didn’t have to think about it or check. So what happened last time you touched it?”
+
+“Nothing.”
+
+“Liam—” Davy begins.
+
+“No, Davy. Stop.” Alex says. “Liam’s and Hazel’s magic has always intrinsically responded to one another. Just leave it.”
+
+The three of us sit clustered around Hazel and the silence is the loudest thing in the room as seconds stretch into minutes.
+
+“We know whatever Hazel did, she thought could be undone, and I’m pretty sure she thought you could undo it,” Alex tells me.
+
+“We don’t know that,” I mutter as I look back at him.
+
+The two of us don’t look anything alike, but his eyes look so much like Hazel’s—midnight blue and rimmed by thick, dark lashes—that I can’t force myself to meet his gaze for more than a few seconds before looking away.
+
+“You might not. But Davy and I know. And we know that it was you, because if it was one of us she would have told me on the cliff, but all she told me was what she needed from me then, and she’d already told Davy what she needed from him. That only leaves you, Liam.”
+
+“I have no idea what I’m supposed to do or how I’m supposed to do it! Everything magic is the three of you.”
+
+“You know more about the magic binding you to Hazel than anyone,” Davy tells me. “You know more than I do, more than Alex, and I’m pretty sure you know more than Hazel does. *She* believed you could fix it. So start trying to fix it.”
+
+“I don’t—”
+
+“It doesn’t matter,” Davy says cutting me off. “If you want her back, you’re going to have to figure it out.”
+
+This conversation is getting us nowhere, so I stop talking. I focus on the physical sensation of Hazel’s hand in mine, and underlying that the magic connecting us to one another. It almost feels a little bit brighter at the spot where our hands meet.
+
+I sigh, releasing her hand as I slide one arm under shoulders and the other under her legs and lift her cradling her limp body against my chest, and I’m reminded of all the other times we’ve been in this same position. I find myself feeling a bit of solace in the fact that this isn’t the first time we’ve been here, and in the end she’s been fine the other times. I hope that means she’ll be fine this time too, but another part of me is wondering how many time we can really be that lucky. *I just need her to be okay,* I think as I remember the first time I found her unconscious on the rooftop after Alex… before I knew who she really was or that he existed. Things were so much easier then, but there’s not any part of me that wants to go back to that.
+
+I close my eyes as I remember that day, and try to let the memories flow along the magic that’s binding us together. I was trying to explain. To apologize. But it all kept coming out wrong, and I could see her getting angrier and angrier. Then the look on her face when I accused her of using my feelings for her against me. I’m not sure I’ve done or said anything else in my life that made me feel like a shittier human being than I did when I saw her reaction to that statement.
+
+Then she left. She just left. Almost instantly I realized how badly I’d screwed up. I wanted to take it all back and apologize, only by the time I figured out how to follow her and worked up the nerve to do so, she was lying in a crumpled heap on the roof, and I had no idea what to do. There was nothing wrong with her but she was completely unresponsive. I carried her to Davy’s because I had no idea what else to do. Compared to now though, she seemed like the picture of health.
+
+I try to stop the memory of her on the cliffs from bubbling back to the surface, but running over the events of that night has become a well worn groove in mind during the past few days, and I can’t quite prevent it from happening.
+
+I was still halfway drugged. Peter was even more so, I think. Alex seemed to be recovering better than either of us. Probably because of all the shit their mother did to them as children. When I saw Hazel standing there though, it was like something flared in my chest, and the closer I got to her the more it seemed like I could feel the magic between us crackling back to life.
+
+Everything happened so fast. She gave me a fleeting smile, said a few words to Alex and then screamed at us to run. Then I was jumping off the edge of a cliff before I had half a second to consider what I was doing or think better of it. I hit the water, and by the time I surfaced, Alex was already swimming toward the boats with Hazel, keeping her head above the water. At first, I thought it wouldn’t be long until she woke up, but once I got into the boat with her, nothing about her felt right. It was like there was no light at all around her anymore, where before there had always been a bonfire. She hasn’t opened her eyes since.
+
+----
+
+Someone is shaking me.
+
+“Stop drooling on my sister.”
+
+“What?” I mutter groggily.
+
+My head has fallen forward and my cheek is pressed into the top of Hazel’s head. My mouth feels like I’ve been eating sand, and I have a crick in my neck from the awkward position I’ve been in for who knows how long.
+
+“Wake up and eat something,” Alex tells me.
+
+I look down at Hazel. “She’s still the same.”
+
+“No,” Peter says from across the room, apparently having come back at some point. “She definitely looks better than she did. Less gray.”
+
+“Yeah,” Gavin agrees. “She looks a lot less like a corpse than she did when we left.”
+
+Giorgi elbows him.
+
+“What? It’s true,” he says rubbing at his ribs.
+
+“Yeah,” Amelia agrees standing next to Peter. “Definitely better. Whatever you did seems like it helped.”
+
+I’m skeptical. “I didn’t *do* anything.”
+
+“That’s what you always say,” Alex tells me. “And yet,” he gestures at Hazel in my arms. “Set her down, come eat something, and see for yourself.”
+
+I follow his advice, gingerly moving her off of me. My legs tingle as blood rushes back into them after having been in the same position for so long. Finally, when the tingling stops, I stand and go over to the table, which is arrayed with chicken, and an assortment of roasted vegetables.
+
+I look back at Hazel, and I think she might look a little bit better, but I’m not certain that it’s not just a trick of the late evening light lending her a bit more color. I can’t help but sigh.
+
+“Where’s Davy?” I ask as I take a piece of chicken.
+
+“Out on the balcony,” Alex answers. “Don’t throw him off of it,” he calls after me as I walk toward it.
+
+I give him the finger as I continue walking in the direction of the balcony.
+
+Davy’s elbows are resting on the railing, and he’s leaning over it looking down. He glances up when he hears the door open, and quickly glances back down when he sees it’s me.
+
+I lean over the railing next to him. “I only came to say sorry,” I tell him by way of explanation. “Gavin and Alex were right. I was being an asshole and you didn’t deserve it. None of this is your fault. Blaming you isn’t fair to you or Hazel.”
+
+I see a little bit of tension leave Davy’s body when he realizes I didn’t come to yet at him some more.
+
+“You’re not wrong though. I should have found another way, but I couldn’t see one. I still can’t, and I’ve done nothing but replay every decision I’ve made over the past five days,” he says softly.
+
+“Neither did she. If she thought there was a better way, she wouldn’t have been up there.”
+
+It’s true that Davy has a lot of sway over both Alex and Hazel. But I also know that Davy and Hazel don’t always agree, and when they don’t Hazel tends to do what she thinks is best, not what Davy does.
+
+“Are you okay?” I ask, really looking at him for the first time in days. He doesn’t look great. He’s been losing weight, and I’m not sure he’s slept at all since we got here.
+
+“I’m fi—” he starts.
+
+“Davy, don’t give me that same bullshit you’re all always repeating about being fine. *None* of you are fine.”
+
+He shakes his head.
+
+“What?” I ask.
+
+“Don’t.”
+
+“Don’t what?”
+
+“We are *all* fine,” he tells me firmly. “The only way we all hold it together is by being fine, so don’t.”
+
+“Alright,” I agree for now.
+
+“Hazel looks better,” he comments, echoing the others.
+
+“Maybe. I’m not sure.”
+
+“She does. Whatever you were doing, you should keep doing it.”
+
+“I wasn’t doing anything,” I reiterate.
+
+Davy shrugs.
+
+----
+
+I spend most of the next two days cradling Hazel’s limp body. I swear I’m not doing anything, but she does look better. Even I’m seeing it by this point. She still hasn’t woken up though. It’s been five days now, and though she looks better, my fear isn’t abating the longer this goes on.
+
+There’s also the matter of Reese. I know Peter’s still been looking for her, and been coming up empty. I haven’t been able to help and that’s been eating at me too. I can’t be totally sure Iverson didn’t take her, but based on the two and a half days we spent as his unwilling guests, I don’t think he did. I think he just used her absence to his advantage and I was stupid enough to fall for it.
+
+Gavin was right when he said I should be blaming myself about all of this.
+
+“Amelia, can you go talk to Michael? See if he knows anything about Reese?” I ask.
+
+“Funny. Hazel wanted us to do the same thing before all this,” she says, gesturing at our current cramped quarters. “Yeah, fine,” she agrees.
+
+“Take Giorgi and Henry with you.”
+
+“Sure,” she says, as she gets up to leave.
+
+I rest my head back against the wall behind me and stare up at the ceiling feeling useless, and thinking of every choice I would make differently if I had it to do over again.
+
+“Stop feeling sorry for yourself, Liam,” Alex tells me from the other side of the room.
+
+“Stop listening in on my feelings,” I respond. I think since he’s unable to tease Hazel and get his fill of petty arguments with her, he’s using me as the stand-in sibling, and it’s getting incredibly annoying.
+
+“I felt that too.”
+
+“Not my problem.”
+
+He sighs. “I think you should try something new.”
+
+“Like what?”
+
+“Well, you keep saying you’re not doing anything…”
+
+“Right. Because I’m not.”
+
+“You definitely have been, but that’s neither here nor there. The magic that’s binding you together, you said you can touch it, right?”
+
+“Yes.”
+
+“Try using it to pull her toward you,” Alex suggests.
+
+“It’s not… I don’t know if…”
+
+“Why—ah. I see.”
+
+“Stay out of my head, Alex,” I growl.
+
+He grins. “But it’s so entertaining in there.”
+
+“I don’t know how Hazel puts up with you.”
+
+“She’d probably tell you that you’ll get used to it. Anyway, if you can use it for… other things, I don’t see why you wouldn’t be able to use it for this. Try.”
+
+### 35 - Chapter Name TBD
+
+I feel like I’ve been floating in a silent darkness forever. There’s no wind. No temperature. No smell. No anything. It’s formless. I’d say I was lost, but there’s nothing here, so be lost seems technically impossible.
+
+I remember what was happening. I remember everything. I remember Iverson fighting against me, and the distant feel of the water as we hit it. I remember seeing Liam before that, and the relief I felt at that, even though I *knew* he was still okay before that.
+
+I *remember* everything, but I don’t *know* anything. I don’t know how I got here, and I don’t know how to get out. I don’t know what happened to Iverson when I came into this nothing, and I don’t know what happened to me either.
+
+There’s no magic here, and I don’t know if that’s *because* there’s no magic here, the way there’s no temperature, or if it’s because I broke myself with what I did. I can’t even feel the magic binding me to Liam, which has been omnipresent
+
 
 
 

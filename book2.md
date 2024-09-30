@@ -7058,7 +7058,7 @@ I think maybe I hear screaming, and maybe I feel pressure.
 
 I think I’m alive.
 
-### 36 - Chapter Name TBD ^^1500 words^^ (( sweet dreams ??? The great escape ???))
+### 36 - The Great Escape ^^1500 words^^
 
 “Try,” Alex tells me again when I don’t immediately respond.
 
@@ -7440,9 +7440,208 @@ I fight down the urge to shudder at the thought of another day in that place. �
 
 “We thought it would be in poor taste to include you, Alex,” Gavin says.
 
-“It’s like you don’t even know me,” Alex sighs in response.
+“It’s like you all don’t even know me,” Alex sighs in response.
 
-### 38 - Chapter Name TBD
+### 38 - Crucify/When the Levee Breaks/Where is My Mind ^^1600 words^^
+
+I’ve finally finished eating. I had three plates of food and I think it may have been a mistake. My stomach feels like it’s going to burst, and I’m not sure but I think it’s possible that I only had that last plate to delay the inevitable.
+
+“Can we get onto the roof?” I ask. I want to know because kicking everyone else out so that I can have this conversation seems wrong. But I definitely don’t want to have it front of everyone.
+
+“Yes,” Giorgi confirms.
+
+“Great,” I sigh in a tone that is anything but. “Giorgi, Davy, I want to talk to you on the roof. *Only* Giorgi and Davy,” I specify before Liam and Alex can invite themselves along.
+
+“Hazel,” Giorgi says softly. “Alex and Liam should come.”
+
+“No.”
+
+“They deserve to know.”
+
+Perfect. Now everyone is looking back and forth between Giorgi and me, turning a conversation that may have gone unremarked upon into a conversation that will very much remarked upon.
+
+“What’s going on?” Gavin asks.
+
+“Nothing,” Giorgi and I say together.
+
+“Fine,” I say relenting. “Let’s go.”
+
+Davy sighs as we all stand. I’m not sure if he’s figured it out yet or not. Alex and Liam just look perplexed—I think they’re as confused by Giorgi’s behavior as they are by mine. Giorgi’s the only one who looks unfazed. I don’t even want to know that look my own face is wearing.
+
+Giorgi leads the way to the staircase that goes to the roof, and I follow him up, the food I’ve eaten weighing heavy in my stomach as Davy, Alex, and Liam trail behind me.
+
+“The door,” I say to Davy once we’re all on the roof.
+
+He sighs but nods in acquiescence.
+
+“How long have you known?” I ask rounding on Giorgi.
+
+He doesn’t ask what I’m referring to. “I’ve suspected it since Leisch,” he says softly. “But I wasn’t sure until Lisette.”
+
+Fucking Lisette. “The fucking stones,” I mutter.
+
+He nods.
+
+“And you didn’t say anything?” I’m shouting now.
+
+“It wasn’t my place,” he inclines his head subtly towards Davy.
+
+“And you’re sure he knows?” I ask, talking about Davy like he isn’t here.
+
+“Pretty sure,” Giorgi says.
+
+“How could you not tell me?” I shout turning to Davy now.
+
+“Not tell you what, exactly?” Davy asks carefully.
+
+“You know what!”
+
+“I’m not sure I do.”
+
+He’s just being an asshole now. He’s going to make me say. I want to shove him off the roof, but I know I’d regret it later, and mostly I can’t make myself move. My feet feel like they’re bolted to the rooftop and my mouth feels like it’s full of sand.
+
+I can’t quite make myself get the next words out, and seeing my hesitation Davy says, “You know better than to ask the goblin where he got his gold, Hazel.”
+
+The words feel like a slap in the face and I think I feel something inside of me breaking. The world goes wavy in front of my eyes and the center of my face feels like a hot, prickling mess.
+
+I glance sideways to where Alex and Liam are standing across from Giorgi. Liam’s mouth has fallen open and he’s glancing back and forth between me and Davy.
+I guess he’s worked it out now too. I never wanted him to know. *I* never wanted to know.
+
+“What question doesn’t she want the answer to, Davy?” Alex asks slowly.
+
+Davy only stares at me, waiting to see if I’ll ask it. I can’t force the words out now, and tears are streaming down my face.
+
+Giorgi takes pity on me and says barely louder than a whisper, “Alexandria might not be able to see the future, but Hazel can.”
+
+Davy’s eyes flick sideways to Giorgi, and I get the sense Davy is restraining himself from violence as he says, “They both can, actually. That’s why she’s… the way she is.”
+
+“Huh,” I hear Giorgi say.
+
+“Davy…” Alex sounds as horrified as I feel.
+
+“You were never supposed to know! None of you was ever supposed to know.”
+
+“Because you did something to me to keep me from realizing!” I accuse.
+
+“No. Not me,” he says.
+
+“But you know who did.”
+
+“Yes.”
+
+“Who?” I ask.
+
+“Our mothers. Mine, yours, and Peter’s.”
+
+“Yours for the power, mine for the shaping, and Peter’s for the forgetting,” I breathe out with a nod. It makes sense.
+
+Davy nods. “You were never supposed to realize, but I think you’ve been undoing it since Ponchar.”
+
+“All the power that took. *This* was why.” I bet it’s also why I’ve been waking up feeling like I’m forgetting something so often. *How many times did I realize it and then forget?* I wonder
+
+Davy nods again.
+
+“So why didn’t you tell me then?”
+
+“I was hoping it would hold.”
+
+“Why?”
+
+“Because seeing the future… that way lies madness.” Davy sighs. “Giorgi was right when he said Alexandria is nervous all the time, he was just wrong about the reason why. From what I understand, seeing the future isn’t like looking out of a window and watching what’s happening on the street,” Davy says, watching me closely to see if I’ll disagree. “It’s hints and ideas, fleeting impressions and half-forgotten dreams. It’s hard to know what’s real and what’s not. It’s hard to tell which things are really glimpses of the future and which things your imagination has just conjured because it was bored.
+
+“Like the stones,” Davy said. “You had no idea why it was important, just that it was, right?”
+
+I nod. I had no idea why I was preoccupied with them for months.
+
+“And holding your breath?”
+
+“It seemed like it could be useful,” I say in a small voice.
+
+“*That’s* why you didn’t teach Liam. *That’s* why you got mad when I asked why you hadn’t,” Alex states.
+
+“I thought about it, and every time I did, it seemed like a bad idea.”
+
+“It makes you question every single thought,” Davy says. “It’s enough to drive a person mad.”
+
+“The clothes and the comment about the goblin,” Liam says.
+
+“The clothes were just a guess,” I state.
+
+Liam doesn’t ask if I’m sure, but I can tell he wants to.
+
+“If our positions were reversed, I would have left clothes for Alex.” I hope I sound more sure than I feel.
+
+“See? Every. Single. Thought. *That’s* why I never told you. *That’s* why they did what they did. *That’s* why you were *never* supposed to find out.”
+
+“I’m not her. I’ll figure out how to deal with it. I’ll be fine,” I assert with far more confidence than I feel.
+
+“I can’t believe you would keep something like that from us,” Alex tells Davy.
+
+“I couldn’t tell you, Alex,” he says, and I hear the pleading in his voice. “You would have told her.”
+
+“Of course I would have told her. You should have told her!” Alex shouts back.
+
+“You should have told me,” I agree.
+
+“If the situation was reverse, would you have told me?” Davy asks.
+
+“Yes,” we both answer without hesitation.
+
+“We would have told you,” Alex says. “We would have told you because it’s important and we need to be able to trust each other! And you don’t trust us at all.”
+
+“I wouldn’t have left you to figure it out while you were alone, trapped wherever I was,” I tell him and I see the regret flash across his face.
+
+“Even I think you should have told her, Davy,” Giorgi says, “and I keep practically everything to myself. I’m not going to tell Gavin,” he adds as he flicks his gaze to me.
+
+“I can’t undo the past.”
+
+“No,” Liam agrees, “but you can say sorry.”
+
+Davy nods. “I’m sorry, Hazel.”
+
+“I wouldn’t have done that to you,” I tell him.
+
+“I know,” he says softly.
+
+----
+
+Davy and Giorgi have left, and I’m sitting with my back against the edge of the rooftop with Alex on one side and Liam on the other. It feels like my entire world has split in two. Davy has always been the one person I’ve trusted most, and now I don’t know if I can trust him at all. It has me questioning my own judgement. I can deal with not being told everything, but this was something he should have told me, and we all know it. Even he knows it.
+
+“You two told me once that Davy makes the hard decisions,” Liam says carefully, like he knows he’s treading on dangerous ground. “I think this may have been one of them.”
+
+“Really,” Alex scoffs, “you’re taking his side?”
+
+“No, Alex. I think he should have told you too, but think about it. He was probably… what, five, when he started keeping that secret? Things like that, they’re not easy to let go of. I’m just suggesting that maybe you keep that in mind when you talk to him next.”
+
+“*If* I talk to him next,” Alex mutters.
+
+“Alex,” I chide.
+
+“How would you feel if it was Liam, Hazel?”
+
+“Betrayed. And I get it. It’s not the same but I feel betrayed too. He loves you though. He loves both of us, even if we’re both really mad at him right now.”
+
+“You should talk to him,” Liam says. “He’s not okay. He hasn’t been okay since the pass.”
+
+“You think I don’t know that?” Alex asks, his voice sounding raw. “I’ve been trying to get him to talk to me for months.”
+
+“I can try, if you want?” I say.
+
+“Be my guest.”
+
+“How much longer are we staying here?” I ask Liam.
+
+“How much longer do you want to stay here?”
+
+“Give me a day? We can go back the day after tomorrow.”
+
+### 39 - Chapter Name TBD
+
+
+
+
+
+
 
 
 

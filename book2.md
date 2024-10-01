@@ -7442,7 +7442,7 @@ I fight down the urge to shudder at the thought of another day in that place. �
 
 “It’s like you all don’t even know me,” Alex sighs in response.
 
-### 38 - Crucify/When the Levee Breaks/Where is My Mind ^^1600 words^^
+### 38 - Crucify/When the Levee Breaks ^^1600 words^^
 
 I’ve finally finished eating. I had three plates of food and I think it may have been a mistake. My stomach feels like it’s going to burst, and I’m not sure but I think it’s possible that I only had that last plate to delay the inevitable.
 
@@ -7635,13 +7635,263 @@ Davy and Giorgi have left, and I’m sitting with my back against the edge of th
 
 “Give me a day? We can go back the day after tomorrow.”
 
-### 39 - Chapter Name TBD
+### 39 - Where is My Mind
 
+“Did you find out anything about Reese?” I ask Giorgi after I’ve gone back into the flat.
 
+“Michael didn’t say so, but I very much got the impression that Reese is with Alexandria.”
 
+I sigh, rubbing a hand over my face and pushing my hair back. If I’d only been more patient, more careful all of this could have been avoided.
 
+“Any idea whether she’s there by choice or not?”
 
+“No.”
 
+I nod. “Thanks for making sure Alex and I were there.”
+
+“Seemed like the sort of thing you should know.”
+
+“Yeah. What’s your take on it?”
+
+“As far as I can tell, Hazel seems perfectly sane to me. I think it’s like she said, less seeing the future and more… vague ideas that some things might be important,” Giorgi shrugs. “I can see how it could drive a person mad.”
+
+So can I. That’s what worries me. Part of me thinks Hazel will be fine. But an equally large part of me is terrified that she won’t. How does a person cope with something like that? With having to question and second guess every single thought? To evaluate if it’s just an idle thought or a glimpse of the future? Maddening seems like a very accurate term.
+
+“She’ll be fine,” Giorgi tells me, clearly seeing the direction my thoughts are headed. “She’s good at compartmentalizing.”
+
+“I don’t know if you can compartmentalize something like that,” I mutter.
+
+“She’ll be fine,” Giorgi reiterates, clapping a hand on my shoulder before walking away.
+
+(( more?? Just go back to Hazel?? idk?? ))
+
+### 40 - Steal My Sunshine
+
+“Hey Peter, do you have a minute?” I ask.
+
+“Sure.”
+
+“Let’s go for a walk. I’m dying to get out of this flat.”
+
+It’s true, but mostly I’m dying not to have this conversation in front of an audience. Liam left earlier this morning with Giorgi and Alex, but everyone else is still hanging around. I can tell Amelia desperately wants to invite herself along, but she sees me glaring at her so she doesn’t.
+
+Last night, I spent some time digging through everything Alex pulled me out of the river with, looking for Peter’s now somewhat deformed journal.
+
+“Why are you and I out for a walk together, Hazel?” Peter asks after we’ve been walking down the street for a few minutes.
+
+“I figured I should apologize and return this,” I say, deciding not to beat around the bush, as I hand over his journal.
+
+Peter stares at it for a long second, before reaching over to take it, his face expressionless. “You were in my house?” he asks finally.
+
+“Yes. Amelia took me there when you all disappeared, and I took that.”
+
+“Because you didn’t trust me.”
+
+“Yes and no. I never thought you’d betray Liam, but I did consider the possibility that you might use him somehow to betray me.”
+
+“And you read it.” He phrases it such that I know it’s definitely a statement and not a question.
+
+“Yes. You would have done the same if our situations were reverse.”
+
+He nods.
+
+“For what it’s worth. I’m sorry. Not about taking it or reading it. That was just smart. But I’m sorry about what Liam said,” I tell him, and I mean it. “I wouldn’t pick me in that scenario,” I add softly.
+
+“I imagine that’s part of why Liam will always choose you.”
+
+“He shouldn’t. No one should ‘always’ choose anyone. Anyway. I’m sorry.”
+
+We walk along in silence for a few minutes, before I decide to start meddling.
+
+“Your flat is very nice. Quite cozy,” I comment.
+
+“Thanks?” he says uncertainly.
+
+“You’re welcome. So how are things with you and Amelia? She says you’re not back together,”
+
+“We’re not.”
+
+“Why not?”
+
+“All the same reasons as before,” he tells me.
+
+“All the same reasons as before don’t *really* apply, Peter. I think she’s pretty much aware of all the secrets you were keeping, which was what she had a problem with. That problem is pretty much solved now.”
+
+He says nothing.
+
+“I’m just saying I’m pretty sure she’s open to the idea. I’m practically her best friend,” I tell him. I have no idea if it’s true, but I think it might be. “I would know.”
+
+He snorts.
+
+“What?”
+
+“*You’re* practically her best friend?” he asks disbelievingly.
+
+“I am! At least in Branton. Ask her.”
+
+“I will,” he tells me.
+
+It feels like Peter and I might have finally made some progress toward fixing things.
+
+----
+
+When Peter and I finally return, I see Davy on the balcony—in the same position he was in when we left—moping. I’m still really, really mad at him. But part of me also knows that Liam was right, and I did mean it last night when I told Alex that I’m *sure* that Davy loves both of us. I’m sure of it in the way I am sure of very few things. I’m sure of it in the same way I’m sure that gravity exists and the sun will rise in the east.
+
+I set my hurt feelings aside and go out on the balcony.
+
+“So are you just going to hide out here forever?” I ask.
+
+“I’m not hiding.”
+
+“Yes you are. I get it. I’d hide too.”
+
+“I’m not hiding.”
+
+“If I was not hiding in the same way that you were not hiding, would you say I was hiding, or…?” I ask, throwing a variant of words he’s said to me so many times back at him.
+
+“Piss off, Hazel.”
+
+“Make me.”
+
+He sighs in irritation. It’s better than sadness. I count it as a win.
+
+“Great. Now that we’ve established that you both can’t and won’t try to make me, I want to *do* something.”
+
+He sighs again. “What?”
+
+“Those poppy cakes you always had, can we go get some?”
+
+He knows I actually like them, and it plays to everyone’s desire—including my own—to feed me.
+
+“Fine.”
+
+Another win. Score: Hazel two, Davy zero.
+
+----
+
+“So where are we going?” I ask looping my arm through his as we walk.
+
+“A bakery on Church street.”
+
+“How long since you were last there?”
+
+“A couple of weeks before we left to go to Firgasu.”
+
+“Hmm. Did you bring Alex there?”
+
+“Yes.”
+
+“Interesting.”
+
+“What?” Davy asks.
+
+“Well, you never brought *me* there.”
+
+“Yes. Because I take you to so many bakeries,” Davy says sarcastically.
+
+“That’s exactly my point!”
+
+Davy sighs. “What do you want, Hazel?”
+
+“A poppy cake. Perhaps several. Haven’t you been paying attention?”
+
+“Hazel, what do you want?”
+
+“I want to know what’s up with you. Alex is worried. Liam is worried. I am… not unworried.”
+
+“I’m fine,” he tells me.
+
+“Yeah. Me too.”
+
+He gives me a sideways look, but says nothing.
+
+“And since we’re both so fine, I figure we’ll get a bunch of poppy cakes, and sit in the park and eat them, while we contemplate our fineness.”
+
+“So I take you’re not fine either,” he says softly.
+
+“I’ve been better,” I admit. “But I’ve been worse too,” I finish with a shrug. “You?”
+
+“I’ve definitely been better.”
+
+“Well, once we are appropriately fortified with small cakes you can tell me all about it. Because I *am* interested.”
+
+----
+
+Davy and I are lying on a blanket that I bought after we got the poppy cakes, because nothing ruins a good lie about in the park like being stabbed by a thousand tiny blades of grass.
+
+“So what’s up?” I ask after I’ve crammed the second cake into my mouth.
+
+“Everything. Nothing.”
+
+“Yeah,” I nod. “I know all about everything and nothing. We’re like this,” I tell him as I cross my fingers. “It’s always the worst when it’s everything and nothing.”
+
+“Yeah,” he says softly. “Out of everyone, I think you do actually know about everything and nothing.”
+
+“I do.” I offer no glib comments because I have none. I do know, and it sucks.
+
+“Alex doesn’t get it,” Davy says.
+
+“He wouldn’t. I don’t think Liam does either. He doesn’t get it in a totally different way than Alex but… I don’t know. They’re lucky like that, I guess.”
+
+We stare at the clouds in silence for a while.
+
+“It hasn’t been this bad since…” Davy begins before trailing off.
+
+“Since the last time Christine up and vanished?”
+
+“Probably. You’d think I wouldn’t care by this point.”
+
+I shrug. “She’s a mindfuck. Even I think so and it’s nowhere near the same thing. Another thing I know isn’t the same, but I’m going to say it anyway: there are a lot of other people who love you.”
+
+“I know,” he tells me. “I just… I wish I didn’t care. You don’t care.”
+
+“No, but I’m… me. Caring is normal, even if it sucks. It bothers me sometimes that I *don’t* care,” I admit. “*Everyone* else cares, and I can’t even pretend to care.”
+
+“I guess the grass is always greener.”
+
+“Pretty much.” I say as I eat another cake. “Everything and nothing. You know it’s part of the reason why I’m always doing so many objectively stupid, dangerous things? It’s not that I don’t know they’re stupid and dangerous, I just… don’t care.”
+
+“I know.”
+
+“Only now I’ve got to care, to care, or at least try to remember to pretend to care because of Liam.”
+
+“I know. I’m sorry.”
+
+“It feels inevitable that I’m going to fuck it all up,” I admit.
+
+“Have you told Liam that?”
+
+“No. I think he’s already freaked out enough about…” I gesture at myself.
+
+“You’ll be fine,” Davy says.
+
+“The way we’re always fine?” I ask.
+
+“Probably. You should talk to Liam.”
+
+“And you should talk to Alex. Even if he doesn’t get it.”
+
+“I think I’m going to go back to my flat,” Davy says after several minutes.
+
+(( maybe cut what’s below or rewrite it Hazel wouldn’t be much for hiding ))
+
+“Even though Iverson almost definitely knows where it is?”
+
+“I’m not really sure that matters much at this point.”
+
+I nod because I can’t really disagree with him. I’m pretty sure he’s right. It feels like there’s a momentum to events that I can’t stop no matter how hard I try.
+
+“He’s going to come for both of us, you know.”
+
+“Probably. That’s why I’m going back,” Davy agrees.
+
+“That’s good. I miss your flat.”
+
+“Me too.”
+
+“All this because of my damn mother,” I sigh eventually. “I really need to do something about her.”
+
+----
 
 
 
@@ -7660,8 +7910,9 @@ Davy and Giorgi have left, and I’m sitting with my back against the edge of th
 
 Things that need to happen:
 
-1. Hazel confronts Davy tells the others to leave, but Giorgi says they should stay
-2. The bit about the goblin and his gold and all the other bits
+1. Night with davy??
+2. Go back to campus
 3. Go talk to Alexandria
-4. Peter double agent???
-5. Get captured
+4. Someone kills Alexandria
+5. Peter double agent???
+6. Get captured

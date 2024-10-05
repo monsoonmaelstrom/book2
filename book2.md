@@ -6752,7 +6752,7 @@ I know Alex is of the opinion that what’s done is done, but I’m finding it a
 
 “A good one,” Gavin agrees.
 
-He does. It takes the wind out of my sails. I’m still not used to having magic as a tool that I can use, and I honestly forget about it more often than not, and the fact that I spent the last couple of days with (( the magic suppression drug )) working its way out of my system doesn’t help.
+He does. It takes the wind out of my sails. I’m still not used to having magic as a tool that I can use, and I honestly forget about it more often than not, and the fact that I spent the last couple of days with malusium working its way out of my system doesn’t help.
 
 “Fine.”
 
@@ -8157,7 +8157,185 @@ I nod. “You’ve got to die sometime, so why not fuck around and find out?”
 
 “You have heard nothing of the sort,” I say confidently. “You’re just fishing.”
 
-### 41 - Chapter Name TBD
+### 41 - Sucker ^^1800 words^^
+
+By the time Davy and I make it back, everyone else has already returned. I don’t know if Davy feels better, but he certainly doesn’t feel worse, and I feel better.
+
+(( stuff needs to happen here. Davy and Alex need to talk, Alex and Liam should probably tell Hazel what they learned. Do they finally tell Amelia what happened to Lisette? Other stuff? Idk ))
+
+“I’m sorry about the flat,” I tell Liam as we stand together on the balcony. “For burning it down.” I figure someone must have told him about it at some point over the last few days.
+
+Liam shrugs. “It was nice while it lasted.”
+
+“Do you know what he was looking for? There was definitely something in there he was expecting to find, and whatever it was, he didn’t get it.”
+
+“No. I have no clue. There was nothing in the flat worth the trouble as far as I know. The three of us were tied up in a cellar and drugged pretty much the whole time, so if he ever said what he was looking for, I don’t think any of us heard it.”
+
+“How *did* he manage to capture all three of you?” I ask.
+
+One person I can see—magic or no magic, if someone gets the drop on you, good luck. You’re can only be prepared for what you know or can reasonably expect is coming, and magic doesn’t stop you from being surprised or stop someone from bashing you over the head if you have no idea they’re there. But three people? I’m not sure how that happens without some bloodshed at the very least.
+
+“You know the festival smoke bombs? The ones that make the colored smoke at the performances around the holidays?
+
+“Yes, I’ve always quite liked them.”
+
+“I think he managed to drug the smoke somehow. We went into Reese’s shop, and I heard a hissing sound, saw smoke, and then woke up in a cellar.”
+
+“Hmm.”
+
+Malusium is heavy. It’s more like sugar crystals, not powdery like flour, or anything else you might be able to throw into the air and have hang there suspended by the air currents for a bit. Usually if you want to drug someone with it, you mix into something they’re going to ingest. Since it’s tasteless, that’s usually the simplest, most direct way to get it into their bloodstream. But I suppose if you wanted to, you could dissolve it into water, soak something in the solution, let the water evaporate leaving the malusium behind. Then if you burned it, in theory that might allow it to get into your system via inhalation. But it’s equally possible that the flames would render it inert. I don’t know. I’ve never tried it, or had it tried on me. I think it could work though. If so, it’s pretty clever. Then mix that with ether or something similar, and you get something that’s capable of rendering a person both unconscious and devoid of any magic they might posses.
+
+“What?”
+
+“I mean, it’s clever. Cleverer than I would have given him credit for based on our interactions so far,” I say as I look out over the street.
+
+“You sound like you’re disappointed you didn’t come up with the idea,” Liam tells me.
+
+I shrug.
+
+“*Are* you?”
+
+“Maybe a bit? It’s clever. I always appreciate clever. I especially always appreciate *being* the clever one.”
+
+Liam snorts, and I can’t tell if it’s in amusement or disbelief.
+
+“You have a source for malusium, right? You were using it back at the flat. Can you get me some?”
+
+“What are you going to do with it?” he asks me suspiciously.
+
+“Experiment.”
+
+“I already don’t like the sound of that.”
+
+“Could be useful.”
+
+“I’ll see what I can do,” he tells me with a sigh.
+
+“Thanks,” I say leaning further over the railing, trying to decide if I want to broach the next topic of conversation, and the answer is that I really, really don’t. Part of me thinks that Liam probably has a right to know, but a bigger part of me would prefer to never discuss it. To lock away all of the bits of myself that I don’t like, pretend they don’t exist, and never talk about them. Only now his life is my life, and I’m unsure what that entitles him to know. Davy thinks I should tell him, but he’s one to talk. I sigh.
+
+“What?” Liam asks me when I’m quiet for a few minutes.
+
+“Hmm?”
+
+“I recognize that look on your face.”
+
+“What look?”
+
+“That look of discontent that says you’re trying to decide if you should tell me something or not,” he supplies. “And the answer is yes. You should tell me.”
+
+“You like knowing everything. That doesn’t mean I like sharing everything.”
+
+“I know,” he states before falling silent. Waiting.
+
+“I hate when you do that. When you just stand there and wait like it’s inevitable that I’m going to tell you. It’s not.”
+
+“I know.”
+
+“I hate this magical connection between us!” I burst out, and I see the look of hurt that flashes across his face before he’s able to cover it up with a disinterested mask. “No, it’s not like that,” I reach out for his hand. He doesn’t offer his back, but doesn’t pull away when I take it anyway. “That came out wrong. I love you, but I hate this. I hate that if I die, you die. I can’t… it’s a lot of responsibility that I never wanted, and I’m pretty sure I’m going to screw it up eventually, and get you killed. It seems inevitable. I don’t want you to die because I’m careless or unlucky,” I say softly.
+
+“I feel like anything I can say to that is going to make you angry.”
+
+“Try me.”
+
+Liam sighs. “Okay, but hear me out first, and promise me you won’t just walk away in the middle of the conversation.”
+
+“Alright,” I agree.
+
+“Let me begin by saying that you’re complicated in ways that I can’t even begin to understand, so when I ask you this I’m not being facetious, and I’m not trying to be reductive,” he says pausing waiting for my acknowledgment.
+
+“Okay.”
+
+“Have you considered not taking so many risks and generally being more careful?”
+
+I tamp down on the frustration that I feel beginning to push its way to the forefront of my mind. I take a breath. Hold it. Then it go, as I endeavor to remind myself that he’s trying.
+
+“I can’t,” I say, in what I hope is a neutral tone, as I avoid meeting his eyes. “You were both right and wrong when you called me an adrenaline junkie—or maybe right, but with an incomplete understanding. I am, but it’s more complex than that. I can’t just be more careful, because that involves both caring and *remembering* that I care. And a lot of times I don’t. I don’t care about my life. Davy once told me that I don’t have a death wish, but I also don’t *not* have a death wish, and that’s true. Before you get the wrong idea,” I say, holding up a hand to stop him from interrupting, “I’m *not* suicidal. But that might just be because that would involve a level of interest in my own life that I frankly don’t have.
+
+“I care about *you* a lot though, but if I’m being fully honest, I’m bound to get so bored, or so angry that I forget.” I take a deep breath, and force myself to continue. “That I forget that our lives our linked and that my death will cause yours, or… Or that I forget that I care about you, and I’ll kill us both.
+
+“I try caring. I try *really* hard, but I’m honestly terrible at it. I’m going to get you killed.”
+
+Liam leans against the railing, saying nothing for a few moments. I’m not sure if he’s waiting to make sure I’m done, or if he’s gathering his own thoughts.
+
+Finally he simply says, “I’m okay with that, Hazel.”
+
+“That’s it? You’re ‘okay’ with it?”
+
+“Yes. I *like* being magically connected to you.”  He releases my hand letting his fingers trail along it as he does so before walking back inside.
+
+I stand on the balcony alone not sure what to make of any of that until Alex finally comes out.
+
+“What was all that about?”
+
+I shake my head too confused to answer.
+
+“I went and talked to mom today,” he says.
+
+“Is that where you guys were?”
+
+“Liam didn’t tell you?”
+
+I shrug. “I didn’t ask. I went and talked to Davy today.”
+
+“Bet my conversation was more interesting,” he responds, clearly still angry with Davy.
+
+“Probably. So go on and tell me what she said, then.”
+
+“She said that in Leisch, when she asked you if you were claiming us all as yours, and you said yes, that wasn’t just idle chit chat.”
+
+I nod. I got as much at the time, even if I don’t know what I was actually agreeing to.
+
+“Do you know what that means?” he asks me.
+
+“No, but I know it means something. I knew it then. I could feel it.”
+
+“Huh. I was half way wondering if she was losing it,” he mutters.
+
+“So what does it mean, since she seems to have told you?”
+
+“She said it was some sort of geas.”
+
+“A geas? Those aren’t real.”
+
+“Yeah, neither are prognosticators,” he states wryly.
+
+I sigh. “Fine. A  geas for what.”
+
+“That’s where it gets… weird.”
+
+“Because it isn’t *all* already weird?”
+
+“Weirder, then. According to her, it’s like a vow of safekeeping or something. She tried to say that there are consequences to failing it. The kind of consequences that eat away at your humanity.”
+
+“Great. Because I have so much of that already,” I mutter. “What about Lisette then? I didn’t exactly keep her safe.”
+
+“Funny. That was Giorgi’s first question too.”
+
+I shrug and wait for him to answer.
+
+“Apparently, sometimes the best way to keep someone safe is to kill them.”
+
+I can’t help but burst out laughing at the absurdity of it.
+
+“Funny,” Alex says again, grinning. “*That* was my reaction. I picked up a present for you while I was there.” He hands me a small pouch.
+
+I open it. “Malusium. I was just asking for some of this.”
+
+“Not *just* malusium. *Mom’s* malusium. The good stuff. You know she grows and refines it herself?”
+
+“I did not. I guess that explains how she always has a ready supply of it.”
+
+“Hers is more potent than what Iverson had.”
+
+“Really?”
+
+“Really.”
+
+### 42 - Chapter Name TBD
+
+
+
+
 
 
 
@@ -8173,9 +8351,8 @@ I nod. “You’ve got to die sometime, so why not fuck around and find out?”
 
 Things that need to happen:
 
-1. Night with davy??
-2. Go back to campus
-3. Go talk to Alexandria
-4. Someone kills Alexandria
-5. Peter double agent???
-6. Get captured
+1. Go back to campus
+2. Go talk to Alexandria
+3. Someone kills Alexandria
+4. Peter double agent???
+5. Get captured

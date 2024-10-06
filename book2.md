@@ -8157,13 +8157,9 @@ I nod. “You’ve got to die sometime, so why not fuck around and find out?”
 
 “You have heard nothing of the sort,” I say confidently. “You’re just fishing.”
 
-### 41 - Sucker ^^1800 words^^
+### 41 - Sucker ^^1700 words^^
 
-By the time Davy and I make it back, everyone else has already returned. I don’t know if Davy feels better, but he certainly doesn’t feel worse, and I feel better.
-
-(( stuff needs to happen here. Davy and Alex need to talk, Alex and Liam should probably tell Hazel what they learned. Do they finally tell Amelia what happened to Lisette? Other stuff? Idk ))
-
-“I’m sorry about the flat,” I tell Liam as we stand together on the balcony. “For burning it down.” I figure someone must have told him about it at some point over the last few days.
+“I’m sorry about the flat,” I tell Liam as we stand together on the balcony in the twilight of the evening. “For burning it down.” I figure someone must have told him about it at some point over the last few days.
 
 Liam shrugs. “It was nice while it lasted.”
 
@@ -8191,7 +8187,7 @@ Malusium is heavy. It’s more like sugar crystals, not powdery like flour, or a
 
 “You sound like you’re disappointed you didn’t come up with the idea,” Liam tells me.
 
-I shrug.
+I shrug, not disagreeing.
 
 “*Are* you?”
 
@@ -8199,7 +8195,7 @@ I shrug.
 
 Liam snorts, and I can’t tell if it’s in amusement or disbelief.
 
-“You have a source for malusium, right? You were using it back at the flat. Can you get me some?”
+“You have a source for malusium, right? You were using it back at the flat. Can you get me some? And by some I mean a lot.”
 
 “What are you going to do with it?” he asks me suspiciously.
 
@@ -8223,7 +8219,7 @@ Liam snorts, and I can’t tell if it’s in amusement or disbelief.
 
 “That look of discontent that says you’re trying to decide if you should tell me something or not,” he supplies. “And the answer is yes. You should tell me.”
 
-“You like knowing everything. That doesn’t mean I like sharing everything.”
+“You like knowing everything. That doesn’t mean I like sharing everything,” I say tersely.
 
 “I know,” he states before falling silent. Waiting.
 
@@ -8231,7 +8227,7 @@ Liam snorts, and I can’t tell if it’s in amusement or disbelief.
 
 “I know.”
 
-“I hate this magical connection between us!” I burst out, and I see the look of hurt that flashes across his face before he’s able to cover it up with a disinterested mask. “No, it’s not like that,” I reach out for his hand. He doesn’t offer his back, but doesn’t pull away when I take it anyway. “That came out wrong. I love you, but I hate this. I hate that if I die, you die. I can’t… it’s a lot of responsibility that I never wanted, and I’m pretty sure I’m going to screw it up eventually, and get you killed. It seems inevitable. I don’t want you to die because I’m careless or unlucky,” I say softly.
+“I hate this magical connection between us!” I burst out, and I see the look of hurt that flashes across his face before he’s able to cover it up with a disinterested mask. “No, it’s not like that,” I reach out for his hand. He doesn’t offer his back, but doesn’t pull away when I take it anyway. “That came out wrong. I love you, but I hate this. I hate that if I die, you die. I can’t… it’s a lot of responsibility that I never wanted, and I’m pretty sure I’m going to screw up eventually, and get you killed. It seems inevitable. I don’t want you to die because I’m careless or unlucky,” I say softly.
 
 “I feel like anything I can say to that is going to make you angry.”
 
@@ -8263,7 +8259,7 @@ Finally he simply says, “I’m okay with that, Hazel.”
 
 “Yes. I *like* being magically connected to you.”  He releases my hand letting his fingers trail along it as he does so before walking back inside.
 
-I stand on the balcony alone not sure what to make of any of that until Alex finally comes out.
+I stand on the balcony alone, unsure what to make of any of that until Alex finally comes out.
 
 “What was all that about?”
 
@@ -8289,7 +8285,7 @@ I nod. I got as much at the time, even if I don’t know what I was actually agr
 
 “No, but I know it means something. I knew it then. I could feel it.”
 
-“Huh. I was half way wondering if she was losing it,” he mutters.
+“Huh. I was halfway wondering if she was losing it,” he mutters.
 
 “So what does it mean, since she seems to have told you?”
 
@@ -8299,7 +8295,7 @@ I nod. I got as much at the time, even if I don’t know what I was actually agr
 
 “Yeah, neither are prognosticators,” he states wryly.
 
-I sigh. “Fine. A  geas for what.”
+I sigh. “Fine. A  geas for what?”
 
 “That’s where it gets… weird.”
 
@@ -8331,7 +8327,311 @@ I open it. “Malusium. I was just asking for some of this.”
 
 “Really.”
 
-### 42 - Chapter Name TBD
+### 42 - I Put a Spell on You ^^1700 words^^
+
+“Where were you?” Commander Selby asks me. “And why was Hazel Raidane in my office suggesting that assassinating General Iverson would have been more appropriate than removing him from his position?”
+
+I wince before I have the good sense to mask the reaction.
+
+“Yes,” he says seeing it. “She did, Captain Marten.”
+
+“I had not been made aware of that particular conversation, Commander. But to answer your first question, General Iverson ambushed me while I was out collecting information about his current actions. When I woke up, I was locked in a basement cellar of the Daruvarian compound (( check how. You referred to this )).”
+
+I have Commander Selby’s full attention now. “When did this occur?”
+
+“Perhaps a couple of hours after the vote to remove him.”
+
+“And Miss Raidane figured he was behind your absence.”
+
+There was no question there, so I offer no response.
+
+He pinches the bridge of his nose, rubbing at it like he has a headache. “Who is she, Liam?”
+
+“Alexandria Raidane’s daughter.”
+
+“*Who* is she? Do us both a favor. Don’t make me ask you again.”
+
+I say nothing as I weigh my options. Hazel won’t like it, but I don’t see a good option. If he’s asking, he already has suspicions. Lying to him about those suspicions won’t do anyone any good.
+
+“And also General Iverson’s daughter.”
+
+“Fucking hell. How long have you known?”
+
+I sigh. “I’ve known she’s Alexandria Raidane’s child for a while,” I admit. “Well before we left for Firgasu. I didn’t find out who her father is until more recently.”
+
+“More recently, when?”
+
+“When we were crossing the pass into Firgasu, sir,” I answer staring just past his shoulder, not quite meeting his gaze.
+
+“Please tell me exactly what it is I’m paying you for, Captain Marten.”
+
+“It wasn’t actionable information, sir,” I try, knowing it’s a weak excuse. A *very* weak excuse.
+
+“According to John, the two of you spend quite a bit of time together.”
+
+Gods damned John Steeple. I resist the urge to tell Commander Selby that some people need to learn to mind their own business, and say nothing instead.
+
+“No comment to that, then?”
+
+“No, sir.”
+
+“So Iverson ambushed you, locked you in a basement, and now you’re back here? Fill in the rest of the story, if you will.”
+
+“She realized that he was likely behind my absence, and extended an invitation for a trade to occur at the Northend Bluffs to get me back.”
+
+“A trade for…?”
+
+“She didn’t specify, sir. She was under the impression that he was looking for something. I got the same impression. Neither of us knows what though. So she stated she would trade to get me back. He evidently thought she either had what he was looking for, or knew where to acquire it and was willing to exchange me for it. She obviously didn’t have it, so when General Iverson arrived with me, we jumped off the cliffs into the river.”
+
+“You jumped off the cliffs,” he mutters, his hand rubbing at the bridge of his nose again.
+
+“Yes.”
+
+“And this necessitated your absence for over a week?”
+
+“Hazel was injured.”
+
+“And you didn’t bring her back here… because?”
+
+I have no good response. I can’t say that she was too injured to move because if that was true, there would still be evidence of that injury, and there’s not. Finally, I settle on, “It did not seem prudent.”
+
+“Damnit, Liam,” he mutters. “You’re not making this easy. You know your grandfather and I were (( are ??? )) close, yes?”
+
+I nod. My grandfather always thought of Commander Selby as the son he never had, and after my mother left, that became more apparent, as I understand it.
+
+“Are you aware that I knew your mother?”
+
+“I had always assumed you were at least acquainted with one another, given your familiarity with my grandfather.”
+
+“Yes,” he drums his fingers across the table. “I was also acquainted with your father and Alexandria Raidane.”
+
+“Ah.”
+
+“Indeed,” he says nodding. “So would you like to try explaining the past week to me again? In detail this time.”
+
+I walk him through the past week, obfuscating fewer of the details this time, though I do omit the fact that there was anyone else present aside from Hazel, Amelia, Henry, and me. Commander Selby knows very little about the others, and I see no good reason to change that.
+
+“So do you know what happened that left her unconscious for five days?”
+
+“No.
+
+“Does *she*?”
+
+“If she does, she hasn’t said, though I get the impression that she does not.”
+
+“For someone so deeply involved with her, you seem to know very little,” he comments harshly.
+
+“Was there a question in that sentiment, sir?” I bristle.
+
+“Just an observation. I would tread carefully, if I were you Liam. The Raidanes are dangerous, and the Raidane women, especially so.”
+
+I resist the urge to scoff. We are so far beyond that.
+
+“Was there anything else?”
+
+“Do you know where Iverson is now?”
+
+“No. I’ve heard nothing of his whereabouts, but I would very much like to know where he is.”
+
+“Yes, I imagine so. Nevertheless, Captain Marten, you will leave General Iverson alone, and you will not go digging for information about him. Am I clear?”
+
+I nod.
+
+“Very well. You may go.”
+
+----
+
+I return to my room, shutting my door with slightly more force than is strictly necessary.
+
+“I take it things could have gone better, then?” Hazel asks, from where she’s currently sitting cross-legged on the floor.
+
+I give a curt nod. “Excuse me for a moment,” I tell her, as I reopen the door and step back into the hallway.
+
+I knock on John’s door. He doesn’t answer, but I’m pretty sure he’s in there, so I bang harder until I finally see the knob begin to twist. Then I stop and wait for the door to open.
+
+John looks momentarily taken aback to see me standing in front of his door. We’re definitely not friends. Until this point, we’ve been polite acquaintances, occasionally nodding hello to one another in passing. We don’t work together, and have very little reason to speak to one another. There’s also always been something about him that has rubbed me the wrong way. He’s just a little too eager to kiss everyone’s ass.
+
+“Liam,” he says uncertainly.
+
+“John. I hear that you have been discussing my personal relationships with Commander Selby.”
+
+I wait for him to fill the silence as Hazel so often accuses me of doing to her. Saying nothing, while staring directly at someone, making it clear you’re both waiting for and expecting a response, is a very useful technique. Just ask my grandmother.
+
+“I—he *asked* Liam. Specifically asked. What was I supposed to say?”
+
+“Perhaps that you don’t make a habit of prying into others’ personal affairs,” I suggest.
+
+“But—”
+
+“No, John. No buts. If he asks again, you will tell him that you have not seen or noticed anything out of the ordinary, and you will not detail any aspect of my personal relationships to him.” It’s not a suggestion.
+
+“Yes. Of course.”
+
+I notice his gaze has gone just a little bit unfocused.
+
+“Good. That’s all.”
+
+He nods, and retreats back into his room, shutting the door.
+
+I step back into mine.
+
+“Did you just…?” Hazel asks.
+
+“Yes. He was telling Commander Selby about us,” I explain.
+
+“Obviously,” she says.
+
+“Yes. Well. My personal relationships are none of their business.”
+
+“So you decided to make sure of it,” she says grinning. “I think I like this side of you. It’s very…” she trails off, her eyes roaming over my body.
+
+“Very…?” I ask.
+
+“I like it,” she tells me, her voice taking on a huskier quality as she stands and approaches me.
+
+She places her hands on my sides as she steps in close, running them up and over my chest before sliding them around the back of my neck and into my hair as she brings my face toward hers, kissing me deeply. I can’t help but instantly respond, and somehow she tastes of coffee and cinnamon. I let myself enjoy the feeling of our mouths on each other for a few moments before I pull away slightly.
+
+“We should talk,” I tell her.
+
+“Later,” Hazel says, moving back toward me.
+
+“You’re not going to like what we should talk about.”
+
+“Then definitely later,” she says before kissing me again.
+
+----
+
+“What did you want to talk about?” she asks when we’re lying tangled on the bed together.
+
+I sigh. “Commander Selby knows about you.”
+
+“About me…?” she questions warily.
+
+“He knows that General Iverson is your father,” I say, and I feel her tense slightly.
+
+“You told him?”
+
+“Yes. I didn’t really have much choice.” I run my fingers along her skin. “I told you that you wouldn’t like it. He also knows about your magic.”
+
+She pulls away now, sitting up and putting distance between us on the bed.
+
+“You *told* him?”
+
+“He heavily implied he already knew, or at least suspected as much. So yes. I told him. Apparently he has more than a passing familiarity with your mother.”
+
+“Of course he does,” she mutters as she gets off the bed and starts pulling on her clothes.
+
+“Where are you going?”
+
+“To see if I can find Amelia.”
+
+“Amelia?” I ask.
+
+“Yes!” she snaps back at me. “We’re friends! Why is everyone so surprised by that?”
+
+“Everyone?”
+
+“Fine. Not everyone. Just you and Peter.”
+
+“Me and Peter,” I echo back again.
+
+“Yes! Peter and I talked too. I know what you told him. And *not* because he told me, because unlike some people, he seems to know how to keep his mouth shut.”
+
+“You’re defending Peter now?” I ask, confused.
+
+“Apparently!”
+
+“Okay. Do you want to talk about it?”
+
+“No. Yes. I don’t know. Maybe, but not right now,” she finishes before walking out the door.
+
+### 43 - Chapter Name TBD
+
+I can’t believe Liam. He could have lied. He could have doubled down and insisted he didn’t know anything. That’s what I would have done if the situation was reversed. Playing dumb is a viable fucking strategy. Why is that so hard for people to understand? All you have to do is ask, ‘What do you mean?’ while being sure to sound appropriately confused. It’s *not* hard. And if they insist that they’re sure you know something, you tell them a completely asinine story. You tell them that you gods damned like oolong tea.
+
+I have half a mind to barge into Commander Selby’s office and tell him if he has questions about me, he can ask them *to* me. But even as enraged as I am, I know that would be stupid. So instead I stalk down the hallway away from Liam’s room, toward Amelia’s, just like I said I was going to.
+
+I bang my fist against her door when I get to her room. I really hope she’s in. It’s only a second before she answers the door.
+
+“Want to spar with me?” I ask.
+
+“You seem like you’re in a great mood,” she comments.
+
+“I don’t want to talk about it.”
+
+“Okay. Sure. Why not.”
+
+I nod. “Thanks.”
+
+We walk to the gym together at a slightly more sedate pace.
+
+“What do you suppose is going to happen?” she asks as we do.
+
+“With what?”
+
+“The polities. The alliance.”
+
+“Oh. That. Nothing good.”
+
+“Nothing good like…?”
+
+“I don’t know,” I shrug. “Probably Dairuvar will invent some reason to make incursions on (( polity name here, got to have a map yo )). I imagine that (( the Sinclair polity )) will either remain neutral or join Dairuvar. My money is on the latter. Then Avonare and Firgasu will join together against them. (( the craer polity may join them, or it may stay neutral. My money is again on the latter. I don’t know what that will mean for Branton, Corriven and the Army of the Allied Polities though. I’m not great with all that… treaty stuff. You probably know more about it than I do.”
+
+“So you think there will be civil war?”
+
+“Yes. Don’t you?”
+
+She nods hesitantly.
+
+“You can’t do anything to stop it?”
+
+“Like what?” I ask. “I’m not that powerful Amelia. No one is.”
+
+“What about everyone working together?”
+
+I try not to let my expression change. “What do you mean?” I ask.
+
+“It’s just… if a bunch of us combined our magic, maybe we could have more of an impact than one person alone.”
+
+I sigh. “It’s not a bad thought, but… there are tens of thousand of people that are going to be directly involved in this. You’re not just talking about influencing the decisions or actions of a single person. It would have to be everyone, all at the same time, or it would be too tenuous, and that’s… a lot. I don’t think it’s doable,” I say softly. “At least, I don’t think I could do it.”
+
+“So you think someone else could?” she asks, and I can see a flicker of hope in her expression.
+
+“No. Sorry. I really don’t think it’s possible,” I answer as we reach the gym.
+
+“Best of three?”
+
+“Okay,” I nod.
+
+“Are you sure you’re up for this? I’m not going to break you, am I?”
+
+“No. You’re not going to break,” I sigh in irritation.
+
+“Hey, can you blame me for asking? You must have looked in a mirror at some point in the past few days.”
+
+“Yes. No. It’s fine. I’m working on it.”
+
+“Good,” she says nodding. “Let’s go.”
+
+I win the first, but lose the second. And for the first time (( check to make sure this aligns with what you’ve said elsewhere )), it’s not because I was distracted or because I let Amelia win.
+
+“You’re slow,” Amelia comments.
+
+“I know.”
+
+“And being even skinnier isn’t doing you any favors.”
+
+“*I know.*”
+
+“Just making sure,” she says with false sincerity.
+
+“Whatever,” I grumble back. “You’re going to lose the third.”
+
+“We’ll see,” she tells me, closing the distance between us.
+
+
+
+
 
 
 
@@ -8351,8 +8651,7 @@ I open it. “Malusium. I was just asking for some of this.”
 
 Things that need to happen:
 
-1. Go back to campus
-2. Go talk to Alexandria
-3. Someone kills Alexandria
-4. Peter double agent???
-5. Get captured
+1. Go talk to Alexandria
+2. Someone kills Alexandria
+3. Peter double agent???
+4. Get captured

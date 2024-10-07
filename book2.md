@@ -8443,19 +8443,19 @@ I nod.
 
 I return to my room, shutting my door with slightly more force than is strictly necessary.
 
-“I take it things could have gone better, then?” Hazel asks, from where she’s currently sitting cross-legged on the floor.
+“I take it things could have gone better, then?” Hazel asks, from where she’s currently sitting cross-legged on the floor holding a sewing needle and some thread.
 
 I give a curt nod. “Excuse me for a moment,” I tell her, as I reopen the door and step back into the hallway.
 
 I knock on John’s door. He doesn’t answer, but I’m pretty sure he’s in there, so I bang harder until I finally see the knob begin to twist. Then I stop and wait for the door to open.
 
-John looks momentarily taken aback to see me standing in front of his door. We’re definitely not friends. Until this point, we’ve been polite acquaintances, occasionally nodding hello to one another in passing. We don’t work together, and have very little reason to speak to one another. There’s also always been something about him that has rubbed me the wrong way. He’s just a little too eager to kiss everyone’s ass.
+John looks momentarily taken aback to see me standing in front of his door. We’re not friends. Until this point, we’ve been polite acquaintances, occasionally nodding hello to one another in passing. We don’t work together, and have very little reason to speak to one another. There’s also always been something about him that has rubbed me the wrong way. He’s just a little too eager to kiss everyone’s ass.
 
 “Liam,” he says uncertainly.
 
 “John. I hear that you have been discussing my personal relationships with Commander Selby.”
 
-I wait for him to fill the silence as Hazel so often accuses me of doing to her. Saying nothing, while staring directly at someone, making it clear you’re both waiting for and expecting a response, is a very useful technique. Just ask my grandmother.
+I stand mute and wait for him to fill the silence as Hazel so often accuses me of doing to her. Saying nothing, while staring directly at someone, making it clear you’re both waiting for and expecting a response, is a very useful technique. Just ask my grandmother.
 
 “I—he *asked* Liam. Specifically asked. What was I supposed to say?”
 
@@ -8545,7 +8545,7 @@ She pulls away now, sitting up and putting distance between us on the bed.
 
 “No. Yes. I don’t know. Maybe, but not right now,” she finishes before walking out the door.
 
-### 43 - Chapter Name TBD
+### 43 - Cassandra ^^2100 words^^
 
 I can’t believe Liam. He could have lied. He could have doubled down and insisted he didn’t know anything. That’s what I would have done if the situation was reversed. Playing dumb is a viable fucking strategy. Why is that so hard for people to understand? All you have to do is ask, ‘What do you mean?’ while being sure to sound appropriately confused. It’s *not* hard. And if they insist that they’re sure you know something, you tell them a completely asinine story. You tell them that you gods damned like oolong tea.
 
@@ -8605,7 +8605,7 @@ I sigh. “It’s not a bad thought, but… there are tens of thousand of people
 
 “Are you sure you’re up for this? I’m not going to break you, am I?”
 
-“No. You’re not going to break,” I sigh in irritation.
+“No. You’re not going to break me,” I sigh in irritation.
 
 “Hey, can you blame me for asking? You must have looked in a mirror at some point in the past few days.”
 
@@ -8629,17 +8629,161 @@ I win the first, but lose the second. And for the first time (( check to make su
 
 “We’ll see,” she tells me, closing the distance between us.
 
+She almost pins me twice, but I’m able to wriggle out of both, which I can tell pisses her off. Eventually I am able to get one of her arms pinned to the mat at an angle that doesn’t allow her to get any leverage from it, and then I wrench the other behind her back at a degree that I know hurts. She could maybe get out of it, if she was willing to dislocate her shoulder to do it. I know she’s not though.
 
+“I give, you win,” she tells me, confirming it.
 
+I release her and help her back to her feet. We head off the mat, and I sink down against the wall, breathing heavier than I should be. It’s annoying.
 
+“Can I ask you something?” Amelia says.
 
+“What?”
 
+“What happened to Lisette?”
 
+I sigh.
 
+“It’s just… Commander Selby asked you about her, and it seemed… odd. Then when you were out of it, I asked Peter. He said I should ask you, and wouldn’t tell me anything else, but I can tell when he doesn’t want to talk about something, and he didn’t want to talk about that.”
 
+I let the silence stretch between us, trying to decide whether or not to tell her the truth, and she waits patiently.
 
+“How close were you and Lisette?” I ask finally.
 
+“We were friendly, but we weren’t exactly friends.”
 
+I sigh again. “I killed her,” I say.
+
+“Why?”
+
+“Are you going to see Peter tonight?”
+
+“Yes,” she answers, seeming confused by the abrupt change in topic.
+
+“I don’t want to talk about it. Ask Peter again. Tell him I told you that I killed her and I said he can tell you about it. If he seems skeptical tell him I said it’s not like at the churro shop,” I tell her as I stand and begin to leave.
+
+“Not like at the churro shop?”
+
+“He’ll know.”
+
+“Where are you going?” she asks me.
+
+“To talk to my mother,” I call over my shoulder.
+
+“Are you sure that’s a good idea?”
+
+“No. That’s why I’m telling you.”
+
+----
+
+I go out over the back wall, the same way I used to. It almost makes me feel normal. I could go through the gates, sure, but if I did someone would undoubtably tell Liam, and I’m equally sure that the information would somehow make its way back to Commander Selby as well.
+
+I don’t particularly feel like letting Liam know where I’m going at the moment. I’m sure he would try to talk me out of it or want to come with me, and I don’t need the irritation of that conversation or the distraction of having him tag along into enemy territory.
+
+It’s evening, but it’s not dark yet, though the shadows are definitely growing longer as I make my towards the center of the city and the house (( ???)) my mother has been residing in.
+
+I stand in the shadows against a nearby building, and watch the house. I haven’t actually been here before, and I don’t particularly feel like entering through the front door. In this part of town though, you can’t just loiter outside a house staring through the windows without someone coming to ask questions and encourage you to be on your way, so I wrap the shadows around myself just a little bit more tightly and let them whisper ‘don’t look here’ to anyone who might glance in my direction. If someone is specifically looking for me, it won’t be enough to discourage them from seeing me, but it should do the trick for everyone else, and I’m not expecting anyone to be specifically looking for me.
+
+An hour goes by while I wait for the sun to set, and then another thirty minutes as I wait for dusk to give way to night. Finally it’s dark enough that foot traffic has slowed to the point where I feel like I can probably make it into the house unobserved.
+
+The house is brick with recessed mortar joints, so it’s easy to climb. I opt to enter via a second floor window. Once inside, I carefully close the window behind me, and stay frozen in place listening for a few moments. But I hear nothing.
+
+As I open the doors and look inside, most of the rooms appear unoccupied, which makes sense, since as far as I know, there are only four people staying in this house full time, and there are bedrooms for at least double that. Eventually I find the room I’m fairly confident my mother is staying in, and take a seat on a chair in the corner opposite the door, which has the advantage of being away from the window in shadow and opposite the bed, so it’s not likely to be the first place your eyes look when you enter.
+
+Then I wait.
+
+One hour turns to two. Then three. Finally, sometime shortly before midnight, the door opens and my mother steps into the room. She shuts the door behind her and walks toward the bed.
+
+“Hello, mother,” I say once her back is to me.
+
+She gives the smallest of twitches before masking it, but I can tell she was startled. I smile as she turn toward me.
+
+“I was expecting you days ago.”
+
+I shrug. “I was busy.”
+
+She says nothing.
+
+“The magic binding me to Liam, can I undo it?”
+
+“No.”
+
+“Can you?” I ask.
+
+“Even if I could, I wouldn’t, but no. Not as such.”
+
+“Lovely.”
+
+She grins, and it looks deadly. “Yes. Quite.”
+
+“Why are you still here?” I ask. “What happened to Corriven and then Avonare?”
+
+“All in due time. If you had simply gone to Dairuvar as requested, I would already be in Avonare, but as ever, you have to make things difficult.”
+
+“I have a life here and no desire to go to Dairuvar.”
+
+“That doesn’t matter.”
+
+“No. Of course not. Why would it?”
+
+“You only exist because of me, daughter.”
+
+“Whatever,” I say, rolling my eyes. “What was Iverson looking for in the flat?”
+
+“Which flat?” she asks.
+
+She’s playing dumb. I’m sure of it. Like I said, it’s a viable strategy.
+
+“The one that got your brother killed. William was it?” I ask, flippantly. “Was he the one you failed?” I think I see her wince.
+
+“People have been gossiping.”
+
+“People have.”
+
+“So was it him? Because from what I heard, the whole thing was your idea, and then he died in the making of it. Which seems like it would make it pretty squarely your fault.”
+
+I feel her magic begin to gather around her.
+
+“Tsk tsk, mother,” I chide. “We both know that won’t end well for you.”
+
+“I couldn’t possibly say,” she says breezily, cutting off whatever she was in the process of doing.
+
+“Mmm. So you’re friends with Commander Selby?”
+
+“The enemy of my enemy, as they say.”
+
+“Seeing the future? You didn’t think that was worth mentioning? At any point? Ever?”
+
+“No. Why would I?”
+
+“Because it seems like something I should have known.”
+
+“Well, perhaps in the future you would be wise to be a little less sure of yourself when someone tells you something, daughter.”
+
+“Perhaps.” I can’t exactly disagree with that statement. “Do you know what happened?”
+
+“To you?” she asks.
+
+“Yes.”
+
+“Well, judging from your appearance, I’d say that, as usual, you decided you were more capable than you are.”
+
+“I’m still alive, so I’d say my assessment of my capabilities was accurate.”
+
+“I suspect you got lucky,” she says watching me closely. “Ah. There it is. You agree.”
+
+“No. I didn’t get ‘lucky.’ I made a decision based on a solid understanding of the risks, and I survived. As I anticipated.” This is true.
+
+“So then why are you asking me if I know what happened?”
+
+“Just curious, but it seems you don’t. That’s unfortunate. It was interesting. You would be interested. But alas, there doesn’t seem to be any reason for me to share that information with you.” I stand and walk to the door to let myself out.
+
+“Goodbye, daughter,” I hear her say from behind me.
+
+I don’t look back as I close the door behind me, even though the skin on the nape of my neck prickles slightly. I descend the staircase and let myself out through the front door.
+
+The temperature has decreased at least a good fifteen degrees since I entered the house, and I find myself wishing I had brought a jacket as I descend the steps to the street (( verify this matches with before )). I hear an owl hoot somewhere nearby at nearly the same instance I hear a scuff behind me, followed by something smashing into my skull. Then there’s only darkness.
+
+### 44 - Chapter Name TBD
 
 
 
@@ -8651,7 +8795,9 @@ I win the first, but lose the second. And for the first time (( check to make su
 
 Things that need to happen:
 
-1. Go talk to Alexandria
-2. Someone kills Alexandria
-3. Peter double agent???
-4. Get captured
+3. Giorgi follows - owl
+4. Hazel missing - Liam finds out she went to talk to Alexandria
+5. Alexandria admits she knew that Iverson was going to take Hazel
+6. Liam kills Alexandria
+7. Alex finds Liam and tells him Iverson has Davy too
+8. Owl comes back with message

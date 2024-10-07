@@ -4328,7 +4328,6 @@ That earns me an honest laugh.
 
 “Alright. Do you want to start trying to teach me how to do it then? I’m definitely not going to be able to fall back asleep.”
 
-
 ### 21 - Just a Girl/Stupid Girl ^^1400 words^^
 
 The next day I’m sitting in the gallery listening to a last minute session about Avonare. The Avonarese Commander has been called in to give a briefing about the return of Avonare Polity’s heir. Evidently, my mother chose this morning to announce that she’s back. From the sound of things, she hasn’t mentioned Alex or me, which is good news for both of us, as far as I’m concerned. If she could just forget we exist at all, that would solve about half of my problems.
@@ -4464,7 +4463,6 @@ I tap the mat. “You win.”
 “No, I was thinking about going for a run if you want to come, though,” I tell her. I really don’t want to spend any longer in this gym with Iverson watching me than I have to, and I have a feeling he’ll stick around as long as I do.
 
 As expected, she declines, and I spend the next hour running laps around the inside perimeter of the walls, thinking. Davy really needs to hurry up. I need to get out of this holding pattern.
-
 
 ### 22 - Heat Waves ^^2200 words^^
 
@@ -7637,7 +7635,7 @@ Davy and Giorgi have left, and I’m sitting with my back against the wall aroun
 
 “Give me a day? We can go back the day after tomorrow.”
 
-### 39 - Where is My Mind/Cassandra ^^2400 words^^
+### 39 - Where is My Mind ^^2400 words^^
 
 “Were you able to find out anything about Reese?” I ask Giorgi.
 
@@ -8783,21 +8781,272 @@ I don’t look back as I close the door behind me, even though the skin on the n
 
 The temperature has decreased at least a good fifteen degrees since I entered the house, and I find myself wishing I had brought a jacket as I descend the steps to the street (( verify this matches with before )). I hear an owl hoot somewhere nearby at nearly the same instance I hear a scuff behind me, followed by something smashing into my skull. Then there’s only darkness.
 
-### 44 - Chapter Name TBD
+### 44 - Bury a Friend ^^2000 words^^
 
+It’s still dark out when I wake up, and Hazel isn’t beside me. She’s not anywhere in the room, and it doesn’t look like she came back after she left last night. I try to see if I can feel where she is through our connection, and all I can tell is that she feels distant, and she doesn’t respond. I’m hoping it’s just because she’s still mad at me, but I don’t think so. I’m pretty sure even if she is, and she probably is, she’d still respond, if for no other reason than that she would want me to in the same scenario. I don’t bother trying the ring. It’s unlikely I’ll get any more of a response from that.
 
+I check Hazel’s room, on the off chance she’s there. Or was there. When I get to the door though, I can already tell it’s unoccupied as soon as I touch the it. I remember Hazel’s doing the same thing to Davy’s door once and proclaiming that he wasn’t home. I didn’t understand how she knew. But now I get it. Behind the door feels empty. I let myself in anyway, and the undisturbed dust on every surface agrees that she hasn’t been here at all since returning.
 
+Damn.
 
+I head to the main gate. Amelia should be on gate duty soon, and maybe whoever is there now will have seen Hazel coming or going.
+
+It’s still dark outside, though I can see the faintest brightening on the eastern horizon, and the birds have already begun to sing. My boots tapping as they hit the stone are the only other sound in the predawn air.
+
+I tap softly on the gatehouse door before opening it.
+
+“Good morning, Edward.”
+
+“Captain Marten,” he blurts out, clearly surprised.
+
+“Do you have any record of Hazel Raidane coming or going since the gates closed last night?”
+
+“No, sir,” he tells me glancing at the logbook. “No one has come or gone since the gates closed.”
+
+I withhold a sigh. “Thanks. I’m going to take over the remainder of your shift. You’re free to go.”
+
+He looks mildly perplexed, but doesn’t ask any questions as he leaves.
+
+It’s another hour and a half before Amelia shows up, coming from the city rather than the campus just as the sun begins to creep over the horizon.
+
+“Liam, what are you doing here?” she asks when she sees me.
+
+“Did you see Hazel last night? She said she was going to find you.”
+
+“Yeah.”
+
+“Okay, do you know where she is?”
+
+“Why?”
+
+“Amelia,” I growl, letting my frustration creep into my voice.
+
+“I don’t know if she wants you to know where she is. She seemed pretty irritated last night. And I don’t know if it was because of you, but I’m betting it was because of you.”
+
+“Yes,” I snap. “It was because of me. Of course it was because of me. But she didn’t come back and she’s not in her room, or anywhere else on campus right now. So. Where. Was. She. Going?”
+
+Amelia pauses for a minute, chewing on her lip, debating.
+
+“Fine. She said she was going to talk to her mother.”
+
+“Alexandria?”
+
+“Unless she has another one,” Amelia says sarcastically.
+
+Fine. I deserve that. “Why?”
+
+“I don’t know. She didn’t say and I didn’t ask.”
+
+“And you just let her go?” I can’t believe what I’m hearing.
+
+“Yes. I don’t know if you’ve noticed Liam, but Hazel’s a big girl. She can take care of herself. If she wants to talk to her mother, she can talk to her mother. She doesn’t need your approval or help for that.”
+
+*What the fuck is going on here?* I wonder. “She said you two were friends. I didn’t get it, but I see it now,” I mutter. “Okay, Amelia. You’re clearly angry about something. What?”
+
+“You didn’t tell me about Lisette.”
+
+“Ah. And Hazel did.” I’m surprised. I want to ask her how the subject came up, but my curiosity is neither here nor there at the moment.
+
+“Yes.”
+
+“Telling you when we first returned didn’t seem wise, and there hasn’t exactly been a great time to bring it up since then.”
+
+“It’s still shitty of you.”
+
+“Yes,” I agree.
+
+“Okay, good. Just so you know.”
+
+I nod. “What time did she leave?”
+
+“Around six or seven, I think.”
+
+“And she didn’t say anything about going to see anyone else? Or staying anywhere else?”
+
+“No.”
+
+“Thanks.”
 
 ----
 
+It’s late afternoon before I can get away long enough to go speak to Alexandria. Anna answers almost as soon as I knock on the door, almost like she was there waiting.
 
+“I’d like to see Alexandria,” I tell her.
 
-Things that need to happen:
+She inclines her head toward the sitting room we were in last time, and starts up the staircase when she sees me headed in that direction. I take a seat on the same sofa as last time. The entire room looks the same. Even the bronze statue is still on the table in front of the table in front of the sofa where Alex left it when he moved it from the bookshelf. I’m mildly surprised neither Anna nor Alexandria put it back in its place.
 
-3. Giorgi follows - owl
-4. Hazel missing - Liam finds out she went to talk to Alexandria
-5. Alexandria admits she knew that Iverson was going to take Hazel
-6. Liam kills Alexandria
-7. Alex finds Liam and tells him Iverson has Davy too
-8. Owl comes back with message
+“Hello, Liam. Back so soon?”
+
+“Do you know where Hazel is?” I ask, cutting to the chase.
+
+“Not precisely.”
+
+“Do you *imprecisely* know where she is then?”
+
+She smiles. “I begin to see why she likes you.”
+
+“I really wish people would stop saying that,” I mutter as much to myself as to her.
+
+“You must admit, on the surface, you two are an odd pairing.”
+
+“Do you know where she is?” I ask again, redirecting us back to the only thing I’m actually interested in.
+
+“Yes, of course I know where she is. She’s my *daughter*. I *always* know where she is.”
+
+“Where is she?”
+
+“With her father. As she should be.”
+
+I think my heart misses a beat. “Iverson? She’s with Iverson?”
+
+“Yes, of course. He came to collect her last night.”
+
+“You knew? And you let him *take* her?”
+
+“Yes. She’s on her way to fulfill her destiny. As she should be. Now, I’m very busy. You can see yourself out,” she tells me as she stands and heads toward the door, turning her back on me in dismissal.
+
+Without thinking, I pick up the bronze statue, and hurl it at her head with the full force of my anger behind it. It hits her skull with a sickening thwack before falling to the ground with a hard thud as it hits the carpet. Alexandria follows quickly, sinking to her knees before falling face first onto the floor.
+
+I feel her begin to pull power to herself in an effort to, I assume, heal the damage I’ve just done.
+
+“No. No magic, Alexandria,” I tell her, lacing enough power into the words to ensure she stops.
+
+I close the distance between us. It’s less than twelve feet, but it seems like it takes forever before I’m standing over her. The head wound looks nasty. I definitely see bone, and I think I see brain matter as well. I use the toe of my boot to roll her over onto her back.
+
+She’s groaning incoherently, and struggling to keep her eyes open. The head wound is almost certainly going to be fatal without magic to fix it. But head wounds can take forever to kill a person depending on whether the brain is bleeding or swelling or both, and I don’t have all day to stand around and make sure she dies.
+
+I draw a knife from my belt. It’s like Hazel said: You don’t leave an enemy behind at your back. I sink the knife into her chest up to its hilt before removing it and wiping it clean on her dress, which I distantly notice is the same color as the blood.
+
+I check her pulse, and find none.
+
+I let myself out of the house, and it seems like only seconds later that I’m standing in front of the door to Davy’s flat.
+
+I knock, and it’s only moments before I hear footsteps. Alex throws open the door, looking disappointed when he sees it’s me.
+
+“Expecting someone else?” I ask.
+
+“Davy’s been gone since early this morning. He left to go to the market, and hasn’t been back since.”
+
+I sigh. “Let’s go inside.”
+
+“You know something?” Alex asks, and I hear the worry edging into panic in his voice.
+
+“Inside,” I say again, more firmly.
+
+“What do you know?” Alex questions when we’ve reach the top of the staircase.
+
+“Sit,” I tell him waiting until he complies. “What was with the bronze statue the other day?”
+
+“What?”
+
+“At your mom’s. You were messing around with stuff on the bookshelves. Then you took a bronze statue, and brought it over to the table, and set it there. Why?”
+
+“I don’t know. Who cares?”
+
+“Why, Alex?”
+
+“It seemed like it belonged there.”
+
+“Fucking hell,” I mutter. “I’ve just come from visiting your mother. She’s dead, by the way.”
+
+He blinks slowly. “Good. You killed her?”
+
+I nod. “With the statue you left on the table.”
+
+I can see the realization flickering over his face. “No… that’s not—no.”
+
+“Sorry, but it seems so.”
+
+“Shit.” He takes a breath. “Whatever. It doesn’t matter. Where’s Davy?”
+
+Now it’s my turn to take a breath. “Hazel’s gone too. That’s why I went to see your mother. Amelia saw her last night, and said Hazel told her that’s where she was going. Then she didn’t come back. Your mother said Iverson took her. She knew and she let it happen.”
+
+“Fuck. So he has both of them.”
+
+“Probably,” I agree.
+
+“Davy’s been gone since early this morning. Almost twelve hours. If they’re pushing the horses, and they don’t care about running them into the ground—which is a safe bet—they could be nearly five hundred miles away by now, and if they change out the horses and don’t stop, they’ll make it to Dairuvar long before we have a chance to catch up.”
+
+I nod, having reached the same conclusion.
+
+Alex closes his eyes, and I swear it’s like I can feel him running through scenarios in his mind, trying to play them out to the end. Testing each to see which is most viable.
+
+Finally, he says, “They’re going to have to get themselves out. We can’t do it, Liam. If we go to Dairuvar, we’re just going to be giving them two more hostages.”
+
+“I know,” I say softly.
+
+Alex’s fingers blanch white on the table. I think maybe he was hoping I would disagree. That I would give him an excuse. But I can’t. He’s right.
+
+*Tap. Tap.*
+
+“Did you hear that?” I ask.
+
+“What?”
+
+*Tap. Tap.*
+
+“That! It sounds like it’s coming from the balcony,” I say as I head toward the doors.
+
+When I open them I see… an owl? I look toward the sky, just to make sure, and the sun is definitely still up.
+
+“Alex, there’s an owl on the balcony.”
+
+“An owl? Hazel?” he asks as he jumps up.
+
+The owl meets my eyes, and then looks down in a manner that seems deliberate. I follow its eyes to my feet, where I see a crumpled piece of paper. I pick it up and carefully begin to open it and smooth it out.
+
+*I has H & D. Following on GWW. Send G & P. Feed owl. —Gg*
+
+“No. Giorgi. He confirms Iverson has Hazel and Davy and says he’s following them on the Great Western Way. He wants me to send Gavin and Peter after him. And we’re supposed to feed the owl.”
+
+“Always knew I liked him,” Alex says, grinning. “Good. Now when Hazel and Davy get themselves out, they’ll have backup.”
+
+“What do we feed an owl?”
+
+### 45 - All Apologies ^^300 words^^
+
+I wake up to the afternoon light slanting sideways and stabbing right into my eyes. The world is swaying and bouncing, and it feels hard to form a coherent thought over the pounding of my head and nausea that’s got me locked in his grip.
+
+“Careful moving. I think you have a concussion.”
+
+“Davy?” I manage to get out, but even to me it sounds garbled, like I’m speaking around a mouthful of marbles.
+
+“Yeah.”
+
+“Where are we?
+
+“In the back of a cart.”
+
+“Why?”
+
+He sighs. “I think we’re on our way to Dairuvar.”
+
+“Fuck,” I mutter. “I went to see my mother and then…”
+
+“You were already in the wagon unconscious when I woke up. I was headed to the market. There was a smoke cloud and then nothing.”
+
+“How long has it been?” I try to move but can’t. I’m well and firmly trussed.
+
+“Half a day.”
+
+“No magic?”
+
+“No magic,” he confirms.
+
+I’m in no position to try to find out about my own state right now with the way my head is throbbing.
+
+*Shit,* I think as I remember getting into a fight with Liam, and storming off angry. Liam has no idea where I am. And if we both end up dead because I got mad that Liam told Commander Selby what he already knew, I am going to be so pissed at myself.
+
+“What about Alex?” I ask Davy.
+
+“Not here, which is probably good news.”
+
+“Yeah,” I agree.
+
+“We’re going to have to get ourselves out of this.”
+
+“Tell me something I don’t already know, oh wise one,” I say sarcastically.
+
+“Owls sleep during the day.”
+
+“*Owls sleep during th—*” Ah. “Yes. They do.”

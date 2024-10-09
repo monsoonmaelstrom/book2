@@ -2330,8 +2330,6 @@ Eventually Davy and I are standing, holding the knotted ends of the sling at our
 
 “Better than you,” I tell him with a snort. “Let’s go.”
 
-They all let Davy and I go first to set the pace. (( Tyler thinks someone else should go first if they’re not quite bushwacking ))
-
 ----
 
 By the end of the day, we’ve all had at least six turns carrying Lisette, and I can tell everyone is sick of it, but no one is complaining, even though it took us an extra three hours to cover the same distance today as we did yesterday.
@@ -6204,7 +6202,7 @@ At the same time Amelia says, “Liam told Peter that if Peter and Hazel couldn�
 
 “Do you know what they were doing? Liam seemed pissed.”
 
-“Coming here. Reese was missing,” he says, clearly worried, not that you’d be able to from his words alone.
+“Coming here. Reese was missing,” he says, clearly worried, not that you’d be able to tell from his words alone.
 
 “Fuck,” I hiss. “Okay. Giorgi and I will go look around the shop. The rest of you stay here. Davy, be careful, yeah?”
 
@@ -6910,7 +6908,7 @@ He shakes his head.
 
 “We are *all* fine,” he tells me firmly. “The only way we all hold it together is by being fine, so don’t.”
 
-“Alright,” I agree for now.
+“Fine,” I agree for now.
 
 “Hazel looks better,” he comments, echoing the others and changing the subject.
 
@@ -7062,7 +7060,7 @@ Alex isn’t quite as impatient as Hazel, but he’s not far off either. It make
 
 “If it was you, Hazel would try,” he says.
 
-I know she would. It’s that knowledge, coupled with the knowledge that if this is the wrong decision, and it makes the situation worse, then we’ll both just end up dead, so at least I won’t have to live knowing I made the wrong decision and caused her death.
+I know she would. At least I can be sure that if this is the wrong move, and it makes the situation worse, we’ll both just end up dead. I won’t have to live knowing I made the wrong decision and caused her death.
 
 “Fine,” I mutter. “I’ll try it. How hard do you think I should… pull on it?”
 
@@ -7248,7 +7246,7 @@ The pleading tone in his voice stops my initial response that was going to be so
 
 “Alright,” he agrees, stripping off his clothes.
 
-I let my eyes roam over his body, admiring the view from his wide, rounded shoulders down his chest, to his abs—which are clearly visible in this lighting—and over his lean hips to the mound of hair between them and his dick that I’m pretty sure I could have hard in matter of minutes, finally taking in his lean, muscular legs.
+I let my eyes roam over his body, admiring the view from his wide, rounded shoulders down his chest, to his abs—which are clearly visible in this lighting—and over his lean hips to the mound of hair between them and his dick that I’m pretty sure I could have hard in a matter of minutes, finally taking in his lean, muscular legs.
 
 “Are you getting in?” I ask impatiently.
 
@@ -7328,7 +7326,7 @@ In one move, he lifts me off of him and spins me so that I’m kneeling in the w
 
 “This is exactly what I want,” I tell him breathlessly. “Forever.”
 
-His hands tighten around hips before he’s finding his own release in a series of shuddering thrusts that leave us both spent.
+His hands tighten around my hips before he’s finding his own release in a series of shuddering thrusts that leave us both spent.
 
 Eventually he slides out of me and pulls me back against his chest as we both lie bonelessly in the water that’s gone tepid again. I don’t have the energy to warm it back up. Even still I find myself wistfully saying, “Let’s just stay here forever.”
 
@@ -8250,7 +8248,7 @@ Finally he simply says, “I’m okay with that, Hazel.”
 
 “That’s it? You’re ‘okay’ with it?”
 
-“Yes. I *like* being magically connected to you.”  He releases my hand letting his fingers trail along it as he does so before walking back inside.
+“Yes. I *like* being connected to you.”  He releases my hand letting his fingers trail along it as he does so before walking back inside.
 
 I stand on the balcony alone, unsure what to make of any of that until Alex finally comes out.
 
@@ -8586,7 +8584,7 @@ I try not to let my expression change. “What do you mean?” I ask.
 
 “It’s just… if a bunch of us combined our magic, maybe we could have more of an impact than one person alone.”
 
-I sigh. “It’s not a bad thought, but… there are tens of thousand of people that are going to be directly involved in this. You’re not just talking about influencing the decisions or actions of a single person. It would have to be everyone, all at the same time, or it would be too… tenuous, and that’s a lot. I don’t think it’s doable,” I say softly. “At least, I don’t think I could do it.”
+I sigh. “It’s not a bad thought, but… there are tens of thousands of people that are going to be directly involved in this. You’re not just talking about influencing the decisions or actions of a single person. It would have to be everyone, all at the same time, or it would be too… tenuous, and that’s a lot. I don’t think it’s doable,” I say softly. “At least, I don’t think I could do it.”
 
 “So you think someone else could?” she asks, and I can see a flicker of hope in her expression.
 
@@ -8772,7 +8770,7 @@ I feel her magic begin to gather around her.
 
 I don’t look back as I close the door behind me, even though the skin on the nape of my neck prickles slightly. I descend the staircase and let myself out through the front door.
 
-The temperature has decreased at least a good fifteen degrees since I entered the house, and I find myself wishing I had brought a jacket as I descend the steps to the street. I hear an owl hoot somewhere nearby at nearly the same instance I hear a scuff behind me, followed by something smashing into my skull. Then there’s only darkness.
+The temperature has decreased at least a good fifteen degrees since I entered the house, and I find myself wishing I had brought a jacket as I descend the steps to the street. I hear an owl hoot somewhere nearby at nearly the same instant I hear a scuff behind me, followed by something smashing into my skull. Then there’s only darkness.
 
 ### 44 - Bury a Friend ^^2000 words^^
 

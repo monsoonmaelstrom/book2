@@ -2,7 +2,7 @@
 
 ## Part 1
 
-### 1 - Blue Monday ^^2600 words^^
+### 1 - Blue Monday
 
 It’s two days after the dinner party where I didn’t kill my mother. Two miserable days. It seems like everyone else is falling in line. My mother says, *‘Jump!’* and they’re quick to ask *‘How high?’*
 
@@ -222,7 +222,7 @@ He grins. “It was worth it. And who knows, maybe she’ll be less… Whatever 
 
 “I don’t know. She’s probably lying but… I don’t know.” He sighs. “I honestly have no clue.”
 
-### 2 - That’s Not My Name ^^2000 words^^
+### 2 - That’s Not My Name
 
 Early the next morning, I have Lisette, Gavin, Giorgi, and Henry standing knee deep in a broad shallow stream a few miles from the house. Fire’s not really any harder than anything else when it’s small and contained, but it’s a whole lot more dangerous and destructive than most things. Hence the stream. But it’s fucking cold this early in the morning.
 
@@ -442,7 +442,7 @@ Of course. Where else would you meet the ruling family of the polity except for 
 
 He nods.
 
-### 3 - Heathens ^^2500 words^^
+### 3 - Heathens
 
 An hour and a half later, Liam, Davy and I are standing in the stables.
 
@@ -700,7 +700,7 @@ Davy and I both sigh loudly, in unison.
 
 “Fine,” he also agrees.
 
-### 4 - Outta Me, Onto You ^^2400 words^^
+### 4 - Outta Me, Onto You
 
 We arrive back in Leisch late in the evening, and the house appears dark.
 
@@ -954,7 +954,7 @@ Damn. It *is* a better solution. I finally relent and wrap my arms around him to
 
 “Fine,” he murmurs.
 
-### 5 - D’You Know What I Mean? ^^2100 words^^
+### 5 - D’You Know What I Mean?
 
 A couple of hours later, we arrive back at the house. Liam sees Gavin and asks, “Do you know where Peter is?”
 
@@ -1178,7 +1178,7 @@ I nod. “And Alex?”
 
 “Yeah.”
 
-### 6 - I Want to Be Sedated ^^3200 words^^
+### 6 - I Want to Be Sedated
 
 It’s two days later and we’re all riding to the Lusigan port to board a ship and spend the next month and a half being bored out of our minds.
 
@@ -1522,7 +1522,7 @@ I look around trying to find the voice, and finally locate the pilot I was speak
 
 “We had a *very* good night,” I answer.
 
-### 7 - How Soon Is Now? ^^1300 words^^
+### 7 - How Soon Is Now?
 
 A couple of days later, I’m staring over the shoulder of the ship’s pilot, who I’ve since learned is called Lewis—I think it’s a surname, but he didn’t specify and I didn’t ask. I’m peering at his charts and at our heading, and it doesn’t look right.
 
@@ -1680,7 +1680,7 @@ Somehow, he manages to slump a little bit more.
 
 “Right.”
 
-### 8 - Reasons I Drink ^^2900 words^^
+### 8 - Reasons I Drink
 
 The days on ship go by in a monotonous succession, where one day is much the same as the next. My mother insists everyone gets together each day, typically in the galley, away from the crew, so she can teach them. Or us? Or me? At this point, I’m not even sure who the target of these lessons is. It’s more nonsense with the energy meridians, except I think it’s percolating into my subconscious and it’s starting to make a terrifying kind of sense. I can feel my own energy meridians, and I think I can feel how they could be manipulated, and it’s like this whole realm of untapped magical potential. It’s making me nervous. Like I need even more power. I want to tell her to stop before some invisible line is crossed. I want to scream it at her until she shuts up, but I can’t. So instead, I sit there every day listening, and my anxiety swells.
 
@@ -2034,7 +2034,7 @@ I shrug. “They’ll manage.”
 
 “Aye. I expect so.”
 
-### 9 - We’re Going Home ^^1400 words^^
+### 9 - We’re Going Home
 
 Five nights later, Liam and I stand on the deck with Davy, Alex, and Peter. Gavin and Giorgi have gone to get Henry and Lisette. Davy was right in saying we should bring Lisette, and if we’re bringing her, then Henry is an obvious choice as well. We didn’t tell either of them beforehand, which is why Gavin and Giorgi are fetching them now.
 
@@ -2140,7 +2140,7 @@ I sigh internally. I think I was hoping she’d say no, and back out. Maybe she 
 
 The terrain is rough. We’re not quite bushwhacking, but we’re not far off from it either. We’re probably covering about two and half miles an hour, so we’ll be hiking into the dark, which means we’ll be moving even slower. All in all, it’ll probably take us fourteen hours to cover the twenty-five miles, and that’s if we don’t stop for breaks. I try to increase the pace, but in less than an hour, the others are telling me to slow down.
 
-### 10 - King of Pain ^^2200 words^^
+### 10 - King of Pain
 
 Everyone is tired by the time we stop for the night. I can see the strain in their faces, and I know at least a few of them probably have some blisters that need tending. I leave that for Alex to deal with. He’s not exactly *better* at it than I am insofar as the end result will be the same. But it will hurt less if Alex does it. I’ve never been able to completely stop an injury from hurting while I heal it. Probably because I don’t care. If it hurts, it hurts. Eventually it will stop.
 
@@ -2292,7 +2292,7 @@ I leave the butchering and cooking of the rabbits to whomever’s willing to do 
 
 There’s not much to say to that, so Liam simply nods, and we sit around the fire in silence. I would just as soon keep walking until we get to Branton, even if expending the energy to do so would be stupid. The fact the others can’t is the only thing really stopping me.
 
-### 11 - Pepper ^^1900 words ^^
+### 11 - Pepper
 
 The next morning Lisette doesn’t wake up. She’s breathing and her pulse is fine, so I’m not too concerned about it. I’m merely annoyed. We can’t afford to lose an entire day, or however long it’s going to take, waiting for her to wake up.
 
@@ -2446,7 +2446,7 @@ I look at Liam, and we both shrug.
 
 I look for Lisette, and find her fiddling with the knot, but she’s actually close now, and I can’t help but sigh. I really hope I’m wrong, and I’m pretty sure I’m not.
 
-### 12 - It’s Called Freefall ^^2200 words^^
+### 12 - It’s Called Freefall
 
 We spend the next twelve days walking. It’s monotonous, but at least we’re doing something. Lisette peppers me with questions about magic throughout the process. I don’t think I’ve ever spent so much time talking about it in my life. To say she’s infatuated would be understating the matter.
 
@@ -2648,7 +2648,7 @@ He tears a piece of cloth from his shirt and hands it to me instead. “It might
 
 “Fine,” I say, pressing the cloth into my face a little bit harder. It stings. Serves me gods damned right.
 
-### 13 - The Monster ^^2200 words^^
+### 13 - The Monster
 
 I’m the last one back up the hill to where the others are sleeping. By the time I get there, Alex has woken everyone up, and Davy is barking out instructions. I stand there silently wondering how much blood is visible on my clothing right now. It probably doesn’t matter because I’m sure the streaks on my face are pretty clear. I wish I could get Lisette’s blood off me, but I meant it when I said no magic.
 
@@ -2890,7 +2890,7 @@ Davy laughs.
 
 “Piss off, Davy,” I tell him as he leaves the room.
 
-### 14 - Ninety-Nine Problems ^^1300 words^^
+### 14 - Ninety-Nine Problems
 
 I lie in bed, curled next to Liam for what feels like hours, before finally giving up. Luckily, a defining characteristic of buildings everywhere is rooftops. I open the window and am able to stand on the sill and reach the eaves of the rooftop just enough to be able to pull myself up and over the edge. Definitely not the easiest maneuver, but I manage it.
 
@@ -3022,7 +3022,7 @@ I follow along because I’ve got nothing better going on.
 
 ## Part 2
 
-### 15 - It Wasn’t Me/Anti-Hero ^^2200 words^^
+### 15 - It Wasn’t Me/Anti-Hero
 
 We enter the city on foot without Peter, Giorgi, and Gavin. Even though this puts us in closer physical proximity to all of the people and things I’m most concerned about, I feel better.
 
@@ -3210,7 +3210,7 @@ It’s technically true. Nicely done, Alex.
 
 “Fine. I’ll write them. What do the records need to say?”
 
-### 16 - The Boys Are Back in Town ^^2300 words^^
+### 16 - The Boys Are Back in Town
 
 Alex, Giorgi, and I broke off from the others after Amelia left. I need to retrieve the copy of Liam’s key that I made what feels like forever ago. Fortunately, I didn’t leave it in my room at the college, unfortunately I left it at Davy’s. Well, wedged into some of the brickwork near the roof of his building. I think there’s a solid chance someone could be watching Davy’s flat, which is why I’m bringing Alex and Giorgi with me. Alex had basically been living at Davy’s before we left, so hopefully he’ll notice anything out of the ordinary I might miss. And no one should be looking for Giorgi at all. I didn’t bring Davy because, supposedly, Iverson wants me *and* Davy, so at least this way, if it all goes pear shaped, he doesn’t get both of us.
 
@@ -3424,7 +3424,7 @@ Liam nods.
 
 Liam shrugs. “Never needed any. No one actually lives here.”
 
-### 17 - Get Over It ^^3400 words^^
+### 17 - Get Over It
 
 The next morning I’m up early sitting on the rooftop, watching the sunrise over the city. I only slept a couple of hours. Liam finds me after I’ve been out there for about thirty minutes.
 
@@ -3824,7 +3824,7 @@ Liam sighs. “You’re not making this easy.”
 
 “Yeah, well, neither are you. It’s the best I can do for now.”
 
-### 18 - Waiting Room ^^2100 words^^
+### 18 - Waiting Room
 
 I spend the next day sequestered in the flat on Ginnelstreet with Davy and Alex, trying to figure out how the key works.
 
@@ -3974,7 +3974,7 @@ Near the door, I see Liam with a drawn look on his face. It takes a moment befor
 
 Amelia’s legs hit mine, and I’m so dumbstruck I make no move to roll, twist, or otherwise control the fall. I feel the base of my skull smack into the floor, and then the blackness swallows me up.
 
-### 19 - Bad Girls ^^1800 words^^
+### 19 - Bad Girls
 
 I wake up with a pounding headache and nausea and… a possible concussion? What the hell happened?
 
@@ -4178,7 +4178,7 @@ Alex rolls his eyes.
 
 “You’d better go with her,” I hear Alex tell Liam behind me. “Whatever she’s doing sounds like it’s probably a bad idea.”
 
-### 20 - Ride ^^2300 words^^
+### 20 - Ride
 
 “Where are you going?” Liam asks as he walks alongside me matching me step for step as I climb the stairs.
 
@@ -4324,7 +4324,7 @@ That earns me an honest laugh.
 
 “Alright. Do you want to start trying to teach me how to do it then? I’m definitely not going to be able to fall back asleep.”
 
-### 21 - Just a Girl/Stupid Girl ^^1400 words^^
+### 21 - Just a Girl/Stupid Girl
 
 The next day I’m sitting in the gallery listening to a last minute session about Avonare. The room is reasonably full for something like this, and the number of people lining the benches is cutting down on the echo that’s normally present due to the overwhelming number of hard surfaces coupled with the cavernous ceilings.
 
@@ -4464,7 +4464,7 @@ I tap the mat. “You win.”
 
 As expected, she declines, and I spend the next hour running laps around the inside perimeter of the walls, thinking. Davy really needs to hurry up. I need to get out of this holding pattern.
 
-### 22 - Heat Waves ^^2200 words^^
+### 22 - Heat Waves
 
 “Have you heard *anything*?” I ask Liam several days later as we lie in bed together. “From *anyone*?”
 
@@ -4696,7 +4696,7 @@ I open my mouth to answer his question but then close it. “That’s not fair. 
 
 “I’ll stay here,” I tell him as I walk through the door.
 
-### 23 - Here ^^2200 words^^
+### 23 - Here
 
 In comparison to when I was last here, the flat is practically cheery. They’ve managed to add a couch and a couple of chairs since our last visit, and it’s starting to feel like people actually live here. I’d probably like it if my mood wasn’t plummeting in a manner equivalent to a long drop followed by a sudden stop.
 
@@ -4916,7 +4916,7 @@ I nod. “Davy doesn’t think I’d have to, but honestly neither of us knows. 
 
 “I want you to think about it overnight tonight. Because if I do this, and it works, your life is tied to mine forever, and if I do it and it doesn’t work, you’ll probably die. And I want you to do it *without* me. Go downstairs and stay with Peter, or whatever,” I tell him and the irony is not lost on me.
 
-### 24 - Number One Crush ^^2700 words^^
+### 24 - Number One Crush
 
 The next day comes all too soon. The dawn is cloudless and seems extra bright when compared to the fog of last night. I wish it wasn’t here.
 
@@ -5128,7 +5128,7 @@ He clasps his hand around mine, and uses it to pull me closer to him.
 
 “I know.”
 
-### 25 - Gold Chains ^^3400 words^^
+### 25 - Gold Chains
 
 We meet up with Alex, Davy, and Peter at the cafe.
 
@@ -5400,7 +5400,7 @@ I think for a moment. “If I tell you, I want a favor.”
 
 She snorts in response, but doesn’t go so far as to tell me I’m wrong. “Very well.”
 
-### 26 - Closer ^^3600 words^^
+### 26 - Closer
 
 Liam and I slowly walk back to the campus. At the rate we’re moving, dusk will have crossed into true night by the time we get back, but neither of us has it in us to hurry given the way the day went.
 
@@ -5662,7 +5662,7 @@ We stay entwined for several minutes, both unable and unwilling to move.
 
 “I love you so damn much,” Liam murmurs next to my ear, barely above a whisper.
 
-### 27 - You Should See Me in a Crown ^^1600 words^^
+### 27 - You Should See Me in a Crown
 
 I’m stepping out into the hallway, pulling Liam’s door closed behind me when the door to the left opens. I pause, surprised.
 
@@ -5756,7 +5756,7 @@ Conversations immediately breakout everywhere, and it’s seconds before the roo
 
 I stay against the wall, where I’ve been the entire time, unmoving, as people begin to filter out of the room. Liam scowls at anyone who looks like they’re going to try to approach me, which I appreciate. The last thing I want is to talk to any of these vultures that are about to start circling.
 
-### 28 - Help, I’m Alive ^^2500 words^^
+### 28 - Help, I’m Alive
 
 I let the room empty before I even think about moving. By the end, the only people left in the room are Commander Selby, the visiting Commanders of the armies of the Allied Polities, my mother, and General Iverson. Liam left after everyone else did, still looking angry, but I didn’t have a chance to find out why.
 
@@ -5972,7 +5972,7 @@ Henry nods, saying, “I’ll see you later.”
 
 Amelia and I get up to follow the crowd of people moving to the main gallery.
 
-### 29 - Gimme Shelter ^^1300 words^^
+### 29 - Gimme Shelter
 
 I’m not sure how it’s possible, but I think there are even more people crammed into the room today than there were yesterday. I’m in roughly the same spot near the door with Amelia beside me. You couldn’t pay me to be any further from the exit than I currently am.
 
@@ -6090,7 +6090,7 @@ Amelia exits ahead of me, seemingly eager to be out of the room. As I pull the d
 
 ## Part 3
 
-### 30 - Smooth Criminal ^^1800 words^^
+### 30 - Smooth Criminal
 
 Amelia leads us southwest, away from the war college, toward wherever it is Peter normally lives when he’s not trying to be hard to find.
 
@@ -6272,7 +6272,7 @@ I stop talking.
 
 Davy nods and I’m already running.
 
-### 31 - Burning Down the House ^^2000 words^^
+### 31 - Burning Down the House
 
 I’m too far away. I’ll never make it to the flat in time. I stop running and focus all of my attention on the eagle above the city as the others catch up. It’s only a couple of minutes before I see the building. Shit. They’re already there. It was all a diversion. I *should* have seen it.
 
@@ -6428,7 +6428,7 @@ I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cl
 
 “I have invitations to deliver.”
 
-### 32 - Repeat ^^2200 words^^
+### 32 - Repeat
 
 I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty or so hours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same time though, so I start heading back toward the city at a fast walk, which quickly increases to a jog.
 
@@ -6590,7 +6590,7 @@ I think he momentarily misses a breath.
 
 “Ask Davy. See what he says,” Giorgi tells me with a finality that lets me know I’m not going to get anything more out of him.
 
-### 33 - Run! ^^1700 words^^
+### 33 - Run!
 
 I’ve been waiting at the Northend Bluffs for hours. Giorgi and I separated shortly before I got here. He tried to argue, tried to convince me he should stay with me at least for a while, but the fact of the matter is that he needs to meet up with Davy, and I don’t need Iverson following him to Davy when he does. On top of that, I don’t need anyone else on top of the cliff to worry about when Iverson gets here. Liam, Alex, and Peter are going to be more than enough. Giorgi’s capable, but he’s not *that* capable. I’m not sure anyone is that capable. Including me.
 
@@ -6684,7 +6684,7 @@ Just nothing.
 
 Forever.
 
-### 34 - No Light, No Light ^^3800 words^^
+### 34 - No Light, No Light
 
 “She’s still not awake,” I manage to grate out. Saying even that much feels like I’m trying to swallow shards of glass. “Three days, Davy. It’s been three damn days. You said she’d be awake by now.” I resist the urge to step into his personal space in an effort to intimidate him, primarily because I know it won’t have the desired effect, but also because doing so would likely put me that much closer to slamming a fist into his face.
 
@@ -6988,7 +6988,7 @@ He grins. “But it’s so entertaining in there.”
 
 “She’d probably tell you that you’ll get used to it,” he shrugs. “Anyway, if you can use it for… other things, I don’t see why you wouldn’t be able to use it for this. Try.”
 
-### 35 - Breathe Me ^^1400 words^^
+### 35 - Breathe Me
 
 I feel like I’ve been floating in silent darkness forever. There’s no wind. No temperature. No smell. No up. No down. No anything. It’s formless. I’d say I was lost, but there’s nothing here, so being lost seems technically impossible.
 
@@ -7068,7 +7068,7 @@ I think maybe I hear screaming, and maybe I feel pressure.
 
 I think I’m alive.
 
-### 36 - The Great Escape ^^1500 words^^
+### 36 - The Great Escape
 
 “Try,” Alex tells me again when I don’t immediately respond.
 
@@ -7222,7 +7222,7 @@ She makes it to her feet, but sways as she stands. I wrap an arm around her wais
 
 “Hmm.”
 
-### 37 - Body Parts ^^2300 words^^
+### 37 - Body Parts
 
 I obediently eat the toast Alex put in front of me. I feel drained and I can sense the questions that have both Alex and Liam ready to burst. Questions that I really don’t have it in me to answer right now. All I want is to either take a bath and fall asleep in Liam’s arms, or to have Davy and Giorgi in front me so I can hold their feet to the fire—either metaphorically or literally. I don’t care which. I need my question answered even though I’m pretty sure I know the answer now. Even though I wish I didn’t. I need to hear them say it. I need to hear them tell me what I’m pretty sure I already know, and I desperately hope they won’t.
 
@@ -7452,7 +7452,7 @@ I fight down the urge to shudder at the thought of another day in that place. �
 
 “It’s like you all don’t even know me,” Alex sighs in response.
 
-### 38 - Crucify/When the Levee Breaks ^^1700 words^^
+### 38 - Crucify
 
 I’ve finally finished eating. I had three full plates of food and I think it may have been a mistake. My stomach feels like it’s going to burst, and I’m not sure but I think it’s possible I only had that last plate to delay the inevitable.
 
@@ -7646,7 +7646,7 @@ Davy and Giorgi have left, and I’m sitting with my back against the wall aroun
 
 “Give me a day? We can go back the day after tomorrow.”
 
-### 39 - Where is My Mind ^^2400 words^^
+### 39 - Where is My Mind
 
 “Were you able to find out anything about Reese?” I ask Giorgi.
 
@@ -7772,7 +7772,7 @@ I wait to see what Alex says.
 
 “She’s not just taking them. It seems as though most of these properties are owned by your family and have been for years. It’s what I was trying to tell you all I found out before we left Branton.” I see Alex has no idea what I’m talking about. “I found property records all over, recording properties owned by either an A Raidane or a W Raidane. All of the records are for very large properties, which have been owned for a minimum of ten years as far as I can tell. I found records in every polity, Branton and Corriven”
 
-“Interesting.” Alex says, digesting that information. “Still doesn’t mean she didn’t just take them though.”
+“Interesting,” Alex says, digesting that information. “Still doesn’t mean she didn’t just take them though.”
 
 “How do you figure?”
 
@@ -7922,7 +7922,7 @@ I resist the urge to laugh at that statement, but only because I know that doing
 
 He definitely took something from the shelves, and he doesn’t want to share what it was. I’m intrigued. I glance at Giorgi, but he simply shrugs. He doesn’t know what it was either.
 
-### 40 - Steal My Sunshine ^^1700 words^^
+### 40 - Steal My Sunshine
 
 “Hey Peter, do you have a few minutes? Can we talk?” I ask.
 
@@ -8164,7 +8164,7 @@ I nod. “You’ve got to die sometime, so why not fuck around and find out?”
 
 “You have heard nothing of the sort,” I say confidently. “You’re just fishing.”
 
-### 41 - Sucker ^^1700 words^^
+### 41 - Sucker
 
 “I’m sorry about the flat,” I tell Liam as we stand together on the balcony in the twilight of the evening. “For burning it down.” I figure someone must have told him about it at some point over the last few days.
 
@@ -8334,7 +8334,7 @@ I open it. “Malusium. I was just asking for some of this.”
 
 “Really.”
 
-### 42 - I Put a Spell on You ^^1700 words^^
+### 42 - I Put a Spell on You
 
 “Where were you?” Commander Selby asks me. “And why was Hazel Raidane in my office suggesting that assassinating General Iverson would have been more appropriate than removing him from his position?”
 
@@ -8552,7 +8552,7 @@ She pulls away now, sitting up and putting distance between us on the bed.
 
 “No. Yes. I don’t know. Maybe, but not right now,” she finishes before walking out the door.
 
-### 43 - Cassandra ^^2100 words^^
+### 43 - Cassandra
 
 I can’t believe Liam. He could have lied. He could have doubled down and insisted he didn’t know anything. That’s what I would have done if the situation was reversed. Playing dumb is a viable fucking strategy. Why is that so hard for people to understand? All you have to do is ask, ‘What do you mean?’ while being sure to sound appropriately confused. It’s *not* hard. And if they insist they’re sure you know something, you tell them a completely asinine story. You tell them that you gods damned like oolong tea.
 
@@ -8788,7 +8788,7 @@ I don’t look back as I close the door behind me, even though the skin on the n
 
 The temperature has decreased at least a good fifteen degrees since I entered the house, and I find myself wishing I had brought a jacket as I descend the steps to the street. I hear an owl hoot somewhere nearby at nearly the same instant I hear a scuff behind me, followed by something smashing into my skull. Then there’s only darkness.
 
-### 44 - Bury a Friend ^^2000 words^^
+### 44 - Bury a Friend
 
 It’s dark out when I wake up, and Hazel isn’t beside me. She’s not anywhere in the room, and it doesn’t look like she came back after she left last night. I try to see if I can feel where she is through our connection, and all I can tell is that she feels distant, and she doesn’t respond. I’m hoping it’s simply because she’s mad at me, but I don’t think so. I’m pretty sure even if she is still mad at me, and she probably is, she’d respond, if for no other reason than she would want me to in the same scenario. I don’t bother trying the ring. It’s unlikely I’ll get any more of a response from that.
 
@@ -9010,7 +9010,7 @@ The owl meets my eyes, and then looks down in a manner that seems deliberate. I 
 
 “What the hell do we feed an owl?”
 
-### 45 - All Apologies ^^300 words^^
+### 45 - All Apologies
 
 I wake up to the afternoon light slanting sideways and stabbing right into my eyes. The world is swaying and bouncing, and it feels hard to form a coherent thought over the pounding of my head and nausea that’s got me locked in his grip.
 

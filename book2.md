@@ -2044,7 +2044,7 @@ A few minutes later Gavin and Lisette appear, and another minute later, Giorgi a
 
 Lewis hands me a rolled sheet of paper, and says, “Better get going.”
 
-“Thanks,” I nod, meetings his eyes as the wind whips my hair around my face.
+“Thanks,” I nod, meeting his eyes as the wind whips my hair around my face.
 
 Seconds later, I’m joining the others in the dinghy. Alex and Peter take up the oars, and begin rowing us toward the shoreline.
 
@@ -4242,7 +4242,7 @@ I shrug.
 
 “That sounds…”
 
-“Yeah, I know exactly how it sounds. It sounds like I’m justifying what she did. I’m not. I still think she’s a monster. I’m merely saying there may have been value in it.”
+“Yeah, I know exactly how it sounds. It sounds like I’m justifying what she did. I’m not. She’s a monster. I’m merely saying there may have been value in it.”
 
 Sometimes there’s value in being a monster. It’s a simple fact.
 
@@ -4522,7 +4522,7 @@ I arch into him. “This makes me feel pretty alive too. It’s just… I need b
 
 We walk out the gate like normal people. It’s all very boring. There’s no one obviously following us, so we stop and linger on the bridge for a good while. If I’d thought to bring some bread, I could feed the swans which have recently migrated back. Unfortunately, it didn’t occur to me before we left. More’s the pity. Feeding the swans is great cover for standing around trying to figure out who might be following you. Plus, watching the swans squabble over bread is always amusing.
 
-I let my awareness expand outward as I search for the energy meridians of anyone who might following us. I don’t feel anyone except Liam, who’s right next to me, but it would be stupid to assume that Iverson or one of his people isn’t following us. And more likely than not, not all of his people are magic users.
+I let my awareness expand outward as I search for the energy meridians of anyone who might be following us. I don’t feel anyone except Liam, who’s right next to me, but it would be stupid to assume that Iverson or one of his people isn’t following us. And more likely than not, not all of his people are magic users.
 
 Eventually, we resume walking, taking a circuitous route through the city, and it feels so good to be away from the war college that I halfway toy with the idea of whether or not I want to go back.
 
@@ -5908,7 +5908,7 @@ I get a cup of coffee and a bowl of oatmeal and sit facing the door. My attentio
 
 The eagles are far less useful, generally speaking, than I was hoping when looking for a specific thing. If it’s not looking at the very thing you’re looking for, when you’re looking for it, good luck. It’s better than nothing, particularly for a getting a bird’s eye view, but that’s not helping me right now. My best bet is going to be waiting for Iverson to show up and then having the eagle follow him, but that makes several assumptions. First, that he’s the one who took Liam. For all I know, it could be my mother, or it could be completely unrelated. It’s not likely, but it’s not entirely outside the realm of possibilities. Second, it assumes that if he took Liam, he’s going to be stupid enough or brazen enough to go back to wherever he’s keeping Liam. My money would be on the second, given what I know about him.
 
-And while the eagles were useful as one of the few birds capable of crossing the mountains in the winter, they’re fairly notable within the confines of large city. Something like a crow or a pigeon would probably be better solely for its ability to blend in, but I’m stuck working with what I’ve got at the moment.
+And while the eagles were useful as one of the few birds capable of crossing the mountains in the winter, they’re fairly notable within the confines of a large city. Something like a crow or a pigeon would probably be better solely for its ability to blend in, but I’m stuck working with what I’ve got at the moment.
 
 Right now, the eagle is using the thermals to slowly circle above the city looking for anything obviously out of place, which I honestly don’t expect to yield any results at all. Once Iverson gets here, I’ll make sure it’s in position to follow him.
 

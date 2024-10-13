@@ -86,7 +86,7 @@ A loud crack echoes through the clearing, and my mirth vanishes as quickly as it
 
 She says nothing, which I take as assent, and I return to my spot between Liam and Alex.
 
-Alex throws an arm around my shoulders, which helps to mitigate the adrenaline coursing through my body a bit, but I still feel shaky. This is not how I planned on this going, and I’m not sure what the fallout is going to be.
+Alex throws an arm around my shoulders, helping to mitigate the adrenaline coursing through my body a bit, but I still feel shaky. This is not how I planned on this going, and I’m not sure what the fallout is going to be.
 
 I cast a sideways glance at Liam, hoping he’s not too upset by the fact that I basically told my mother to ‘try me’ when his life is what’s at stake. This is why I was hoping to talk to him alone first. I knew we would get to this point, and I knew it wouldn’t take long. I was just hoping it would take a little bit longer than this. But I’m done letting her be… her. It’s like I said, if she wants allies then we deserve to be treated as such.
 
@@ -170,7 +170,7 @@ A few minutes after Peter has left, I can’t help but ask, “Should I not have
 
 I nod. “We need to get back to Branton. Sooner rather than later. The sooner we get back, the sooner we can figure out how to undo what she’s done to Liam.”
 
-“I know. I’m working on it,” Davy tells me, running a hand through his curls and making them stand on end. “We can’t do another overland trip though. The pass will be even worse now. If we want to go in the next four months, we’re going to have to go by ship.”
+“I know. I’m working on it,” Davy tells me, running a hand through his curls and making them stand on end. “We can’t do another overland trip. The pass will be even worse now. If we want to go in the next four months, we’re going to have to go by ship.”
 
 “Fuck. Kill me now,” I groan. “That’s what? Six weeks at least?”
 
@@ -934,7 +934,7 @@ He hasn’t walked away yet, so I start talking. “Everyone wants the impossibl
 
 “Okay,” Liam says, taking a breath and running a hand through his hair to push it out of his face. He steps toward me, and unlike him, I hold my ground, so he takes another step. “Okay,” he repeats and wraps his arms around me.
 
-I stay rigid within his embrace as he rests his chin on my head, though. “I hear what you’re saying, *but* I don’t think it’s a good plan. And I think you should have told me about it last night. You were already planning this last night, weren’t you?”
+I stay rigid within his embrace as he rests his chin on my head. “I hear what you’re saying, *but* I don’t think it’s a good plan. And I think you should have told me about it last night. You were already planning this last night, weren’t you?”
 
 “Yes. I was planning it last night. And fine, you asked, and I probably should have mentioned it. But unless you have a better solution, I don’t want to listen to you tell me it’s a bad plan.” Okay. I guess I’m still angry.
 
@@ -1060,7 +1060,7 @@ Fuck. “Fine,” I say flatly. “Let’s go, Davy.” I hold my hand out, and 
 
 I ensure there’s not too much power flowing through me and nod.
 
-It’s the reverse of yesterday, and I’m merely a passive participant as Davy moves energy though me, and my body pulls in more to replace what he’s moving out of me, into himself, and then pushing back into our surroundings. It’s almost a perfect loop, but it hurts. A lot. It feels like I imagine having boiling liquid pumped through my veins would feel, and I move my mind further away from my body.
+It’s the reverse of yesterday, and I’m merely a passive participant as Davy moves energy through me, and my body pulls in more to replace what he’s moving out of me, into himself, and then pushing back into our surroundings. It’s almost a perfect loop, but it hurts. A lot. It feels like I imagine having boiling liquid pumped through my veins would feel, and I move my mind further away from my body.
 
 I’m uncertain how long it’s been—it feels like forever, but I don’t really know—when I hear the screaming start. I’m not sure who’s screaming. But someone. Not me, I think. I can’t deal with it though because keeping the flow of power limited and the pain from overwhelming me is taking all of my focus.
 
@@ -1674,7 +1674,7 @@ Somehow, he manages to slump a little bit more.
 
 “I know,” I say softly. I don’t need to tell him that his mother is a terrible person. He already knows. It doesn’t matter though.
 
-“I really do like the hair though. It suits you.” We sit in silence for a while before I ask, “Are you going to be okay?”
+“I really do like the hair. It suits you.” We sit in silence for a while before I ask, “Are you going to be okay?”
 
 “I’ll be fine,” he tells me. “We’re always fine, right?”
 
@@ -1948,7 +1948,7 @@ I sigh.
 
 I nod, because he’s right. I can’t. I hate it. But I can’t.
 
-“Here’s the real question though,” he says, watching me carefully. “If you can expand them or create them, can you also collapse them?”
+“Here’s the real question,” he says, watching me carefully. “If you can expand them or create them, can you also collapse them?”
 
 “Maybe. I don’t know. I think so. Probably.”
 
@@ -2036,7 +2036,7 @@ I shrug. “They’ll manage.”
 
 ### 9 - We’re Going Home ^^1400 words^^
 
-Five nights later, Liam and I stand on the deck with Davy, Alex, and Peter. Gavin and Giorgi have gone to get Henry and Lisette. Davy was right in saying we should bring Lisette, and if we’re bringing her, then Henry is an obvious choice as well. We didn’t tell either of them beforehand though, which is why Gavin and Giorgi are fetching them now.
+Five nights later, Liam and I stand on the deck with Davy, Alex, and Peter. Gavin and Giorgi have gone to get Henry and Lisette. Davy was right in saying we should bring Lisette, and if we’re bringing her, then Henry is an obvious choice as well. We didn’t tell either of them beforehand, which is why Gavin and Giorgi are fetching them now.
 
 There’s a strong wind coming from the east, and the water is choppy. Lewis is going to get in as close to the shore of the cape as the barquentine can manage, but we’ll be rowing the dinghy a decent way, and we need to get the timing right. I am waiting *very* impatiently.
 
@@ -2378,7 +2378,7 @@ I grin. You can always count on Gavin to relay the most important information fi
 
 Davy appears and hands her a waterskin and some food. Acting like a real person instead of like Gavin and me, who I guess expected her to get up and get it herself. She quickly drains the waterskin. A few days of unconsciousness will do that to a person.
 
-After she eats what Davy handed her, she quickly begins messing with the fabric knot, which does nothing to quell my uneasiness. While the learning experience was worthwhile, and perhaps even necessary, I am increasingly feeling like I will live to regret this. But at the same time, I think had I not done it, Lisette would have found a way to make me regret that as well. Damned if I did and damned if I didn’t. Story of my life.
+After she eats what Davy handed her, she quickly begins messing with the fabric knot, doing nothing to quell my uneasiness. While the learning experience was worthwhile, and perhaps even necessary, I am increasingly feeling like I will live to regret this. But at the same time, I think had I not done it, Lisette would have found a way to make me regret that as well. Damned if I did and damned if I didn’t. Story of my life.
 
 I get up and go to find Liam. He’s next to the stream we’ve stopped by for the night, with Alex and Peter. I think Liam and Peter are trying to work out how to catch some fish, and I think Alex is only there to laugh at them, which fair. And since I would sooner go hungry than eat fish, I’m not going to volunteer any tips either.
 
@@ -2398,11 +2398,11 @@ He stops moving forward and spins me around to face him, catching my other hand 
 
 He pulls back though, and I’m forced to say, “This now. Talking later. Please, Liam. Please,” I repeat again, beseechingly, when he doesn’t move.
 
-Finally his mouth is on mine again, as hungry for me as I am for him. His hand slips beneath my shirt to the small of my back, and I moan softly, which brings a new urgency to his movements. He sets me down so he can pull off my shirt, and I strip off his clothes exactly as quickly. His teeth find my nipple and gently nip at it. I wind one hand through his hair to keep me balanced and on my feet and wrap my other around his dick. He gasps as he brings his mouth back to mine. After a moment, I pull away and skim my lips over his jaw, before moving down his neck to his chest. I let my tongue trace over the ridges of his ribs, and the muscles of his stomach as I drop to my knees, and slide the head of his penis into my mouth, moving my tongue over him languidly. The sound he makes as his hands tangle in my hair is enough to make me never want to stop, and I take him deeper into my mouth, working my tongue along the length of him. I continue going as his breathing becomes rougher and rougher. In one quick motion, he pulls me from my knees, lifting me into the air, and spinning us around so my back is against the nearest tree, as he thrusts into me. I find his mouth with my own to keep from shouting out in pleasure because there’s nothing shielding the sound right now, and we’re not that far from everyone else. But I definitely don’t have the ability to do anything about it right now. Liam is the only thing I can focus on as he thrusts into me again and again.
+Finally his mouth is on mine again, as hungry for me as I am for him. His hand slips beneath my shirt to the small of my back, and I moan softly, bringing a new urgency to his movements. He sets me down so he can pull off my shirt, and I strip off his clothes exactly as quickly. His teeth find my nipple and gently nip at it. I wind one hand through his hair to keep me balanced and on my feet and wrap my other around his dick. He gasps as he brings his mouth back to mine. After a moment, I pull away and skim my lips over his jaw, before moving down his neck to his chest. I let my tongue trace over the ridges of his ribs, and the muscles of his stomach as I drop to my knees, and slide the head of his penis into my mouth, moving my tongue over him languidly. The sound he makes as his hands tangle in my hair is enough to make me never want to stop, and I take him deeper into my mouth, working my tongue along the length of him. I continue going as his breathing becomes rougher and rougher. In one quick motion, he pulls me from my knees, lifting me into the air, and spinning us around so my back is against the nearest tree, as he thrusts into me. I find his mouth with my own to keep from shouting out in pleasure because there’s nothing shielding the sound right now, and we’re not that far from everyone else. But I definitely don’t have the ability to do anything about it right now. Liam is the only thing I can focus on as he thrusts into me again and again.
 
 I’m nearly there when he drops a hand to trace across my clit as he continues to drive into me. It’s enough to push me over the edge, and I lock my legs around him holding him tight to me as I convulse around him, which is enough to pull him over with me.
 
-He holds me against the tree for a few minutes as we both catch our breath and come down from the high. Eventually though, he slowly lowers me to my feet, and I immediately miss his body pinning mine in place.
+He holds me against the tree for a few minutes as we both catch our breath and come down from the high. Eventually, he slowly lowers me to my feet, and I immediately miss his body pinning mine in place.
 
 “Let’s stay here for a while,” I whisper.
 
@@ -2540,7 +2540,7 @@ I debate not answering. I consider not quite lying. Ultimately I decide to admit
 
 “And what’s your take?”
 
-“My vote is to give her enough rope to either hang herself, or figure out how to climb back up. But I told Alex if he disagrees, I won’t stop him. For now though, I think he’s willing to wait and see.” I’m quiet for a minute, before finally saying, “People like her are the reason everyone is scared of people like us. Right now, I don’t think there’s anything she wouldn’t do for a little bit more power, and I mean *just* for the sake of more power.”
+“My vote is to give her enough rope to either hang herself, or figure out how to climb back up. But I told Alex if he disagrees, I won’t stop him. For now, I think he’s willing to wait and see.” I’m quiet for a minute, before finally saying, “People like her are the reason everyone is scared of people like us. Right now, I don’t think there’s anything she wouldn’t do for a little bit more power, and I mean *just* for the sake of more power.”
 
 ----
 
@@ -2894,7 +2894,7 @@ Davy laughs.
 
 I lie in bed, curled next to Liam for what feels like hours, before finally giving up. Luckily, a defining characteristic of buildings everywhere is rooftops. I open the window and am able to stand on the sill and reach the eaves of the rooftop just enough to be able to pull myself up and over the edge. Definitely not the easiest maneuver, but I manage it.
 
-The night air is cool, with the last hints of winter giving way to spring, and it’s quiet. I lie back on the roof and stare up at the stars. I’m dreading tomorrow. My mother probably arrived in Branton at least two weeks ago, and who knows what she’s been doing since. It’s almost guaranteed Iverson knows about me, and knows she’s back, which means both of them are going to be looking for me. Her return is probably also going to accelerate Dairuvar’s overall aggression toward the other polities, making war virtually a foregone conclusion. Add the fucking war college to that, who will definitely being looking for Liam, Henry and me—both on behalf of themselves, but likely also at General Iverson’s behest—and it’s going to be a nightmare.
+The night air is cool, with the last hints of winter giving way to spring, and it’s quiet. I lie back on the roof and stare up at the stars. I’m dreading tomorrow. My mother probably arrived in Branton at least two weeks ago, and who knows what she’s been doing since. It’s almost guaranteed Iverson knows about me, and knows she’s back, meaning both of them are going to be looking for me. Her return is probably also going to accelerate Dairuvar’s overall aggression toward the other polities, making war virtually a foregone conclusion. Add the fucking war college to that, who will definitely being looking for Liam, Henry and me—both on behalf of themselves, but likely also at General Iverson’s behest—and it’s going to be a nightmare.
 
 I wish there was someone else like me. We need to test out exactly how well and how precisely magic can be sensed, especially in a crowded area like a city, but we basically need two of me to do it, and the closest we have is a combination of me and Alex, and me and Liam. Even conducting the tests has risks—mostly that someone figures out where we are, which would be… bad. Very, very bad. Until we have some idea of what’s going to get us caught, all magic needs to be done with the lightest of touches, and even that will still be akin to playing with fire.
 
@@ -3042,7 +3042,7 @@ I’ve been sitting at the table, tapping the side of my half full glass of beer
 
 “Well, that’s good news,” Liam says grinning.
 
-I accelerate the rate at which I’m tapping my glass slightly and Davy props an elbow on the table and leans his chin on his fist, staring at me. I note his stare and sigh.
+I accelerate the rate I’m tapping my glass slightly and Davy props an elbow on the table and leans his chin on his fist, staring at me. I note his stare and sigh.
 
 “What’s up with you two?” Gavin asks, looking between me and Davy.
 
@@ -3302,7 +3302,7 @@ Eventually we meet back up with the others, who left Gavin waiting to tell us th
 
 “Can’t say I’m surprised. So you were right then? Someone was watching the building?”
 
-“Yeah. They didn’t seem to know who Giorgi was, though. At least not by sight.”
+“Yeah. Although they didn’t seem to know who Giorgi was. At least not by sight.”
 
 We walk in silence for a bit until we reach the cafe.
 
@@ -3336,7 +3336,7 @@ When we reach the building, I hand my un-magicked key to Peter.
 
 “You’re not coming?” Peter asks.
 
-“We are, different key though. I’ll show you tomorrow. Meet back here at ten. I have no idea how knocking will work,” Liam says more to himself than anyone else but it earns several odd looks. It must be too late for questions though, since no one asks for any clarification.
+“We are, different key though. I’ll show you tomorrow. Meet back here at ten. I have no idea how knocking will work,” Liam says more to himself than anyone else but it earns several odd looks. It must be too late for questions, since no one asks for any clarification.
 
 “Alex, Davy, you’re with us tonight,” Liam states. “Peter, lock the door behind you after you go in.”
 
@@ -3356,7 +3356,7 @@ Davy nods and Liam passes him the key. Davy inserts the key into the lock, and t
 
 Davy gives Liam a hard look.
 
-“Really,” Liam tells him. “I inherited the key. So I assume my parents’, but I don’t actually know. We’re going to try to find out though.”
+“Really,” Liam tells him. “I inherited the key. So I assume my parents’, but I don’t actually know. We’re going to try to find out.”
 
 “Alex you’ve got to feel this,” Davy tells him moving back from the door.
 
@@ -3902,7 +3902,7 @@ I set my pack in my room but don’t bother unpacking it. Who knows if it’s wo
 
 It’s everything I never wanted, yet here I am.
 
-I need to go do *something*. I’m going to go crazy if I don’t. Unfortunately it’s a Sunday. Which means there’s *nothing* going on. Nothing to distract myself with. Liam might be right that it would be easier in the general sense to come back on a weekend but at least if we’d come back tomorrow there would be things I had to do. Rooms to sit in. People to pretend to listen to. I don’t know. Maybe it wouldn’t have been better.
+I need to go do *something*. I’m going to go crazy if I don’t. Unfortunately it’s a Sunday. Meaning there’s *nothing* going on. Nothing to distract myself with. Liam might be right that it would be easier in the general sense to come back on a weekend but at least if we’d come back tomorrow there would be things I had to do. Rooms to sit in. People to pretend to listen to. I don’t know. Maybe it wouldn’t have been better.
 
 I decide to go to the gym, where at least I can hit something. I head out of my room and start down the hallway, only to find Amelia coming up it. I have no idea where her room is, but I’m pretty sure it’s not anywhere near here.
 
@@ -3950,7 +3950,7 @@ In that vein, I really consider *her* for the first time. She’s bigger than I 
 
 “You’re just getting that now?” I ask in a mocking tone.
 
-She throws a punch at my face in response. She’s quick, but I’m quicker. I manage to dodge out of the path of her fist, which leaves her slightly overextended. I move in close and use the momentum to carry me into her, knocking her sideways a couple of steps, but as I do, she’s smart enough to grab onto me and pull me to the floor with her as she falls.
+She throws a punch at my face in response. She’s quick, but I’m quicker. I manage to dodge out of the path of her fist, leaving her slightly overextended. I move in close and use the momentum to carry me into her, knocking her sideways a couple of steps, but as I do, she’s smart enough to grab onto me and pull me to the floor with her as she falls.
 
 I come out on top and am raining blows into her ribs, but it only takes her a few seconds to get a leg wrapped around me and throw me off. She tries to wrench my arm into a submission hold as she does so, but I’m flexible enough that I move with her until I can twist away, and we both come back to our feet and begin circling each other.
 
@@ -3958,13 +3958,13 @@ I come out on top and am raining blows into her ribs, but it only takes her a fe
 
 “You’re about as good as I thought you’d be,” she tells me as she moves back in, faster than she did the first time.
 
-I manage to dodge the punch she throws again, but barely. I dip under her arm and spin behind her, kicking at the back of her knee. It’s merely a glancing blow though, and doesn’t send her to the ground like I had hoped.
+I manage to dodge the punch she throws again, but barely. I dip under her arm and spin behind her, kicking at the back of her knee. It’s merely a glancing blow however, and doesn’t send her to the ground like I had hoped.
 
 “Oh yeah?”
 
 “After the pass I figured I was probably wrong about you,” she tells me.
 
-I laugh. “After the pass, I didn’t think about you at all,” I admit as I rush in, feinting with a jab at her face before driving my knee into her stomach. She twists though, so it catches her in the side and doesn’t knock the wind out of her. At the same time, she grabs my knee and sweeps the foot that was on the ground out from under me. Then she uses the weight of her own body to drive me into the ground. It hurts and it knocks the wind out of me. My entire body wants to seize into a tiny ball as I fight for a breath. I ignore it. This is *good*.
+I laugh. “After the pass, I didn’t think about you at all,” I admit as I rush in, feinting with a jab at her face before driving my knee into her stomach. She twists so it catches her in the side and doesn’t knock the wind out of her. At the same time, she grabs my knee and sweeps the foot that was on the ground out from under me. Then she uses the weight of her own body to drive me into the ground. It hurts and it knocks the wind out of me. My entire body wants to seize into a tiny ball as I fight for a breath. I ignore it. This is *good*.
 
 I drive an elbow into her jaw and roll her off of me as I try and fail to suck in air. I get back onto my feet, finally gulping in a breath. I see Amelia rubbing at her jaw as I do, but she resumes a fighting stance and I do the same. She launches a kick at me, which I block as I retreat. She does another, and I catch her leg and use it to shove her backwards. She falls.
 
@@ -4254,11 +4254,11 @@ The next few days go by unremarkably, aside from the constant talk of how odd th
 
 I need to talk to Davy, but I’m unwilling to draw attention to him by doing so, especially since I know as soon as he thinks he’s got it figured out, he’ll let me know.
 
-So instead, I continue on pretending everything is fine. I show up to the classes I’m supposed to. I do the work I’m supposed to. In the evenings I’ve been sparring with Amelia. She hasn’t won since that first time. I’ve been spending my nights in Liam’s room since he seems worried I’m going to do something stupid if left to my own devices. I’m not, but I’m also not complaining. It’s better than spending all night awake and alone in my room. While Liam sleeps each night, I’ve been trying to work out how Iverson knew where I was that first day, and I think I’ve got it. It’s those damn energy meridians. It’s got to be. Nothing else explains it. I bet he can sense them. I proved I can do it to an extent with Lisette. It’s definitely easier the closer I am, but I also bet the bigger they are the easier they are to feel. Meaning mine are probably the easiest to feel of all. I’ve been trying to feel them out in the nights when everyone else is asleep, and I can definitely feel Liam’s, but he’s right next to me. I feel twinges which I believe might be others, much farther away and much dimmer. I think it’s partially because I’m not very good at it—yet—but also because distance diminishes it like it does with every other sense. Meaning he probably can’t find Davy and Alex unless he gets close to them, and if I’m making a bunch of other noise at the same time, he might not be able to even if he’s close.
+So instead, I continue on pretending everything is fine. I show up to the classes I’m supposed to. I do the work I’m supposed to. In the evenings I’ve been sparring with Amelia. She hasn’t won since that first time. I’ve been spending my nights in Liam’s room since he seems worried I’m going to do something stupid if left to my own devices. I’m not, but I’m also not complaining. It’s better than spending all night awake and alone in my room. While Liam sleeps each night, I’ve been trying to work out how Iverson knew where I was that first day, and I think I’ve got it. It’s those damn energy meridians. It’s got to be. Nothing else explains it. I bet he can sense them. I proved I can do it to an extent with Lisette. It’s definitely easier the closer I am, but I also bet the bigger they are the easier they are to feel. Meaning mine are probably the easiest to feel of all. I’ve been trying to feel them out in the nights when everyone else is asleep, and I can definitely feel Liam’s, but he’s right next to me. I feel twinges I believe might be others, much farther away and much dimmer. I think it’s partially because I’m not very good at it—yet—but also because distance diminishes it like it does with every other sense. Meaning he probably can’t find Davy and Alex unless he gets close to them, and if I’m making a bunch of other noise at the same time, he might not be able to even if he’s close.
 
 Liam said Iverson was staring at them with a blank expression the entire time he was reporting to Commander Selby. I bet the majority of Iverson’s focus was on figuring out where I was during the conversation, all so he could get up and walk there like he knew exactly where I was the whole time. It was a bluff. He was showing off. I find the realization oddly comforting.
 
-Initially, it was bothering me that I couldn’t feel General Iverson when trying to feel for the energy meridians around me. I’m not exactly sure where he is, but I’m sure he’s lurking somewhere close by. And based on what I felt in the gym, he should glow the same way I think I do. However, it occurred to me not long after that, that if I can be really loud, I can probably be really quiet. It’s what I’ve been focused on for the past several hours. It’s actively different from not using any magic or not pulling in any power. Even when I’m not doing either of those things, my energy meridians still practically glow. I think I’ve figured out the knack for making them dimmer though. I want to see if I can make them go dark though, and if I can, can I hold them like that? And what happens if I do? I feel like there could be some negative side effects, but it seems like it could be useful enough to chance it.
+Initially, it was bothering me that I couldn’t feel General Iverson when trying to feel for the energy meridians around me. I’m not exactly sure where he is, but I’m sure he’s lurking somewhere close by. And based on what I felt in the gym, he should glow the same way I think I do. However, it occurred to me not long after that, that if I can be really loud, I can probably be really quiet. It’s what I’ve been focused on for the past several hours. It’s actively different from not using any magic or not pulling in any power. Even when I’m not doing either of those things, my energy meridians still practically glow. I think I’ve figured out the knack for making them dimmer though. I want to see if I can make them go dark, and if I can, can I hold them like that? And what happens if I do? I feel like there could be some negative side effects, but it seems like it could be useful enough to chance it.
 
 Right now I’ve got them like banked ashes and I’ve been holding them there for close to thirty minutes. It takes no small amount of effort or focus, but I’m betting it’s one of those things that gets easier with practice since Iverson seems to be able to do it almost constantly.
 
@@ -4334,7 +4334,7 @@ Earlier this morning she, apparently, summoned the Avonarese Commander to the re
 
 I don’t think my mother’s going to get what she’s asking for, but I also don’t think she ever expected to, so there must be some other reason she was asking for it. But the only reason I can figure she might have, is to cause this exact situation, which doesn’t make any sense to me either. Though I have heard rumors swirling around stating Dairuvar is mobilizing its army near its northeastern border—the one it shares with Avonare. So maybe her decision to suddenly announce her return is related to that. Or maybe she’s behind those rumors. I think both options are equally plausible.
 
-People have been coming in and out of the gallery throughout the discussion—since as far as political gossip goes, this is prime—so when the bench creaks next to me, I pay it no mind. Slowly though, I begin to feel a ramp up in the energy around me. It goes from nothing, to a trickle, then a steady flow, to a raging river. I ignore it, and focus on the scene in front of me as if I feel nothing. I know it must be General Iverson. And evidently he’s hoping to elicit a reaction from me. But I know nothing. I see nothing. I feel nothing.
+People have been coming in and out of the gallery throughout the discussion—since as far as political gossip goes, this is prime—so when the bench creaks next to me, I pay it no mind. Slowly, I begin to feel a ramp up in the energy around me. It goes from nothing, to a trickle, then a steady flow, to a raging river. I ignore it, and focus on the scene in front of me as if I feel nothing. I know it must be General Iverson. And evidently he’s hoping to elicit a reaction from me. But I know nothing. I see nothing. I feel nothing.
 
 *I know nothing. I see nothing. I feel nothing,* I repeat to myself as I work to look like I’m focused solely on the proceedings in front of me.
 
@@ -4440,7 +4440,7 @@ They both nod.
 
 ----
 
-Iverson shows up that night in the gym while Amelia and I are sparring. Of course he does. It’s good though because I was thinking he might. Glad to see I was right. I believe I might be beginning to understand how he thinks.
+Iverson shows up that night in the gym while Amelia and I are sparring. Of course he does. It’s good though, because I was thinking he might. Glad to see I was right. I believe I might be beginning to understand how he thinks.
 
 He didn’t drag Liam with him tonight, which also doesn’t surprise me.
 
@@ -4450,17 +4450,17 @@ I slow all my reactions just enough to give Amelia another slight advantage in a
 
 Iverson has been watching us spar for probably close to ten minutes before I finally feel that same physical rippling sensation that makes the inside of my head feel like it’s expanding in size. Like before, I let myself appear distracted. Like I’m searching for the source.
 
-Amelia goes on the attack, taking advantage of the perceived lapse in my attention. This time though, I control the fall as she takes me to the ground. She comes out on top and is able to successfully pin me. It’s a good one. If I was willing to suffer for it, maybe I could get out. But I’m not, so I don’t.
+Amelia goes on the attack, taking advantage of the perceived lapse in my attention. This time, I control the fall as she takes me to the ground. She comes out on top and is able to successfully pin me. It’s a good one. If I was willing to suffer for it, maybe I could get out. But I’m not, so I don’t.
 
 I tap the mat. “You win.”
 
-“Hah!” Amelia says rising to her feet and extending a hand to pull me up. Amelia likes winning. I don’t mind though, so do I.
+“Hah!” Amelia says rising to her feet and extending a hand to pull me up. Amelia likes winning. I don’t mind. So do I.
 
 “Nice,” I comment once we’re both back on our feet.
 
 “Want to go again?” she asks.
 
-“No, I was thinking about going for a run if you want to come, though,” I tell her. I don’t want to spend any longer in this gym with Iverson watching me than I have to, and I have a feeling he’ll stick around as long as I do.
+“No, though I was thinking about going for a run if you want to come,” I tell her. I don’t want to spend any longer in this gym with Iverson watching me than I have to, and I have a feeling he’ll stick around as long as I do.
 
 As expected, she declines, and I spend the next hour running laps around the inside perimeter of the walls, thinking. Davy really needs to hurry up. I need to get out of this holding pattern.
 
@@ -4594,7 +4594,7 @@ He does, and it’s not perfect. The best way I can describe it is that it feels
 
 “Do you know that for a fact, or are you just hoping?”
 
-“Pretty sure,” I murmur, my attention already focused elsewhere, very, very slowly absorbing energy from the air around us and using it to slowly build the conditions for the fog. “We’ll find out soon enough though.”
+“Pretty sure,” I murmur, my attention already focused elsewhere, very, very slowly absorbing energy from the air around us and using it to slowly build the conditions for the fog. “We’ll find out soon enough.”
 
 ----
 
@@ -5056,7 +5056,7 @@ My mouth drops at his last words. “I’m not… I don’t… That was a dick t
 
 “Are you done telling me what I know?” Liam asks.
 
-“I don’t know. Are you done telling me who I am?” My tone is brittle and angry and it fully reflects how I feel. How I’ve felt since last night. Since Liam pointed out I don’t always think to include him when I make decisions which affect both of us. Since Davy reminded me of what my mother did before I was even born. Of who I am. Of our sameness.
+“I don’t know. Are you done telling me who I am?” My tone is brittle and angry and it fully reflects how I feel. How I’ve felt since last night. Since Liam pointed out I don’t always think to include him when I make decisions affecting both of us. Since Davy reminded me of what my mother did before I was even born. Of who I am. Of our sameness.
 
 “Probably not,” he states.
 
@@ -5314,7 +5314,7 @@ Davy looks between me and Liam a few times, his gaze lingering longer and longer
 
 They leave us screaming silently on the couch while they have a discussion out of my field of view. A few minutes go by and I hear footsteps on the staircase followed by the sound of the door opening and closing.
 
-Then Davy comes back to the couch and crouches in front of me. I want to ask him what he’s doing—I can’t though because I can’t do anything other than try to control the agony I’m feeling—but I’m afraid I already know.
+Then Davy comes back to the couch and crouches in front of me. I want to ask him what he’s doing—I can’t though, because I can’t do anything other than try to control the agony I’m feeling—but I’m afraid I already know.
 
 ----
 
@@ -5404,7 +5404,7 @@ She snorts in response, but doesn’t go so far as to tell me I’m wrong. “Ve
 
 Liam and I slowly walk back to the campus. At the rate we’re moving, dusk will have crossed into true night by the time we get back, but neither of us has it in us to hurry given the way the day went.
 
-I did everything wrong, and I know better. My mother wasn’t wrong when she said I deserved what I got. Liam didn’t deserve to share in that agony though. I’m honestly surprised she helped at all. I think eventually I could have figured it out, it just would have taken days for me to be able to fight through the agony enough to do it. Days I didn’t have. She wasn’t wrong when she said binding me to Liam gives her an easy way to kill me though. But I don’t think that’s enough to explain her decision, which worries me. I feel like I’m trying to put together a puzzle but some of the pieces are missing, and I don’t know how many because I don’t even know what the puzzle is supposed to look like when it’s done.
+I did everything wrong, and I know better. My mother wasn’t wrong when she said I deserved what I got. Liam didn’t deserve to share in that agony though. I’m honestly surprised she helped at all. I think eventually I could have figured it out, it just would have taken days for me to be able to fight through the agony enough to do it. Days I didn’t have. She wasn’t wrong when she said binding me to Liam gives her an easy way to kill me. But I don’t think that’s enough to explain her decision, which worries me. I feel like I’m trying to put together a puzzle but some of the pieces are missing, and I don’t know how many because I don’t even know what the puzzle is supposed to look like when it’s done.
 
 Then there’s also the fact that apparently Davy and I were right. I was already similar enough to my mother. I didn’t have to change myself in order for her magic to accept me as her, despite the mess I made. Normally I like being right, but not today. Not about this. It feels like my stomach started dropping the second Liam agreed to it this morning, and it hasn’t stopped since.
 
@@ -5436,7 +5436,7 @@ I sigh, but meet his eyes, only inches from my own. “I’m sorry,” I repeat.
 
 I consider it for a second and realize he’s right. I do feel like I’ve lost to my mother.
 
-“I think though,” he says, his thumb stroking along my cheek, “that you probably came out ahead.”
+“I think,” he says, his thumb stroking along my cheek, “that you probably came out ahead.”
 
 “We’ll find out tomorrow, I guess.”
 
@@ -5498,7 +5498,7 @@ I note spots where it’s woven through and around my energy meridians and I thi
 
 It’s basically the same principle as the snares Giorgi showed me. Pull on them from one direction and strangle Liam. Pull on them from the other and strangle me. It’s clever and it’s elegant. I hate it.
 
-So now every time I do something dangerous, it’s not solely my own life I’m playing with. Great. I let my magic move across the strands which bind us together, and it feels like it creates a harmonic vibration not entirely dissimilar to what Iverson did.
+So now every time I do something dangerous, it’s not solely my own life I’m playing with. Great. I let my magic move across the strands binding us together, and it feels like it creates a harmonic vibration not entirely dissimilar to what Iverson did.
 
 I lie there staring at the ceiling for a while, evaluating my options when suddenly I feel the ghost of a thrumming echo throughout my body and jolt upright.
 
@@ -5690,7 +5690,7 @@ I don’t see Amelia or Henry when I enter the cafeteria, so I grab a cup of cof
 
 I’ve been sitting in the cafeteria for about twenty minutes when the tenor of the conversations around me begin changing like ripples spreading outward across the surface of a pond. People begin filing out of the cafeteria, and others begin following, curious to find out what’s happening. I take that as my cue and follow the others, blending in.
 
-They’re all moving toward the main gallery—the largest one, with the most seating. By the time I enter though, all of the seats on the main floor are filled, and from what I can see of the balcony it looks equally full.
+They’re all moving toward the main gallery—the largest one, with the most seating. By the time I enter, all of the seats on the main floor are filled, and from what I can see of the balcony it looks equally full.
 
 I stay standing against the back wall, immediately to the right of the door. Nothing is happening yet, but word has seemingly spread widely that *something* will be happening soon, and I guess no one wants to miss out.
 
@@ -5718,7 +5718,7 @@ General Iverson follows the stares of the others around the room, and his eyes f
 
 My mother steps forward. She doesn’t address the other Commanders in the room. She addresses the crowd. She doesn’t care about their decision. She’s already dismissed them. She’s going for hearts and minds, apparently.
 
-“On Saturday evening, I encountered a man in my residence, looking through my papers and personal effects. Upon confronting him, he attacked me. I was knocked to the floor, and he had a knife at my throat when one of my guards intervened, and killed the assassin. Upon searching his body, I found a Dairuvaran signet ring,” she says holding up a ring, which passes to Commander Selby after pausing for a few seconds to allow the crowd to take it in.
+“On Saturday evening, I encountered a man in my residence, looking through my papers and personal effects. Upon confronting him, he attacked me. I was knocked to the floor, and he had a knife at my throat when one of my guards intervened, and killed the assassin. Upon searching his body, I found a Dairuvaran signet ring,” she says holding up a ring, which she passes to Commander Selby after pausing for a few seconds to allow the crowd to take it in.
 
 Commander Selby inspects it, and then hands it off to Commander Graham, who does the same before passing it on.
 
@@ -5900,7 +5900,7 @@ She nods.
 
 I’m awake the next morning as night turns to dawn and gives way to day. I haven’t slept. I’m on approximately my thirteenth cup of coffee in half as many hours, but who’s counting? Liam never reappeared last night. If he’d given any indication he was planning on not returning last night, I’d be less concerned. But he didn’t, so I am. Especially considering his mood yesterday. I let my magic brush across the magic that’s binding us together, and I get no response. I heat up the ring I’m wearing for him, and once again, nothing.
 
-Clearly he’s still alive, because I’m still alive, but he’s completely unresponsive which means he’s either unconscious, drugged with malusium, or both. And there’s not much I can do about it right this second.
+Clearly he’s still alive, because I’m still alive, but he’s completely unresponsive, meaning he’s either unconscious, drugged with malusium, or both. And there’s not much I can do about it right this second.
 
 I get dressed, braid my hair, and head to the cafeteria to get some food since I’m guessing this will probably be the one chance I have to eat today. I’m also hoping to see if I can find Henry or Amelia without having to go looking for them, which will be step two if I don’t run into them while I’m there.
 
@@ -6036,7 +6036,7 @@ All hell breaks loose. I grab Amelia’s arm and shove our way through the door 
 
 “To make sure he doesn’t know where Liam is, and to make sure there are no unanswered questions about our absence,” I state as I survey the room.
 
-I’ve never been in his office before. It’s less military themed than I would have expected, which makes me realize I don’t really know anything at all about Commander Selby. I’ve never had any reason to speak to him, and avoided him beyond that, for obvious reasons.
+I’ve never been in his office before. It’s less military themed than I would have expected, making me realize I don’t really know anything at all about Commander Selby. I’ve never had any reason to speak to him, and avoided him beyond that, for obvious reasons.
 
 We’ve been in the office for a bit more than ten minutes when Commander Selby finally opens the door, striding into the room and locking the door behind him, clearly desperate to get away from the press of people. It’s another couple of seconds before he realizes we’re here.
 
@@ -6246,7 +6246,7 @@ Giorgi shrugs. “Someone’s got to keep track of these things.”
 
 “Or wanted to make it look like they decided for her. She still could have run, and someone else could have decided to make it look like they took her,” Giorgi says thinking aloud.
 
-“Yeah maybe. I’m not sure it makes any difference though.”
+“Yeah maybe. I’m not sure it makes any difference.”
 
 He nods.
 
@@ -6316,7 +6316,7 @@ Davy looks back at me and says, “Gavin, Henry, help her. I have the feeling we
 
 ----
 
-We come to a stop in front of a heavily disused warehouse several miles south of the docks where the fights frequently take place. It took a couple of hours of wending our way through Branton’s twistier streets to get here, with Gavin bracing me on one side and Henry on the other. I’d have long since fallen behind or forced the others to slow down if they weren’t halfway dragging me along. Firestorms are beastly things. Especially when you’re trying to wield them with precision. I need some food and a few hours of sleep. I’m not sure if I’ll get either though.
+We come to a stop in front of a heavily disused warehouse several miles south of the docks where the fights frequently take place. It took a couple of hours of wending our way through Branton’s twistier streets to get here, with Gavin bracing me on one side and Henry on the other. I’d have long since fallen behind or forced the others to slow down if they weren’t halfway dragging me along. Firestorms are beastly things. Especially when you’re trying to wield them with precision. I need some food and a few hours of sleep. I’m not sure if I’ll get either.
 
 The sky is still darkened by storm clouds making the late afternoon look more like late evening, but I’m grateful for the thick cloud cover and rain keeping people off the streets. The fewer prying eyes to see our passage, the better.
 
@@ -6430,7 +6430,7 @@ I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cl
 
 ### 32 - Repeat ^^2200 words^^
 
-I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty or so hours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same though, so I start heading back toward the city at a fast walk, which quickly increases to a jog.
+I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty or so hours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same time though, so I start heading back toward the city at a fast walk, which quickly increases to a jog.
 
 Once I’ve covered about three miles, I slow back to a walk. The streets are mostly empty. I’m a few miles south of the city, and there isn’t much reason for people to be out late in this part of the city. I begin scanning the buildings. I’m looking for one that looks like it has easy rooftop access with a mostly flat roof.
 
@@ -6532,9 +6532,9 @@ On the seventh rap against the glass, the glass shatters. The owl drops the rock
 
 ----
 
-I’ve moved both of the pigeons to locations around the Dairuvar compound, where they’re currently blending in, being pigeons, waiting for Iverson to move. For all I know though, he could have something similar in place, but I don’t think he does. Or at least, I don’t think he does *right now*. Mostly because I don’t think he knows where I am. But once I get to the Northend Bluffs he’ll know exactly where to look, which raises its own set of problems that I ponder as we make our way north.
+I’ve moved both of the pigeons to locations around the Dairuvar compound, where they’re currently blending in, being pigeons, waiting for Iverson to move. For all I know, he could have something similar in place, but I don’t think he does. Or at least, I don’t think he does *right now*. Mostly because I don’t think he knows where I am. But once I get to the Northend Bluffs he’ll know exactly where to look, which raises its own set of problems that I ponder as we make our way north.
 
-At least I know he’s still there based on the reception the owl delivering my message received, though.
+At least I know he’s still there based on the reception the owl delivering my message received.
 
 “We need to stop and get food,” I say. “Some sandwiches or something we can eat on the move.”
 
@@ -6848,11 +6848,11 @@ I sigh, releasing her hand as I slide one arm under shoulders and the other unde
 
 I close my eyes as I remember that day, and I try to let the memories flow along the magic binding us together. I was trying to explain. To apologize. But it all kept coming out wrong, and I could see her getting angrier and angrier. Then the look on her face when I accused her of using my feelings for her against me. I’m not sure I’ve done or said anything else in my life that made me feel like a shittier human being than I did when I saw her reaction to that statement.
 
-Then she left. She just left. Almost instantly I realized how badly I’d screwed up. I wanted to take it all back and apologize, only by the time I figured out how to follow her and worked up the nerve to do so, she was lying in a crumpled heap on the roof, and I had no idea what to do. There was nothing wrong with her but she was completely unresponsive. I carried her to Davy’s because I had no idea what else to do. Compared to now though, she seemed like the picture of health.
+Then she left. She just left. Almost instantly I realized how badly I’d screwed up. I wanted to take it all back and apologize, only by the time I figured out how to follow her and worked up the nerve to do so, she was lying in a crumpled heap on the roof, and I had no idea what to do. There was nothing wrong with her but she was completely unresponsive. I carried her to Davy’s because I had no idea what else to do. Compared to now, she seemed like the picture of health.
 
 I try to stop the memory of her on the cliffs from bubbling back to the surface, but running over the events of that night has become a well worn groove in my mind during the past few days, and I can’t quite prevent it from happening.
 
-I was still halfway drugged. Peter was even more so, I think. Alex seemed to be recovering better than either of us. Probably because of all the shit their mother did to them as children. When I saw Hazel standing there though, it was like something flared in my chest, and the closer I got to her the more it seemed like I could feel the magic between us crackling back to life.
+I was still halfway drugged. Peter was even more so, I think. Alex seemed to be recovering better than either of us. Probably because of all the shit their mother did to them as children. When I saw Hazel standing there, it was like something flared in my chest, and the closer I got to her the more it seemed like I could feel the magic between us crackling back to life.
 
 Everything happened so fast. She gave me a fleeting smile, said a few words to Alex and then screamed at us to run. Then I was jumping off the edge of a cliff before I had even half a second to consider what I was doing or think better of it. I hit the water, and by the time I surfaced, Alex was already swimming toward the boats with Hazel in tow, keeping her head above the water. At first, I thought it wouldn’t be long until she woke up, but once I got into the boat with her, nothing about her felt right. It was like there was no light at all around her anymore, where before there had always been a bonfire.
 
@@ -6902,7 +6902,7 @@ I lean over the railing next to him. “I only came to say sorry. Not to pick an
 
 I see a little bit of tension leave Davy’s body when he realizes I’m not here to yell at him some more.
 
-“You’re not wrong though. I should have found another way, but I couldn’t see one. I still can’t, and I’ve done nothing but replay every decision I’ve made over the past five days,” he says softly.
+“You’re not wrong. I should have found another way, but I couldn’t see one. I still can’t, and I’ve done nothing but replay every decision I’ve made over the past five days,” he says softly.
 
 “Neither did she. If she thought there was a better way, she wouldn’t have been up there.”
 
@@ -7244,7 +7244,7 @@ Liam helps me stand, and walks with me slowly to the bathroom. I sit on the side
 
 “Five days. I thought you were going to die,” he says softly and his voice sounds haunted.
 
-“For a while, I thought I might too,” I admit. It’s barely a whisper. I think that’s the closest I’ve actually ever come to dying, though I don’t tell Liam that.
+“For a while, I thought I might too,” I admit. It’s barely a whisper. I think that’s the closest I’ve actually ever come to dying, although I don’t tell Liam that.
 
 “What happened?”
 
@@ -7318,7 +7318,7 @@ His mouth is gentle on mine at first, but I’m insistent and he gives in, his l
 
 “But Alex—”
 
-“First of all,” I begin, “let’s not talk about my brother while we’re naked in the bath together. But second, he’s the one who told you—no, basically ordered you—to come in here and get me naked. Believe me, he knew exactly where that would lead. I bet he’s already soundproofed this room. Feel free to check though. I’ll wait,” I say, dropping a hand below the water to wrap around him.
+“First of all,” I begin, “let’s not talk about my brother while we’re naked in the bath together. But second, he’s the one who told you—no, basically ordered you—to come in here and get me naked. Believe me, he knew exactly where that would lead. I bet he’s already soundproofed this room. Feel free to check. I’ll wait,” I say, dropping a hand below the water to wrap around him.
 
 He moans as I apply pressure and begin stroking him. I see him trying to focus, but he doesn’t ask me to stop, so I don’t. After a moment, his mouth is back on mine with a new intensity.
 
@@ -7400,7 +7400,7 @@ I turn to find him leaning a shoulder against the wall next to the window.
 
 “Likewise,” he tells me.
 
-My face splits into a grin. I am unbelievably angry at him, but I’m still so relieved to see his face. That might all change later though, when I hear what he has to say for himself, because if Giorgi’s right, and I think he is, Davy’s been keeping secrets. Big secrets. Things he should have told me. Things I had every right to know.
+My face splits into a grin. I am unbelievably angry at him, but I’m still so relieved to see his face. That might all change later, when I hear what he has to say for himself, because if Giorgi’s right, and I think he is, Davy’s been keeping secrets. Big secrets. Things he should have told me. Things I had every right to know.
 
 For now though, I walk over to him and wrap my arms around him in a hug. “I’m glad you’re alive. You can remind me I said that later,” I say softly as I step away.
 
@@ -7510,7 +7510,7 @@ He nods.
 
 “I’m not sure I do,” he tells me in that same careful tone.
 
-He’s just being an asshole now. He’s going to make me say it. I want to shove him off the roof, but I know I’d regret it later. Mostly, though, I can’t make myself move. My feet feel like they’re bolted to the rooftop and my mouth feels like it’s a desert.
+He’s just being an asshole now. He’s going to make me say it. I want to shove him off the roof, but I know I’d regret it later. Mostly though, I can’t make myself move. My feet feel like they’re bolted to the rooftop and my mouth feels like it’s a desert.
 
 I can’t quite make myself get the next words out, and seeing my hesitation Davy says, “You know better than to ask the goblin where he got his gold, Hazel.”
 
@@ -8254,7 +8254,7 @@ I tamp down on the frustration I feel beginning to push its way to the forefront
 
 “I can’t,” I say, in what I hope is a neutral tone, as I avoid meeting his eyes. “You were both right and wrong when you called me an adrenaline junkie—or maybe right, but with an incomplete understanding. I am, but it’s more complex than that. I can’t just be more careful, because that involves both caring and *remembering* that I care. And a lot of times I don’t. I don’t care about my life. Davy once told me I don’t have a death wish, but I also don’t *not* have a death wish, and that’s true. Before you get the wrong idea,” I say, holding up a hand to stop him from interrupting, “I’m *not* suicidal. But that might just be because that would involve a level of interest in my own life that I frankly don’t have.
 
-“I care about *you* a lot though, but if I’m being fully honest, I’m bound to get so bored, or so angry that I forget.” I take a deep breath, and force myself to continue. “That I forget our lives are linked and that my death will cause yours, or… Or that I forget I care about you, and I’ll kill us both.
+“I care about *you* a lot, but if I’m being fully honest, I’m bound to get so bored, or so angry that I forget.” I take a deep breath, and force myself to continue. “That I forget our lives are linked and that my death will cause yours, or… Or that I forget I care about you, and I’ll kill us both.
 
 “I try caring. I try *really* hard, but I’m honestly terrible at it. I’m going to get you killed.”
 
@@ -8416,7 +8416,7 @@ I nod. My grandfather has always thought of Commander Selby as the son he never 
 
 “Indeed,” he says nodding. “So would you like to try explaining the past week to me again? In detail this time.”
 
-I walk him through the past week, obfuscating fewer of the details this time, though I do omit the fact there was anyone else present aside from Hazel, Amelia, Henry, and me. Commander Selby knows little about the others, and I see no good reason to change that.
+I walk him through the past week, obfuscating fewer of the details this time, although I do omit the fact there was anyone else present aside from Hazel, Amelia, Henry, and me. Commander Selby knows little about the others, and I see no good reason to change that.
 
 “So do you know what happened that left her unconscious for five days?”
 
@@ -8636,7 +8636,7 @@ I win the first, but lose the second. And for the first time, it’s not because
 
 “We’ll see,” she tells me, closing the distance between us.
 
-She almost pins me twice, but I’m able to wriggle out of both, which I can tell pisses her off. Eventually I am able to get one of her arms pinned to the mat at an angle that doesn’t allow her to get any leverage from it, and then I wrench the other behind her back at a degree which I know hurts. She could probably get out of it, if she was willing to dislocate her shoulder to do it. I know she’s not though.
+She almost pins me twice, but I’m able to wriggle out of both, which I can tell pisses her off. Eventually I am able to get one of her arms pinned to the mat at an angle that doesn’t allow her to get any leverage from it, and then I wrench the other behind her back at a degree which I know hurts. She could probably get out of it, if she was willing to dislocate her shoulder to do it. I know she’s not.
 
 “I give, you win,” she tells me, confirming it.
 
@@ -8688,7 +8688,7 @@ I don’t particularly feel like letting Liam know where I’m going at the mome
 
 It’s evening, but it’s not dark yet, though the shadows are definitely growing longer as I make my way towards the center of the city and the house my mother has been residing in.
 
-I stand in the shadows against a nearby building, and watch the house. I haven’t actually been here before, and I don’t particularly feel like entering through the front door. In this part of town though, you can’t loiter outside a house staring through the windows without someone coming to ask questions and encourage you to be on your way, so I wrap the shadows around myself a little bit more tightly and let them whisper ‘don’t look here’ to anyone who might glance in my direction. If someone is specifically looking for me, it won’t be enough to stop them from seeing me, but it should do the trick for everyone else, and I’m not expecting anyone to be specifically looking for me.
+I stand in the shadows against a nearby building, and watch the house. I haven’t actually been here before, and I don’t particularly feel like entering through the front door. In this part of town, you can’t loiter outside a house staring through the windows without someone coming to ask questions and encourage you to be on your way, so I wrap the shadows around myself a little bit more tightly and let them whisper ‘don’t look here’ to anyone who might glance in my direction. If someone is specifically looking for me, it won’t be enough to stop them from seeing me, but it should do the trick for everyone else, and I’m not expecting anyone to be specifically looking for me.
 
 An hour goes by while I wait for the sun to set, and then another thirty minutes as I wait for dusk to give way to night. Finally it’s dark enough that foot traffic has slowed to the point where I feel like I can probably make it into the house unobserved.
 
@@ -8792,7 +8792,7 @@ The temperature has decreased at least a good fifteen degrees since I entered th
 
 It’s dark out when I wake up, and Hazel isn’t beside me. She’s not anywhere in the room, and it doesn’t look like she came back after she left last night. I try to see if I can feel where she is through our connection, and all I can tell is that she feels distant, and she doesn’t respond. I’m hoping it’s simply because she’s mad at me, but I don’t think so. I’m pretty sure even if she is still mad at me, and she probably is, she’d respond, if for no other reason than she would want me to in the same scenario. I don’t bother trying the ring. It’s unlikely I’ll get any more of a response from that.
 
-I check Hazel’s room, on the off chance she’s there. Or was there. When I get to the door though, I can tell it’s unoccupied as soon as I touch it. I remember Hazel doing the same thing to Davy’s door once and proclaiming he wasn’t home. I didn’t understand then how she knew. But now I get it. Behind the door feels empty. I let myself in anyway, and the undisturbed dust on every surface agrees she hasn’t been here at all since returning.
+I check Hazel’s room, on the off chance she’s there. Or was there. When I get to the door, I can tell it’s unoccupied as soon as I touch it. I remember Hazel doing the same thing to Davy’s door once and proclaiming he wasn’t home. I didn’t understand then how she knew. But now I get it. Behind the door feels empty. I let myself in anyway, and the undisturbed dust on every surface agrees she hasn’t been here at all since returning.
 
 Damn.
 

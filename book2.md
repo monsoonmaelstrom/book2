@@ -7186,7 +7186,7 @@ He’s baiting her now, I’m sure of it.
 
 “I just didn’t, okay?” she snaps angrily.
 
-Based on the look on Alex’s face, I’m not the only one confused by heat in her response. Hazel can be mercurial, but a comment like that isn’t enough to upset her. I look at Alex in question, but he merely shrugs.
+Based on the look on Alex’s face, I’m not the only one confused by the heat in her response. Hazel can be mercurial, but a comment like that isn’t enough to upset her. I look at Alex in question, but he merely shrugs.
 
 “Hazel, what’s wrong?” I ask.
 
@@ -7368,7 +7368,7 @@ Liam comes back carrying two new sets of clothes. “How did you know?”
 
 “What?”
 
-“Nothing,” I say, waving the question away. “Just an old line from a bedtime story.”
+“Nothing,” I say, waving the question away. “Just a line from an old bedtime story.”
 
 ----
 

@@ -830,7 +830,7 @@ Liam grumbles as he removes his boots and rolls up his pants before wading in. B
 
 About twenty minutes go by before Gavin is able to light both of his papers at the same time. So far, he’s slower than Henry to figure things out for the first time, but faster at refining them after that.
 
-I set him the same task with ten at the same time that I gave Giorgi yesterday. About ten minutes after that, I’m doing the same for Henry. I expect it will keep them both busy for the remainder of the session. So far, there’s no change with Lisette.
+I set him the same task of ten at once that I gave Giorgi yesterday. About ten minutes after that, I’m doing the same for Henry. I expect it will keep them both busy for the remainder of the session. So far, there’s no change with Lisette.
 
 Another twenty minutes go by and, as expected, Giorgi’s got a globe of fire hovering above his palm. It’s only a few inches in diameter though.
 
@@ -844,7 +844,7 @@ Ten minutes later he’s got it.
 
 Peter and Liam get it at almost the same time, about fifteen minutes later, and I see them exchange a grin.
 
-I have all three of them continue to practice it for a bit longer, before deciding that it's enough for today.
+I have all three of them continue to practice it for a bit longer, before deciding it's enough for today.
 
 As they leave the water I grab Lisette’s arm. “Before this afternoon,” I tell her, “I want you to think very hard about whether or not this is something you really want to be able to do.” I see the anger flash across her face, and continue, “You’ve made it this far without any magic. It’s not something you need. So think about it. That’s all.” I let go of her arm, and she walks away without saying anything.
 
@@ -918,11 +918,11 @@ Fuck.
 
 “Un-fucking-believable, Hazel!” Liam says, but he’s still standing there.
 
-He hasn’t walked away yet, so I start talking. “Everyone wants the impossible from me, and maybe the impossible is the is the final nail in the coffin! I already feel like I’m pretending at being a person half the time. This, all of this, could be what makes it so that I don’t bother pretending at all, so excuse me for wanting a contingency plan!”
+He hasn’t walked away yet, so I start talking. “Everyone wants the impossible from me, and maybe the impossible is the final nail in the coffin! I already feel like I’m pretending at being a person half the time. This, all of this, could be what makes it so that I don’t bother pretending at all, so excuse me for wanting a contingency plan!”
 
-“This isn’t a contingency plan.”
+“This isn’t a contingency plan!”
 
-“It’s the *only* contingency plan,” I say, stepping towards him, but he steps back in retreat. “Fine. You want to know how I feel? I feel defeated because every time I try to explain this part of myself to you, you act like I’m irrational. But I’m not. *This* is logical. It is a *rational* decision.”
+“It’s the *only* contingency plan!” I say, stepping towards him, but he steps back in retreat. “Fine. You want to know how I feel? I feel defeated because every time I try to explain this part of myself to you, you act like I’m irrational. But I’m not. *This* is logical. It is a *rational* decision.”
 
 “I asked you to talk to me last night!”
 
@@ -932,7 +932,7 @@ He hasn’t walked away yet, so I start talking. “Everyone wants the impossibl
 
 “Who I am is fine, *for now!* Until you all push me too far and I can’t find my way back to being this person anymore!”
 
-“Okay,” Liam says, taking a breath and running a hand through his hair to push it out of his face. He steps toward me, and unlike him, I hold my ground, so he takes another step. “Okay,” he repeats and wraps his arms around me.
+“Okay,” Liam says, taking a breath and running a hand through his hair to push it out of his face. He steps toward me and, unlike him, I hold my ground, so he takes another step. “Okay,” he repeats and wraps his arms around me.
 
 I stay rigid within his embrace as he rests his chin on my head. “I hear what you’re saying, *but* I don’t think it’s a good plan. And I think you should have told me about it last night. You were already planning this last night, weren’t you?”
 

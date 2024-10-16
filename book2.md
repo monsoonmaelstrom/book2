@@ -2144,7 +2144,7 @@ The terrain is rough. We’re not quite bushwhacking, but we’re not far off fr
 
 ### 10 - King of Pain
 
-Everyone is tired by the time we stop for the night. I can see the strain in their faces, and I know at least a few of them probably have some blisters that need tending. I leave that for Alex to deal with. He’s not exactly *better* at it than I am insofar as the end result will be the same. But it will hurt less if Alex does it. I’ve never been able to completely stop an injury from hurting while I heal it. Probably because I don’t care. If it hurts, it hurts. Eventually it will stop.
+Everyone is tired by the time we stop for the night. I can see the strain on their faces, and I know at least a few of them probably have some blisters that need tending. I leave that for Alex to deal with. He’s not exactly *better* at it than I am insofar as the end result will be the same. But it will hurt less if Alex does it. I’ve never been able to completely stop an injury from hurting while I heal it. Probably because I don’t care. If it hurts, it hurts. Eventually it will stop.
 
 Gavin, Giorgi, and Henry are going off to set some snares. I want to go with them. Instead, I sit down and wait for Lisette. A few minutes later she’s standing in front of me.
 
@@ -2166,7 +2166,7 @@ She finally sits down, and as she does, Peter comes over and sits across from us
 
 She nods.
 
-“What we did there was like a heavily modified version of this. Davy was moving energy through me, and it hurt. A lot. And my meridians, or whatever,” I hate how it sounds saying ‘energy meridians’ aloud, but I also don’t have a better term, “are actually… open? I guess. As far as I can tell, yours aren’t. So we need to open them, or maybe create them. I’m not sure. Anyway. I expect it’s going to hurt a lot more. *A lot more.* It will easily be the most painful thing you have ever experienced. And maybe if I had done this before, I could mitigate that. But I haven’t, and I’m not even going to try.” I tell her simply.
+“What we did there was like a heavily modified version of this. Davy was moving energy through me, and it hurt. A lot. And my meridians, or whatever,” I hate how it sounds saying ‘energy meridians’ aloud, but I also don’t have a better term, “are actually… open? I guess. As far as I can tell, yours aren’t. So we need to open them, or maybe create them. I’m not sure. Anyway. I expect it’s going to hurt a lot more. *A lot more.* It will easily be the most painful thing you have ever experienced. And maybe if I had done this before, I could mitigate that. But I haven’t, and I’m not even going to try,” I tell her simply.
 
 “That’s the second thing. It should go without saying, but I’m going to say it anyway, so we’re clear: I have never done this before. It might work. It might not. It might kill you. But regardless of what the outcome is, I can guarantee it’s going to be painful.
 
@@ -2206,7 +2206,7 @@ He nods.
 
 “Well, I guess there’s nothing to it but to do it,” I say before letting the shield fall and walking back to Lisette.
 
-I sit back down in front of Lisette. “Alex is going to hold you in place while we do this,” I tell her. “I need to make sure you’re still, and I don’t think you’ll be able to stay still without someone forcing you to.”
+I sit down in front of her again. “Alex is going to hold you in place while we do this,” I tell her. “I need to make sure you’re still, and I don’t think you’ll be able to stay still without someone forcing you to.”
 
 I wait for her to nod, and then wait until I feel Alex’s power wrap around her before I take her hands in mine. I close my eyes, and instead of falling backward into myself, like I normally would, I focus on falling inward to the spot where her hands are resting against mine.
 
@@ -2214,7 +2214,7 @@ From here, I begin the first tentative steps of binding her to me, and send my p
 
 I know if Alex wasn’t holding her locked in place, she would be screaming and thrashing in pain right now. But I keep going. I told her this is what it would be like, and she still asked for it, so I keep going.
 
-I don’t know how long it’s been, or how much longer it’s going to take. I keep pulling power into myself and using it to burn through her. I feel my own skin growing hot where our hands meet, but I ignore it and continue working. A part of me is distantly aware Lisette has lost consciousness—which is probably a mercy—though Alex still holds her in place, but I’m nowhere near done.
+I don’t know how long it’s been, or how much longer it’s going to take. I keep pulling power into myself and using it to burn through her. I feel my own skin growing hot where our hands meet, but I ignore it and continue working. A part of me is distantly aware Lisette has lost consciousness—which is probably a mercy—though Alex still holds her in place. I’m nowhere near done.
 
 So far, I’ve just been pushing power into her, etching the pathways that will allow it to flow. Now I begin pulling it through her, and using it to bind her to me, similar to what I did with the deer. I remold parts of Lisette to be more like myself, and force her body to accept the changes I’m making as I do so. I wrap the changes tighter and tighter so that the only way the power can flow is through her and into me. I layer on more magic, so that if Lisette—or anyone else—tries to use the connection to pull power from me, it’ll result in Lisette’s death. I hope it won’t be necessary, but I’m unwilling to chance it so I put more power into that piece than any other part of what I’ve done to her.
 
@@ -2240,7 +2240,7 @@ I follow him as he gets up and walks away. About a hundred yards away he stops a
 
 “Are the snares the only reason we’re out here?” Giorgi finally asks, once I’ve finished resetting it.
 
-“No, but I did want to see how they worked. Where’d you get the wire from?”
+“No, but I did want to see how they work. Where’d you get the wire from?”
 
 “Took it off the ship. Figured it would come in handy.”
 
@@ -2262,7 +2262,7 @@ I sigh. There’s a deer not far away, but that would be a waste. “Where are t
 
 “There are three more further along this game trail.”
 
-I grab his arm and pull him to the side. I force my awareness out of myself until I find some rabbits, and then I encourage them to come down this trail. A few minutes later one comes racing down the trail and hits the snare I’ve just reset. It’s going fast enough its neck snaps.
+I grab his arm and pull him to the side. I force my awareness out of myself until I find some rabbits, and then I encourage them to come down this trail. A few minutes later, one comes racing down the trail and hits the snare I’ve just reset. It’s going swiftly enough its neck snaps.
 
 “Huh. At least it’s fast,” I say.
 
@@ -2290,7 +2290,7 @@ I leave the butchering and cooking of the rabbits to whomever’s willing to do 
 
 “Are you okay?” Liam murmurs.
 
-“I don’t know,” I answer softly. “I want to go throw rocks at shit,” I admit. But like the tents, there are no bottles to throw rocks at. There aren’t even any rocks unless I want to waste energy digging them out of the dirt.
+“I don’t know,” I answer softly. “I want to go throw rocks at shit,” I admit. But like the tents, there are no bottles to throw rocks at. There aren’t even any rocks, unless I want to waste energy digging them out of the dirt.
 
 There’s not much to say to that, so Liam simply nods, and we sit around the fire in silence. I would just as soon keep walking until we get to Branton, even if expending the energy to do so would be stupid. The fact the others can’t is the only thing really stopping me.
 

@@ -962,7 +962,7 @@ A couple of hours later, we arrive back at the house. Liam sees Gavin and asks, 
 
 I shoot him a look over my shoulder with my eyebrows raised in question, but he simply grins. We go through the house, out the rear door, and across the lawn to the topiary zoo.
 
-Once we’re within twenty feet of the trio, I see Alex grab Davy’s arm and step back, at the same time Liam drops his hand from my back and continues striding forward alone toward Peter. Peter hears us behind him and begins turning toward us. As he completes the turn, Liam slams a hook into his ribs, and then nails him with a cross to his face that I’m pretty sure just broke his nose. And he’s already moving, grabbing Peter’s left arm, and yanking it around to force Peter to the ground face first. Once Peter’s on the ground Liam puts a knee on his back pinning him there.
+Once we’re within twenty feet of the trio, I see Alex grab Davy’s arm and step back, at the same time Liam drops his hand from my back and continues striding forward alone toward Peter. Peter hears us behind him and begins turning toward us. As he completes the turn, Liam slams a hook into his ribs, and then nails him with a cross to his face that I’m pretty sure just broke his nose. And he’s already moving, grabbing Peter’s left arm, and yanking it around to force Peter to the ground face first. Once Peter’s on the ground, Liam puts a knee on his back pinning him there.
 
 “Stay the fuck out of my relationship, Peter,” Liam tells him flatly. “Got it?”
 
@@ -978,7 +978,7 @@ Gavin laughs as Davy asks, “What the hell was that about?”
 
 “Nothing Peter didn’t deserve,” Gavin informs him, merriment dancing in his brown eyes.
 
-Peter regains his feet with a hand on his face, feeling his nose as blood runs down his face and splatters onto his shirt. “I think you broke it,” Peter mumbles, glaring at Liam.
+Peter regains his feet with a hand on his face, feeling his nose, as blood runs down his face and splatters onto his shirt. “I think you broke it,” Peter mumbles, glaring at Liam.
 
 “Not for the first time, as I remember,” Gavin comments.
 
@@ -990,7 +990,7 @@ I can’t help but laugh.
 
 “Want me to fix it?” Alex asks Peter.
 
-“No,” Liam tells Alex. “If he wants it fixed he can figure out how to do it himself.”
+“No,” Liam tells Alex. “If he wants it fixed, he can figure out how to do it himself.”
 
 Alex looks between them, and sighs. He steps back and leaves Peter to figure it out on his own.
 
@@ -1022,7 +1022,7 @@ We all chorus some variation of ‘hi.’
 
 We’re all back in the same clearing as a couple of days ago, waiting for her to show up. Davy and I have distanced ourselves from the others. There’s no reason to draw her attention to anyone else. So we stand alone, waiting for the axe to fall, as the others talk among themselves.
 
-She walks into the clearing about fifteen minutes after the rest of us showed up. “Oh good. Hazel and Davy have decided to join us today.”
+After about fifteen minutes, she finally walks into the clearing. “Oh good. Hazel and Davy have decided to join us today.”
 
 “Shit,” I mutter and Davy nods in agreement. She used both of our names. Without prompting. She’s looking forward to whatever this is.
 
@@ -1062,7 +1062,7 @@ I ensure there’s not too much power flowing through me and nod.
 
 It’s the reverse of yesterday, and I’m merely a passive participant as Davy moves energy through me, and my body pulls in more to replace what he’s moving out of me, into himself, and then pushing back into our surroundings. It’s almost a perfect loop, but it hurts. A lot. It feels like I imagine having boiling liquid pumped through my veins would feel, and I move my mind further away from my body.
 
-I’m uncertain how long it’s been—it feels like forever, but I don’t really know—when I hear the screaming start. I’m not sure who’s screaming. But someone. Not me, I think. I can’t deal with it though because keeping the flow of power limited and the pain from overwhelming me is taking all of my focus.
+I’m uncertain how long it’s been—it feels like forever, but I don’t really know—when I hear the screaming start. I’m not sure who’s screaming. But someone. Not me, I think. I can’t deal with it though, because keeping the flow of power limited and the pain from overwhelming me is taking all of my focus.
 
 *Davy*, I think I realize eventually. *It’s Davy screaming*, I’m not sure what’s gone wrong, but apparently something has. I’m trying to shut it down, but I can’t. It’s all flowing the wrong way.
 
@@ -1086,7 +1086,7 @@ I turn to Alex, “How is he?”
 
 “What happened?” I ask.
 
-“After the first hour and half, he started sweating,” Henry supplies.
+“After the first hour and a half, he started sweating,” Henry supplies.
 
 “Hour and a half? How long has it been?”
 
@@ -1146,7 +1146,7 @@ He nods.
 
 ----
 
-I make it back to the room Liam and I are occupying by myself, and he shows up about ten minutes after.
+I make it back to the room Liam and I are occupying by myself, and Liam shows up about ten minutes after.
 
 “How’s Davy?” I ask.
 

@@ -316,7 +316,7 @@ In a few minutes, Peter has all ten pieces of paper alight.
 
 Another five minutes pass before Giorgi manages to get his paper cones lit. But he does, and all at the same time too.
 
-“Nice,” I tell him. “Come out of the stream.” I wait for him to near Peter and me, and then tell him, “You’re actually pretty good at this. Good enough to fuck it up spectacularly, so do me a favor and don’t practice this shit alone, yeah?”
+“Nice. Come out of the stream.” I wait for him to near Peter and me, and then tell him, “You’re actually pretty good at this. Good enough to fuck it up spectacularly, so do me a favor and don’t practice this shit alone, yeah?”
 
 He nods in assent, then says quietly, “You know your mom’s been watching for the last twenty minutes?”
 
@@ -334,7 +334,7 @@ He nods.
 
 “Okay. Thanks.”
 
-Giorgi stands next to Peter and I as we watch the others. “Henry will be next,” I tell them both.
+Giorgi stands next to Peter and me as we watch the others. “Henry will be next,” I tell them both.
 
 Sure enough, about ten minutes later, Henry manages to light his paper. I wade back in and hand him two paper cones, and give him the same instructions I gave Giorgi.
 
@@ -436,7 +436,7 @@ Of course. Where else would you meet the ruling family of the polity except for 
 
 “That’s what, thirty miles? Liam, you want to come? Might be useful to find out if whatever she did to you changes or weakens over distance. I’m guessing it won’t, but it’d be good to verify. Plus, it’ll give us a chance to try to teach you how to feed energy into your horse.”
 
-“Yes, I’ll come, but I don’t know if I can do that,” Liam says.
+“I’ll come, but I don’t know if I can do that,” Liam says.
 
 “Good. And likewise. That’s why we’re going to try to teach you.”
 

@@ -1188,7 +1188,7 @@ Liam told me a few days ago that he got the key for the Ginnelstreet flat from R
 
 I wonder if she knew who I was the first time Liam brought me in. I wouldn’t have thought so, but if she was as close with my mother as Peter claims, she may have taken one look at me and figured it out.
 
-If all these people could just mind their own fucking business none of us would be in this mess.
+If all these people could just mind their own fucking business, none of us would be in this mess.
 
 The ship’s cramped enough that everyone but me has to watch their heads. It’s especially bad for the tall ones though. Alex, Liam, Peter, Gavin, and Lisette are about to have a rough time.
 
@@ -1224,7 +1224,7 @@ A hand comes down on my shoulder. “Forgive my sister,” Alex says from behind
 
 “Piss off,” I tell Alex. “I’m considering a career change.” Looking back at the pilot I ask, “How much trouble would I be in if I went up into the rigging?”
 
-“A lot,” he answers, and he is not amused by my suggestion.
+“A lot,” he answers, and he is not amused by my question.
 
 “Figures,” I say. “Well on the off chance you need someone who isn’t afraid of heights and can climb, I’m available for at least the duration of this trip.”
 
@@ -1248,7 +1248,7 @@ Alex shrugs. “Dunno. Mom plans to continue her training while we’re at sea.�
 
 “She wants us all in the galley in an hour.”
 
-“Super.”
+“Super,” I respond, unenthusiastically.
 
 “You should come now though,” he tells me.
 
@@ -1258,7 +1258,7 @@ Alex shrugs. “Dunno. Mom plans to continue her training while we’re at sea.�
 
 “Fine. Whatever. Lead on.”
 
-Alex wends his way below deck with me trailing along behind him. When we enter the galley, everyone else is already there. Peter, Gavin, Giorgi and Henry are all playing dice.
+Alex wends his way below deck, with me trailing along behind him. When we enter the galley, everyone else is already there. Peter, Gavin, Giorgi, and Henry are all playing dice.
 
 “Dice,” I scoff in derision as I walk past.
 
@@ -1284,7 +1284,7 @@ I sit down next to Liam, who immediately wraps an arm around me. “Strip poker?
 
 “Maybe. Did you convince anyone to let you up in the rigging,” he asks a bit louder.
 
-“How did you know?” I ask.
+“How did you know that’s what I was doing?”
 
 Liam laughs. “You said the room was claustrophobic and then practically ran up to the deck. What else would you possibly be doing?”
 
@@ -1326,7 +1326,7 @@ I roll my eyes.
 
 “And we have plenty of party favors.”
 
-“So you’re basically going to force me to celebrate?” I ask.
+“So you’re basically going to force me to celebrate?” I question.
 
 “Yes,” Davy answers, handing me a piece of cake and a shot of vodka. “That’s one. I’m counting.”
 
@@ -1344,11 +1344,11 @@ It’s sometime after the fourth shot that Gavin convinces me to play dice with 
 
 “We know you’re cheating,” Peter says.
 
-“Then figure out how to stop me,” I say with a grin.
+“Then figure out how to stop me,” I respond with a grin.
 
 “Oh, are we playing this game?” Alex asks from the next table over, suddenly interested.
 
-He typically cares as much about games of chance as I do, which is not at all. If there’s not some amount of skill, some level of *earned* bragging rights involved at the end, count us out. But cheating turns dice from a game of chance into a game of skill. Really, sometimes cheating *does* improve a game.
+He typically cares as much about games of chance as I do, which is not at all. If there’s not some amount of skill, some level of *earned* bragging rights involved at the end, count us both out. But cheating turns dice from a game of chance into a game of skill. Really, sometimes cheating *does* improve a game.
 
 “You can’t beat me,” I tell him with a grin.
 
@@ -1372,7 +1372,7 @@ He scowls at me, and picks up the dice. He cups his hands around them, shakes th
 
 “Oh, look at that. No points. How sad for you,” I snark.
 
-I pick the dice up, and roll again. This time, as I release them, I feel something hit my chair, and it’s tipping backwards. I split my focus in an effort to avoid  bashing my head on the floor as my chair tips, and by the time my dice hit the table, three of them are ones.
+I pick the dice up, and roll again. This time, as I release them, I feel something hit my chair, and it’s tipping backwards. I split my focus, in an effort to avoid bashing my head on the floor as my chair tips, and by the time my dice hit the table, three of them are ones.
 
 “Oh, look at that. No points. How sad for you,” Alex says, mocking me.
 
@@ -1382,13 +1382,15 @@ By now, the others have all gathered around, hoping for blood, no doubt.
 
 Alex rolls again, and this time I make sure four of his dice show one. Because I can.
 
-I rest my hands on my chin and smile as glares at me in frustration. Then I scoop the dice up. I don’t expect Alex to try the same thing twice in a row, but for good measure, I throw a shield up around myself before I roll. I feel magic batting at the shield, but nothing gets through. It’s five sixes again.
+I rest my chin on my hands and smile as he glares at me in frustration. Then I scoop the dice up. I don’t expect Alex to try the same thing twice in a row, but for good measure, I throw a shield up around myself before I roll. I feel magic batting at the shield, but nothing gets through. It’s five sixes again.
 
 “Sixty-zero in my favor,” I tell him. “Your turn.”
 
-“Davy, we need more shots,” Alex says, biding his time. When Davy appears, Alex grabs his arm, pulls him down and whispers something in his ear.
+“Davy, we need more shots,” Alex calls out, biding his time. When Davy appears, Alex grabs his arm, pulls him down and whispers something in his ear.
 
-Davy nods and hands us both a glass which we immediately down. “Still waiting, Alex.”
+Davy nods and hands us both a glass which we immediately down.
+
+“Still waiting, Alex.”
 
 He nods and shakes the dice in his hand before throwing them. I go to flip them, but there’s a shield around Alex, which I take and another around the dice, which I also dismantle, but a second too slow.
 
@@ -1424,7 +1426,7 @@ I scoop up the dice and release them in a single move. I don’t bother with any
 
 “One twenty-ninety. Last roll.” I have no intention of letting him win. All I need is one die. No limitations. I grin. I got this.
 
-He scoops up the dice, cups them in his hand and gives them a quick shake before releasing them. I see the emotions flicker across his face. He thinks the game has ended in a tie as the dice hit the table. Then it’s replaced by bewilderment as he only counts four sixes. Only four dice. Then it’s incredulity, as he looks from the table to me, and I hold up four fingers.
+He scoops up the dice, cups them in his hand and gives them a quick shake before releasing them. I see the emotions flicker across his face. He thinks the game has ended in a tie as the dice hit the table. Then it’s replaced by bewilderment, as he only counts four sixes. Only four dice. Then it’s incredulity, as he looks from the table to me, and I hold up four fingers.
 
 “You… vaporized one of the dice?” he asks.
 
@@ -1438,7 +1440,7 @@ He scoops up the dice, cups them in his hand and gives them a quick shake before
 
 It’s many shots later when Davy pops up and asks, “Are you drunk enough yet?”
 
-“Drunk enough for… ?” I ask curiously.
+“Drunk enough for… ?” I question curiously.
 
 “Dimmi.”
 
@@ -1452,7 +1454,7 @@ It’s many shots later when Davy pops up and asks, “Are you drunk enough yet?
 
 “Dimmi? You guys are going to smoke dimmi?” Michael asks, with what sounds like a hint of reproach in his voice.
 
-“Have you ever tasted colors Michael?” I ask. If you smoke dimmi while sober, it only burns like acid in your lungs. But if you’re drunk enough, dimmi creates a high complete with synesthesia. It’s truly the best drug there is. Hard to find though.
+“Have you ever tasted colors Michael?” I ask. If you smoke dimmi while sober, it only burns like acid in your lungs. But if you’re drunk enough, dimmi creates a high complete with synesthesia. It’s truly the best drug there is. Hard to find, though.
 
 He shakes his head.
 
@@ -1460,7 +1462,7 @@ He shakes his head.
 
 “But it’s dimmi!”
 
-“And? Davy spends most of his time hanging out with degenerates in dives,” I say.
+“And? Davy spends most of his time hanging out with degenerates in dives,” I state.
 
 Gavin waves at Michael, and says, “Hello, that’s us, in case it wasn’t clear.”
 
@@ -1472,7 +1474,7 @@ Maybe we’re all feeling the impending doom. I know I’ve definitely decided h
 
 By the time it makes its way to Amelia, everyone else has decided they’re game. “Live a little, Michael,” she tells him, taking a hit and handing it to him.
 
-I’m curious to see if he’ll bow to the peer pressure. I see him waver momentarily before he finally says, “Fine.”
+I’m curious to see if he’ll bow to the peer pressure. I see him waver momentarily, before he finally says, “Fine.”
 
 Gavin cheers, and soon everyone else is joining him.
 
@@ -1484,25 +1486,25 @@ It’s bright the next morning. So damn bright. It’s the brightness that wakes
 
 *I guess I’d better open my eyes,* I think.
 
-When I do, I see Liam’s lower back is currently serving as my pillow. He’s lying face down on the deck of the ship. Naked. And the view in the morning sunlight is not bad. It’s actually pretty damn good. I’m distracted enough that it takes a few minutes before I realize that, except for the sailcloth someone has draped over me, I’m in the same state. I grin.
+When I do, I see Liam’s lower back is currently serving as my pillow. He’s lying face down on the deck of the ship. Naked. And the view in the morning sunlight is not bad. It’s actually pretty damn good. I’m distracted enough that it takes a few minutes before I realize that, except for the sailcloth someone has draped over me, I’m in exactly the same state. I grin.
 
 It was apparently a very good night.
 
-My last memory is of a strip poker game, that I evidently lost, and then proclaiming I was going to go climb the foremast.
+My last memory is of a strip poker game, which I evidently lost, and then proclaiming I was going to go climb the foremast.
 
 “Ah, so you’re awake, are you?” someone asks.
 
 “No, definitely not,” I answer the mystery voice.
 
-“Well, do you think you could be not awake somewhere off my deck then?”
+“Well, do you think you could be not awake somewhere off my deck, then?”
 
 I look around trying to find the voice, and finally locate the pilot I was speaking to yesterday.
 
 “Mmm. What happened?”
 
-“You came up here at dawn, on a tear. Saying you were going to climb up into the rigging. No one was willing to grab you to stop you on account of, well,” he says waving at me. “You weren’t lying when you said you could climb. You were onto the main yard quick as could be, not listening to anyone telling you to get your ass back onto the deck until yon man showed up,” he nods toward Liam.
+“You came up here at dawn, on a tear, saying you were going to climb up into the rigging. No one was willing to grab you—to stop you—on account of, well,” he says waving at me. “You weren’t lying when you said you could climb. You were onto the main yard quick as could be, not listening to anyone telling you to get your ass back onto the deck until yon man showed up,” he nods toward Liam.
 
-“Him you listened to. Then you came back down and refused to go to your cabin. By that point we were just glad to have you out of our rigging,” he says with a shrug as if that explains everything. “Amazed you didn’t dash your brains all over my deck,” he mutters.
+“Him you listened to. Then you came back down and refused to go to your cabin. By that point we were just glad to have you out of our rigging,” he says with a shrug, as if that explains everything. “Amazed you didn’t dash your brains all over my deck,” he mutters.
 
 “Please. I could climb that mast while drunk, blindfolded, and stoned in the middle of a gale,” I scoff.
 

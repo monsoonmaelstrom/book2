@@ -2040,7 +2040,7 @@ I shrug. “They’ll manage.”
 
 Five nights later, Liam and I stand on the deck with Davy, Alex, and Peter. Gavin and Giorgi have gone to get Henry and Lisette. Davy was right in saying we should bring Lisette, and if we’re bringing her, then Henry is an obvious choice as well. We didn’t tell either of them beforehand, which is why Gavin and Giorgi are fetching them now.
 
-There’s a strong wind coming from the east, and the water is choppy. Lewis is going to get in as close to the shore of the cape as the barquentine can manage, but we’ll be rowing the dinghy a decent way, and we need to get the timing right. I am waiting *very* impatiently.
+There’s a strong wind coming from the east, and the water is choppy. Lewis is going to get in as close to the shore of the cape as the barquentine can manage, but we’ll be rowing the dinghy a decent way, and we need to get the timing right. I’m waiting *very* impatiently.
 
 A few minutes later Gavin and Lisette appear, and another minute later, Giorgi and Henry follow. The dinghy is already in the water, and we start climbing down into it. Gavin first, followed by Lisette, Giorgi, then Henry. Peter goes next, and Liam follows him. Then Alex, and Davy.
 
@@ -2054,7 +2054,7 @@ Seconds later, I’m joining the others in the dinghy. Alex and Peter take up th
 
 “Not sure,” I tell him, sliding it into my pack. It’s too dark to read anything now. There’s a new moon and the sky has a thick, low layer of clouds covering the stars.
 
-Fifteen minutes later, we make it to the shore. So far, so good, but I know it’s only a matter of time and probably not much at that. Eventually she’s bound to notice Liam’s getting further away from her, and when she does…
+Fifteen minutes later, we make it to the shore. So far, so good, but I know it’s only a matter of time and probably not much at that. Eventually, she’s bound to notice Liam’s getting further away from her, and when she does…
 
 “Let’s move,” I tell the others. “We’ve got a long way to walk, and the sooner we make it back, the better.”
 
@@ -2080,13 +2080,13 @@ I hear Liam take a ragged breath that turns into a strangled gasp after we’ve 
 
 *She’s not going to kill him. She’s not going to kill him.* I repeat to myself, again and again, willing it to be true. I wish I was more sure, as one minute stretches to two. And then two minutes stretches to three. I feel my own chest tightening, and begin to worry I was wrong, when he finally takes a breath. As he does, I let out the breath I was holding, and slowly sink to my knees.
 
-“We’ll stay here until he wakes up,” I tell everyone else shortly.
+“We’ll stay here until he wakes up,” I tell everyone else, shortly.
 
 “That was close, sis,” Alex says softly as he settles beside me.
 
 I only nod, because I’m not sure I can say anything else without my voice shaking and giving me away. I take my pack and slide it under Liam’s head, as Alex helps me move him onto his back.
 
-“He’ll be fine,” Alex says.
+“He’ll be fine,” Alex reassures me.
 
 I simply nod, and curl up next to Liam, hating that I’m the sort of person who’s willing to gamble with his life.
 
@@ -2108,7 +2108,7 @@ At some point, I must have fallen asleep because daylight has replaced the slow 
 
 “As long as you’ll actually talk to me about it later.”
 
-I nod and reach for my pack. Now that it’s daylight, I want to see what the paper Lewis handed me has on it. Unrolling it, I see it’s a chart of the land where we are, and he marked out a route back to Branton that looks like it will be faster than what I likely would have picked with no reference material to go off of.
+I nod and reach for my pack. Now that it’s daylight, I want to see what the paper Lewis handed me has on it. Unrolling it, I see it’s a chart of the land where we are, and he marked out a route back to Branton which looks like it will be faster than what I likely would have picked with no reference material to go off of.
 
 “Anyone have a compass?” I ask. I could probably wing it well enough without one, but having one would definitely be better.
 
@@ -2122,9 +2122,9 @@ I nod and reach for my pack. Now that it’s daylight, I want to see what the pa
 
 “We’ll need food. Giorgi and Gavin set snares after we stopped.”
 
-“Ah. Good idea.” I don’t bother mentioning I could simply lure some animals to their deaths, because it *was* a good idea, and I don’t know how long it would have taken for me to get hungry enough to bother. Certainly well after everyone else. It also seems like it’s probably best to keep that knowledge to myself for now.
+“Ah. Good idea.” I don’t bother mentioning I could simply lure some animals to their deaths, because it *was* a good idea, and I don’t know how long it would have taken for me to get hungry enough to bother. Certainly well after everyone else. It also seems like it’s probably best to keep that information to myself for now.
 
-I should have them show me how the snares work next time we stop. Could be useful.
+I should have them show me how the snares work next time we stop, though. Could be useful.
 
 Ten or fifteen minutes later, the three of them are filtering back in, carrying five rabbits. Definitely useful. They skin and butcher the rabbits quickly, and within the hour we’re all eating. I’m studying the chart Lewis left me, and even on the shortened route he mapped out, it leaves us about four hundred miles to get back to Branton. If we manage twenty miles a day, it’ll take us twenty days to get back. That’s too long. At twenty-five miles a day, we’ll make it back in sixteen days, which is better but still longer than I would like. Ideally, we would be back now.
 
@@ -2140,7 +2140,7 @@ I sigh internally. I think I was hoping she’d say no, and back out. Maybe she 
 
 “Let’s go,” I say as soon as everyone is done eating.
 
-The terrain is rough. We’re not quite bushwhacking, but we’re not far off from it either. We’re probably covering about two and half miles an hour, so we’ll be hiking into the dark, which means we’ll be moving even slower. All in all, it’ll probably take us fourteen hours to cover the twenty-five miles, and that’s if we don’t stop for breaks. I try to increase the pace, but in less than an hour, the others are telling me to slow down.
+The terrain is rough. We’re not quite bushwhacking, but we’re not far off from it either. We’re probably covering about two and a half miles an hour, so we’ll be hiking into the dark, which means we’ll be moving even slower. All in all, it’ll probably take us fourteen hours to cover the twenty-five miles, and that’s if we don’t stop for breaks. I try to increase the pace, but in less than an hour, the others are telling me to slow down.
 
 ### 10 - King of Pain
 

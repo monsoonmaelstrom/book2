@@ -1686,7 +1686,7 @@ The days on ship go by in a monotonous succession, where one day is much the sam
 
 I’m sure Liam has noticed, but I don’t think I can explain this growing dread—the unease that has me steps away from a panic attack every second I’m awake. Liam and Alex have been talking about it. About me. And about Davy. Davy’s been withdrawn since his mother appeared, and we’ve spent more than our fair share of nights atop the main yard, sitting together in silence. Usually drinking. Occasionally not. Lewis has given up and told the rest of the crew to leave us be. I think he’s decided it’s the safest course of action for all parties. He’s not wrong.
 
-I know Liam and Alex both want us to talk. But neither Davy nor I want to. Or are ready to. Or able to.
+I know Liam and Alex both want us to talk to them. But neither Davy nor I want to. Or are ready to. Or able to.
 
 We’re all a little frustrated with each other, and the close quarters aren’t helping. I think everyone else is experiencing their own mixture of boredom and frustration too. Frustration with my mother’s classes. Frustration with each other. Boredom due to the sameness of every day. We have at least another two weeks. We all need some space to think and a little room to breathe. And with the exception of the time Davy and I are spending sitting in the rigging, we’re not getting it.
 
@@ -1706,7 +1706,7 @@ I quietly enter the cabin Liam and I are sharing, shutting the door softly behin
 
 “Sorry, I would have come sooner if I’d known.”
 
-“It’s okay,” he murmurs softly into my hair.
+“It’s okay,” he murmurs into my hair.
 
 “Why can’t you sleep?” I ask him.
 
@@ -1716,7 +1716,7 @@ I quietly enter the cabin Liam and I are sharing, shutting the door softly behin
 
 “Is that what’s going on with you?” he asks, as he pushes my hair back from where it’s fallen into my face, letting his fingers skim across my cheek.
 
-“Yes. No. I don’t know,” I sigh, and say again, “I don’t know. The dread it’s bigger than that. It’s all this stuff with my mother and what she’s teaching everyone.”
+“Yes. No. I don’t know,” I sigh, and say again, “I don’t know. The dread—it’s bigger than that. It’s all this stuff with my mother and what she’s teaching everyone.”
 
 “What do you mean?”
 
@@ -1746,7 +1746,7 @@ The next morning, Lisette finds me standing behind Lewis. I immediately realize 
 
 “What are these markings on the chart?” I ask Lewis, pointing to an area between the coast of the continent and Kebdain, a large island that’s probably close to a fifteenth the size of the continent.
 
-Lewis glances over to see what I’m pointing at. “Currents meet there. There’s a cold current flowing south and a warm one moving north east. Makes the area dangerous.”
+Lewis glances over to see what I’m pointing at. “Currents meet there. There’s a cold current flowing south and a warm one moving northeast. Makes the area dangerous.”
 
 “Do we sail through it or go around?”
 
@@ -1780,11 +1780,11 @@ It’s true. I’m learning about sailing, and charts, and navigation. But I’m
 
 “This,” I say, gesturing to the ship, Lisette, myself. All of it. “You must have some idea what we’re on about.”
 
-“I know how to mind my business,” he tells me. Clearly wanting to put an end to this particular topic. I decide I’ll let him. For now.
+“I know how to mind my business,” he tells me, clearly wanting to put an end to this particular topic. I decide I’ll let him. For now.
 
-“What do you want, Lisette?” I finally ask her, since she clearly has something on her mind and isn’t going to broach it on her own.
+“What do you want, Lisette?” I finally ask her, since she obviously has something on her mind and isn’t going to broach it on her own.
 
-“I want you to do it,” she said quickly, her hands clenched into fists.
+“I want you to do it,” she says quickly, her hands clenched into fists.
 
 “You’re sure?” I ask. “Because you don’t look sure.”
 
@@ -1806,7 +1806,7 @@ It’s true. I’m learning about sailing, and charts, and navigation. But I’m
 
 “Hah!” I snort as I observe the look Lewis gives her. “Well, he certainly won’t be teaching *you* to read the charts. Also, if you think it’s not his ship, you haven’t been paying attention.”
 
-“It’s not my ship,” Lewis says.
+“It’s not my ship,” Lewis agrees.
 
 “Please. This isn’t your ship the same way these aren’t my people,” I tell him flatly.
 
@@ -1820,7 +1820,9 @@ I find her in the galley, already waiting. Alex, Davy, Liam, and Christine are a
 
 “When we return to Branton, you and Davy will gather your things. Then we will all be journeying from Branton to Corriven to take care of the administrative details. From Corriven, you and Davy will go to Dairuvar. Christine will accompany you. Alex and I will go to Avonare,” she says, staring at me.
 
-“Fine,” I answer. I knew this was coming. I’ve been waiting. It’s not fine.
+“Fine,” I answer. I knew this was coming. I’ve been waiting.
+
+It’s not fine.
 
 “Good,” she remarks, clearly having expected me to argue with her. “Very well. That will be all.”
 
@@ -1838,7 +1840,7 @@ I shake my head at him. And gesture for them all to follow me, and then I go to 
 
 This earns me several peculiar looks, but they get up, and the seven of us walk toward the helm.
 
-“Hey, Lewis. You said you wanted to talk to these three about spending so much time lying about on your decks,” I say as we approach.
+“Hey, Lewis. You said you wanted to talk to these three about spending so much time lying about on your deck,” I say as we approach.
 
 Lewis raises his eyebrows, having definitely said no such thing.
 
@@ -1864,7 +1866,7 @@ Alex visibly breathes a sigh of relief. “So you haven’t been spending all yo
 
 “Yes.”
 
-“Just the four of us?” Liam asks.
+“Just the four of us?” Liam questions.
 
 “Anyone you don’t mind bringing to the flat, because that’s where we’re all going to need to go.”
 
@@ -1876,7 +1878,7 @@ Liam looks at Alex, seeking his opinion on Peter, I guess.
 
 “Yeah, Peter too,” Alex confirms.
 
-“What about Henry, Lisette, and Amelia?” I ask, before quickly stating, “We’re *not* taking Michael.”
+“What about Henry, Lisette, and Amelia?” I inquire, before quickly stating, “We’re *not* taking Michael.”
 
 “Why not Michael?” Liam asks, and Davy looks curious as well.
 
@@ -1884,7 +1886,7 @@ I sigh. “He’s been sleeping with Christine.”
 
 “Go figure,” Davy mutters darkly.
 
-“Not Amelia either then. She’s a bit unpredictable at the best of times, but with her loyalties divided like that? No,” Liam tells me.
+“Not Amelia either, then. She’s a bit unpredictable at the best of times, but with her loyalties divided like that? No,” Liam tells me.
 
 “And Henry and Lisette?”
 
@@ -1940,7 +1942,7 @@ I sigh.
 
 “I’m pretty sure I can,” I say softly.
 
-“Good. Then when you do, you should make doing so contingent upon letting you do to her what you did to the deer. No,” he says quickly, “don’t look at me like that. She’ll agree. You won’t be taking anything she isn’t willing to offer.”
+“Good. Then when you do, you should make doing it contingent upon letting you do to her what you did to the deer. No,” he says quickly, “don’t look at me like that. She’ll agree. You won’t be taking anything she isn’t willing to offer.”
 
 “I know. I don’t have to like it though.”
 
@@ -1986,11 +1988,11 @@ I find Lewis at the helm, because where else would he be?
 
 “That’s what I’m afraid of,” I mutter. “You never answered me earlier.”
 
-“Didn’t I?” he responds, notably not asking what he neglected to answer earlier.
+“Didn’t I?” he responds, notably not asking what he neglected to answer.
 
 “You didn’t.” I wait silently, just off his shoulder.
 
-Eventually he sighs. “As far as I can tell, you don’t particularly seem to want to be here. Or rather, here with these people. Especially the one who looks like you.”
+Eventually, he sighs. “As far as I can tell, you don’t particularly seem to want to be here. Or rather, here with these people. Especially the one who looks like you.”
 
 “My mother,” I say nodding.
 

@@ -1596,7 +1596,7 @@ I walk towards the stern, and lean on the railing once I find a spot with no one
 
 ----
 
-It’s a bit after noon, almost exactly forty-eight hours later, that we anchor in a protected cove, and a dinghy begins rowing to shore. Lewis knows what he’s about. I’ll give him that.
+It’s a bit after noon, almost exactly forty-eight hours later, when we anchor in a protected cove, and a dinghy begins rowing to shore. Lewis knows what he’s about. I’ll give him that.
 
 I wait, staring over the port railing, waiting for chaos incarnate to appear. Alex and Liam stand next to me, and the look Alex wears is as grim as my own. Liam has no idea what’s coming.
 
@@ -1620,7 +1620,7 @@ It’s been fifteen years since he last saw her. The last time she dumped him wi
 
 We fall back into silence as the dinghy begins rowing back toward the ship. Another ten minutes and it’s coming alongside the ship and she’s climbing aboard.
 
-She looks older than the last time I saw her, with silver starting to thread through the same dark curls Davy has. She’s still drop dead gorgeous though. When she finally makes it to the deck, I notice we’re now matched in height. She’ll be the only other person on this ship not having to watch her head as she moves about. Shame.
+She looks older than the last time I saw her, with silver starting to thread through the same dark curls Davy has. She’s still drop dead gorgeous though. When she finally makes it to the deck, I notice we’re now matched in height. She’ll be the only other person on this ship who doesn’t have to watch her head as she moves about. Shame.
 
 “Hazel! My darling!” Christine says as she wraps her arms around me. I don’t return her embrace.
 
@@ -1634,7 +1634,7 @@ One of the ship’s crew comes along to take her to her room, and she leaves wit
 
 “Well, shall we go warn Davy she’s here?”
 
-Alex nods and we go below deck. We find a very drunk Davy in the galley with Gavin. At some point between when I saw him earlier this morning and now, he’s cut off all his hair. What was three or four inches of curls is now no longer than the width of a finger. It actually looks better than I would have expected.
+Alex nods, and we go below deck. We find a very drunk Davy in the galley with Gavin. At some point between when I saw him earlier this morning and now, he’s cut off all his hair. What was three or four inches of curls is now no longer than the width of a finger. It actually looks better than I would have expected.
 
 “Nice hair. I like it,” I tell him.
 
@@ -1664,7 +1664,7 @@ Alex nods and we go below deck. We find a very drunk Davy in the galley with Gav
 
 “Ugh. I think I might be sick,” Davy mumbles.
 
-I grab an empty pot and shove it at him. “Let’s go get some air,” I say, sliding under his shoulder and relieving Gavin. Slowly we make our way topside. I lead us toward the fourth mast and sit next to it, since I don’t want Davy anywhere near the railings.
+I grab an empty pot and shove it at him. “Let’s go get some air,” I say, sliding under his shoulder and relieving Gavin. Slowly we make our way topside. I lead us toward the fourth mast and we sit next to it, since I don’t want Davy anywhere near the railings.
 
 “Did she ask about me?” he asks quietly, with his head between his knees.
 
@@ -1674,9 +1674,7 @@ Somehow, he manages to slump a little bit more.
 
 “I shouldn’t care,” he says. “But I do.”
 
-“I know,” I say softly. I don’t need to tell him that his mother is a terrible person. He already knows. It doesn’t matter though.
-
-“I really do like the hair. It suits you.” We sit in silence for a while before I ask, “Are you going to be okay?”
+“I know,” I say softly. I don’t need to tell him that his mother is a terrible person. He already knows. It doesn’t matter though. “I really do like the hair. It suits you.” We sit in silence for a while before I ask, “Are you going to be okay?”
 
 “I’ll be fine,” he tells me. “We’re always fine, right?”
 

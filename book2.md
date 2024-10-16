@@ -444,7 +444,7 @@ He nods.
 
 ### 3 - Heathens
 
-An hour and a half later, Liam, Davy and I are standing in the stables.
+An hour and a half later, Liam, Davy, and I are standing in the stables.
 
 “I figure we’ll try this here, before we leave,” I tell Liam. “It’s similar to the rings, but instead of heat, it’s only energy. We’ll have you try it with Davy first since the way your magic interacts with mine seems… volatile.”
 
@@ -464,7 +464,7 @@ He nods, and puts his hand up to Davy’s. Almost immediately, Davy yanks his ha
 
 “Less,” Davy says, and extends his hand back to Liam’s. After a moment, he says, “That’s better.”
 
-“So this energy,” I explain, “it’s coming from you. But you’re not going to want to use your own energy for a thirty mile horse ride. This is where pulling energy out of the heat in the air is useful. You’ve seen me do it before, yeah?”
+“So this energy,” I explain, “it’s coming from you. But you’re not going to want to use your own energy for a thirty mile horse ride. This is where pulling energy from the heat in the air is useful. You’ve seen me do it before, yeah?”
 
 “Yeah, but it doesn’t mean I can do it,” Liam says skeptically.
 
@@ -484,7 +484,7 @@ They each put their hands back up and the air cools a little bit more, but Davy 
 
 “That’s… I’m supposed to do that for thirty miles?” Liam asks incredulously.
 
-I shrug. “Do it for however long you think you can, and then I’ll pick it up after that. It gets easier the more you do it. Eventually you should be able to do it without thinking. Okay. Let’s go,” I say as I lead my horse out.
+I shrug. “Do it for however long you think you can, and then I’ll pick it up after that. It gets easier the more you do it. Eventually, you should be able to do it without thinking. Okay. Let’s go,” I say as I lead my horse out.
 
 ----
 
@@ -498,7 +498,7 @@ The door is opened by a middle-aged woman. “Davy Iverson, to see Amelia Price,
 
 “Guess we’re not hiding anymore,” I mutter.
 
-“At this point,” Davy says over his shoulder, “doesn’t seem like there’s much reason to. It’s all coming out, so we may as well use it to our advantage as much as we can.”
+“At this point,” Davy says over his shoulder, “it doesn’t seem like there’s much reason to. It’s all coming out, so we may as well use it to our advantage as much as we can.”
 
 The entire concept makes me nauseous. Liam, noting my discomfort, takes my hand in his and squeezes it slightly. I move a little bit closer to him, and try not to dread a future that hasn’t yet happened too much.
 
@@ -588,7 +588,7 @@ I find myself liking this conversation more and more by the second.
 
 “Well,” I interject, “according to my mother, your family is good friends with mine, and it is imperative to her that she returns quickly.” I’m interested to see what his response will be.
 
-I can practically feel Davy glaring at me, but he can shove it. One way or another we’ll leave with what we need, and if I can do some fact checking in the process, more’s the better.
+I can practically feel Davy glaring at me, but he can shove it. One way or another, we’ll leave with what we need, and if I can do some fact checking in the process, more’s the better.
 
 “What my cousin means to say,” Davy begins, and now I’m the one glaring.
 
@@ -664,7 +664,7 @@ Instead I say, “What, exactly, are you asking for?”
 
 “They need to be taught magic. Both of them. And there’s no one here qualified to do it.”
 
-The hypocrisy of this request is ridiculous. The Vernes have rigorously enforced the execution of Firgasu’s citizens for using magic for longer than I’ve been alive. They’ve been perfectly okay with killing off their own people right up until the moment they see the need for magic, and now they suddenly want to learn how do it. Fuck them all.
+The hypocrisy of this request is ridiculous. The Vernes have rigorously enforced the execution of Firgasu’s citizens for using magic for longer than I’ve been alive. They’ve been perfectly okay with killing off their own people right up until the moment they see the need for magic, and now they suddenly want to learn how to do it. Fuck them all.
 
 “Do you understand that you are asking for my mother to torture your grandchildren?” I ask to be clear.
 
@@ -680,7 +680,7 @@ I see her swallow.
 
 My eyes dart to Davy, and he lifts his shirt, displaying a two inch scar near his right kidney.
 
-“That’s what you’re asking for,” I tell Robert, John, but mostly Amelia.
+“That’s what you’re asking for,” I tell Robert and John, but mostly Amelia.
 
 “And yet you survived,” Robert says, echoing Amelia’s earlier statement.
 

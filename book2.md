@@ -4,7 +4,7 @@
 
 ### 1 - Blue Monday
 
-It’s two days after the dinner party where I didn’t kill my mother. Two miserable days. It seems like everyone else is falling in line. My mother says, *‘Jump!’* and they’re quick to ask *‘How high?’*
+It’s two days after the dinner party where I didn’t kill my mother. Two miserable days. It seems like everyone else is falling in line. My mother says, *‘Jump!’* and they’re quick to ask, *‘How high?’*
 
 It’s a new order.
 
@@ -62,7 +62,7 @@ I manage to refrain from correcting her as I take up a position between Liam and
 
 “I think Hazel has mentioned she prefers to be called by her name, Alexandria,” Peter tells her.
 
-I find myself an odd mixture of surprised, confused, and grateful—surprised that anyone else bothered to say something, confused it was Peter, and grateful that it was someone other than me, since she clearly doesn’t listen to or care what I have to say.
+I find myself an odd mixture of surprised, confused, and grateful—surprised that anyone else bothered to say something, confused it was Peter, and grateful that it was someone other than me, since she clearly doesn’t listen to, or care, what I have to say.
 
 She says nothing in response, and only levels a cold, appraising look at Peter.
 
@@ -76,7 +76,7 @@ She continues staring Peter down, but he doesn’t look away. He mildly matches 
 
 “Children,” she begins, and I hear Gavin smothering a laugh, which quickly spreads to the rest of us and suddenly, as we all stand there laughing, I feel better than I have in days. Weeks even. Maybe since we left Branton.
 
-A loud crack echoes through the clearing, and my mirth vanishes as quickly as it appeared. I look over and see a red handprint darkening Gavin’s left cheek. Before I can think better of it, I’m moving toward her. I grab her right shoulder and spin her toward me at the same time I shove, throwing her off balance enough so that she takes a step back, and trips over the foot I’ve planted in her path, sending her sprawling onto her back. I follow her down onto the ground, driving a knee into her stomach, and placing my forearm across her throat. I note that her eyes have widened in shock or fear. I’m not sure which, and don’t particularly care.
+A loud crack echoes through the clearing, and my mirth vanishes as quickly as it appeared. I look over and see a red handprint darkening Gavin’s left cheek. Before I can think better of it, I’m moving toward her. I grab her right shoulder and spin her toward me at the same time I shove, throwing her off balance enough so that she takes a step back, and trips over the foot I’ve planted in her path, sending her sprawling onto her back. I follow her down onto the ground, driving a knee into her stomach, and placing my forearm across her throat. I note that her eyes have widened in shock or fear. I’m not sure which, and I don’t particularly care.
 
 “You do *not* get to hurt my friends,” I tell her flatly, before slowly withdrawing my arm. “If you want to teach them, and they agree, fine.”
 
@@ -176,7 +176,7 @@ I nod. “We need to get back to Branton. Sooner rather than later. The sooner w
 
 Davy nods. “Lucky we’re going south though. You can’t even sail the other direction this time of year.”
 
-“We clearly have different definitions of ‘lucky’,” I tell him drily.
+“We clearly have different definitions of ‘lucky,’” I tell him drily.
 
 “What’s wrong with taking a ship?” Liam asks.
 
@@ -352,7 +352,7 @@ She takes a moment to think about it, I guess, and then walks over to us. She st
 
 “Seriously? You weren’t just screwing with them?”
 
-“No, daughter, I was not ‘just screwing with them’,” she says in a fair imitation of me.
+“No, daughter, I was not ‘just screwing with them,’” she says in a fair imitation of me.
 
 “Hazel,” Peter and I both tell her at the same time.
 
@@ -604,7 +604,7 @@ That is definitely *not* what I mean to say, but I bite my tongue and don’t co
 
 Robert looks at me, and I swear he looks amused. “We have a mutual goal. A common enemy, if you will,” he responds. “We are allies, of a sort, I suppose.”
 
-“Interesting,” I say softly. She was telling the truth. In a manner of speaking. “How long have you been ‘allies’?”
+“Interesting,” I say softly. She was telling the truth. In a manner of speaking. “How long have you been ‘allies?’”
 
 “Many years,” he says, waving a hand blithely. “Your father,” he says, and whatever reaction he sees on my face seems to confirm his suspicion, since he nods before continuing, “tends to have that effect on people.”
 
@@ -740,7 +740,7 @@ We arrive back in Leisch late in the evening, and the house appears dark.
 
 “What do you mean?”
 
-“She wanted me at her ‘training’, and I chose to go to Lusigan instead. There will be hell to pay, I’m sure.”
+“She wanted me at her ‘training,’ and I chose to go to Lusigan instead. There will be hell to pay, I’m sure.”
 
 “You’re an adult, she doesn’t dictate where you go.”
 
@@ -3028,7 +3028,7 @@ We enter the city on foot without Peter, Giorgi, and Gavin. Even though this put
 
 Apparently at some point over the last five years, and I couldn’t even say when it happened, I started to actually consider Branton home, and not just the place I’m currently living. I think it helps that it’s one of the places I never lived, or even visited, as a child. I don’t have a whole host of negative memories associated with it. There’s also the fact that it, like Corriven, is not the territory of any polity. It simultaneously belongs to all of them and none of them. It is, effectively, a free city-state.
 
-The war college is similar. Each polity has its own standing army—collectively referred to as the armies of the Allied Polities—and then there is the Army of the Allied Polities. When there is an external threat, the armies of the Allied Polities fall under the command of the Army of the Allied Polities so that it acts as one cohesive force. After the threat has been addressed, the armies of the Allied Polities return to their individual polity’s command. This allows the Army of the Allied Polities to expand and contract as needed, while possessing the ability to have a trained military force during times which call for rapid expansion. However, this really only works for external threats, hence, the term ‘allied’. If you have an internal threat, you still end up with what is functionally a civil war. And Dairuvar no longer wants an alliance. They want an empire.
+The war college is similar. Each polity has its own standing army—collectively referred to as the armies of the Allied Polities—and then there is the Army of the Allied Polities. When there is an external threat, the armies of the Allied Polities fall under the command of the Army of the Allied Polities so that it acts as one cohesive force. After the threat has been addressed, the armies of the Allied Polities return to their individual polity’s command. This allows the Army of the Allied Polities to expand and contract as needed, while possessing the ability to have a trained military force during times which call for rapid expansion. However, this really only works for external threats, hence, the term ‘allied.’ If you have an internal threat, you still end up with what is functionally a civil war. And Dairuvar no longer wants an alliance. They want an empire.
 
 However, despite General Iverson having assumed the role of commanding General of the Army of the Allied Polities—something which never should have been permitted, as far as any reasonable thinking person is concerned, since he’s also the ruler of Dairuvar polity—the Army of the Allied Polities doesn’t maintain standing forces in individual polities, and according to a variety of treaties and other legal documents, it *can’t*. Effectively, this means that as long as I am officially a student of the war college or a member of the Army of the Allied Polities, neither General Iverson nor my mother can legally force me to Dairuvar. It’s a small protection, but it *is* a protection. That’s assuming I can go back to the war college, and they don’t end up hunting me as well.
 
@@ -3084,7 +3084,7 @@ I wait until the barman comes and sets another pint in front of me. Finally, I s
 
 “How?”
 
-“I mean… orders and enrollment documents are merely paper. If you know what the paper looks like it’s pretty easy to add one more that looks like all the rest and says, ‘Hazel Raidane’,” I say with a shrug.
+“I mean… orders and enrollment documents are merely paper. If you know what the paper looks like it’s pretty easy to add one more that looks like all the rest and says, ‘Hazel Raidane,’” I say with a shrug.
 
 “So you forged your way into the war college?” Liam hisses.
 
@@ -3690,7 +3690,7 @@ Reese’s eyes widen slightly. “No. She’s back?”
 
 “Yes, and you sound… worried? Which would make sense if you were me, but Peter says you used to be best friends.”
 
-“Emphasis on the ‘used to’.”
+“Emphasis on the ‘used to.’”
 
 “So what happened?”
 
@@ -3934,7 +3934,7 @@ She nods.
 
 She shrugs. “I still say I could take you.”
 
-I look her up and down, considering. I’ve honestly never paid much attention to Amelia. If I’ve thought about her at all—and mostly I haven’t—it’s been in irritation, often relegating her to the role of ‘Peter’s ex’, which is kind of shitty of me, but we didn’t exactly get off on the right foot, and then it escalated. Then I had bigger problems, and then she was gone. After that, her stupid cousin was causing problems. All of which is to say, I have no idea what I think of Amelia as a person beyond any of that. I have no real idea what she’s capable of.
+I look her up and down, considering. I’ve honestly never paid much attention to Amelia. If I’ve thought about her at all—and mostly I haven’t—it’s been in irritation, often relegating her to the role of ‘Peter’s ex,’ which is kind of shitty of me, but we didn’t exactly get off on the right foot, and then it escalated. Then I had bigger problems, and then she was gone. After that, her stupid cousin was causing problems. All of which is to say, I have no idea what I think of Amelia as a person beyond any of that. I have no real idea what she’s capable of.
 
 I’m angry at myself for about a dozen other reasons right now, so let’s add that to the list as well. But at least this one I can address if I start making myself treat Amelia like a person instead of an annoyance.
 
@@ -6162,7 +6162,7 @@ After a while, I pull out Peter’s journal and begin to flip through it while w
 
 “Nothing,” I answer.
 
-“You seem pretty interested in it for ‘nothing’.”
+“You seem pretty interested in it for ‘nothing.’”
 
 I shrug, but don’t answer, and she goes back to watching the shop.
 
@@ -6334,7 +6334,7 @@ Davy heaves the door shut, metal groaning in protest as he does, finally droppin
 
 “Sorry,” I wince slightly as I say it. “The building no longer exactly… exists.”
 
-“Define ‘no longer exactly exists’,” Gavin says.
+“Define ‘no longer exactly exists,’” Gavin says.
 
 “Went up in flames?” I try.
 
@@ -6554,7 +6554,7 @@ We find a vendor who’s just opening for the day. Fortunately, he’s not selli
 
 “Seriously. I don’t have any plans.” I tell him, which isn’t *exactly* true. But it's mostly true. “I have ideas about some ways to possibly avoid dying.”
 
-I run through possible scenarios in my head, over and over, but all I see are flaws in all of them. I consider aiming for ‘trust me, I’m harmless’, but after the past twenty four hours, I think we’re well past that. He knows I’m not harmless, so I may as well aim for every possible advantage. Only any advantage I have time to preemptively give myself, he has time to counteract. That’s the problem with magic: whatever you can do, there’s probably someone else who can do it too. That’s why no sensible person wages wars using magic. All you’re going to get with that is complete and utter destruction.
+I run through possible scenarios in my head, over and over, but all I see are flaws in all of them. I consider aiming for ‘trust me, I’m harmless,’ but after the past twenty four hours, I think we’re well past that. He knows I’m not harmless, so I may as well aim for every possible advantage. Only any advantage I have time to preemptively give myself, he has time to counteract. That’s the problem with magic: whatever you can do, there’s probably someone else who can do it too. That’s why no sensible person wages wars using magic. All you’re going to get with that is complete and utter destruction.
 
 I’m going around in circles and getting nowhere. I need a change of perspective. I need to think about something else.
 

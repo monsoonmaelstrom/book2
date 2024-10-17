@@ -3216,9 +3216,9 @@ It’s technically true. Nicely done, Alex.
 
 ### 16 - The Boys Are Back in Town
 
-Alex, Giorgi, and I broke off from the others after Amelia left. I need to retrieve the copy of Liam’s key that I made what feels like forever ago. Fortunately, I didn’t leave it in my room at the college, unfortunately I left it at Davy’s. Well, wedged into some of the brickwork near the roof of his building. I think there’s a solid chance someone could be watching Davy’s flat, which is why I’m bringing Alex and Giorgi with me. Alex had basically been living at Davy’s before we left, so hopefully he’ll notice anything out of the ordinary I might miss. And no one should be looking for Giorgi at all. I didn’t bring Davy because, supposedly, Iverson wants me *and* Davy, so at least this way, if it all goes pear shaped, he doesn’t get both of us.
+Alex, Giorgi, and I break off from the others after Amelia leaves. I need to retrieve the copy of Liam’s key that I made what feels like forever ago. Fortunately, I didn’t leave it in my room at the college, unfortunately I left it at Davy’s. Well, wedged into some of the brickwork near the roof of his building. I think there’s a solid chance someone could be watching Davy’s flat, which is why I’m bringing Alex and Giorgi with me. Alex had more or less been living at Davy’s before we left, so hopefully he’ll notice anything out of the ordinary I might miss. And no one should be looking for Giorgi at all. I didn’t bring Davy because, supposedly, Iverson wants me *and* Davy, so at least this way, if it all goes pear shaped, he doesn’t get both of us.
 
-We’ve been watching the building from a rooftop a couple of blocks away for about half an hour, and haven’t seen anything. As far as any of us can tell, everything is completely normal. I don’t buy it though. If I was Iverson, or even my mother, I would have found this place and I would be watching it. Davy and I did our best to not be noticed, but it’s not like we were ghosts. I’m sure we left traces of ourselves all over the city that someone could find if they really wanted to.
+We’ve been watching the building from a rooftop a couple of blocks away for about half an hour, and haven’t seen anything. As far as any of us can tell, everything is completely normal. I don’t buy it though. If I was Iverson, or even my mother, I would have found this place and I would be watching it. Davy and I did our best not to be noticed, but it’s not like we were ghosts. I’m sure we left traces of ourselves all over the city, which someone could find if they really wanted to.
 
 “What do you think?” Alex asks.
 
@@ -3228,27 +3228,27 @@ I sigh. “I don’t like it. Giorgi, what do you think about going to knock on 
 
 “Be ready to talk yourself out of it. Or run,” Alex tells him.
 
-Giorgi nods and disappears over the side of the building. A few minutes later, I see him approaching the building.
+Giorgi nods and disappears over the side of the building. A few minutes later, I see him approaching Davy’s building.
 
 “Curtains just moved,” Alex notes.
 
 “Damn.”
 
-Giorgi knocks but no one answers so he starts banging on the door. I think he’s shouting too, but whoever is in the flat isn’t taking the bait. After a few minutes Giorgi gives up and walks away.
+Giorgi knocks but no one answers, so he starts banging on the door. I think he’s shouting too, but whoever is in the flat isn’t taking the bait. After a few minutes, Giorgi gives up and walks away.
 
 It’s another fifteen minutes before he shows back up on the rooftop.
 
-“Pretty sure there’s someone in there,” he tells us.
+“Pretty sure there’s someone in there,” he informs us.
 
 “Yeah, I saw the curtains move,” Alex responds. “What do you want to do, Hazel?”
 
-“I still need to get that key. I’ll circle around a few blocks and go across the rooftops.”
+“I still need to get the key. I’ll circle around a few blocks and go across the rooftops.”
 
 “They’ll hear you when you hit the roof,” Alex tells me.
 
-I want to argue the point, that he didn’t hear me when I was on the roof, but I climbed up that time, I didn’t jump onto the roof.
+I want to argue the point—he didn’t hear me when I was on the roof, but I climbed up that time, I didn’t jump onto the roof.
 
-“Do you have a better idea?” I ask.
+“Do you have a better idea?” I question.
 
 “How mad do you think Davy would be about the windows?” Giorgi asks.
 
@@ -3280,13 +3280,13 @@ Giorgi nods.
 
 I’m waiting on the roof of the building next to Davy’s, listening for the sound of the first brick. So far, it’s all quiet. A few minutes go by, and then I hear shouting followed by the tinkling sound of glass shattering.
 
-*One.* The shouting resumes. *Two.* Giorgi knows how to put on a show. *Three.* I think he may have missed his calling as an actor. *Four.* Here goes nothing. *Five.* I jump. It sounds like the second brick hit the same moment as my feet. I hold still for a moment as the shouting resumes, and then begin creeping across the roof. I make it to the far side, and lean over the edge of the roof to the side of the building where there are some loose bricks. I gently pry them out, one by one, then grab the key. I don’t bother putting the bricks back. I creep back and jump back to the building I came from. Giorgi has stopped shouting, so I make my exit as quickly as I can.
+*One.* The shouting resumes. *Two.* Giorgi knows how to put on a show. *Three.* I think he may have missed his calling as an actor. *Four.* Here goes nothing. *Five.* I jump. It sounds like the second brick hit the same moment as my feet. I hold still for a moment as the shouting resumes, and then begin creeping across the roof. I make it to the far side, and lean over the edge of the roof to the side of the building where there are some loose bricks. I gently pry them out, one by one, then grab the key. I don’t bother putting the bricks back. I creep away and jump back to the building I came from. Giorgi has stopped shouting, so I make my exit as quickly as I can.
 
-By the time I make it back to the roof where we left Alex, Giorgi is already there.
+By the time I return to the roof where we left Alex, Giorgi is already there.
 
 “All good?” Alex asks.
 
-“Yeah. Now we need to make sure we’re not followed.”
+“Yeah. Now we need to make sure that we’re not followed.”
 
 “Any idea who was in the flat?”
 
@@ -3304,7 +3304,7 @@ Eventually we meet back up with the others, who left Gavin waiting to tell us th
 
 “Did you know your brother’s a surprisingly good actor?” I ask Gavin as we walk. “He plays the part of ‘angry man with brick’ pretty convincingly.”
 
-“Can’t say I’m surprised. So you were right then? Someone was watching the building?”
+“Can’t say I’m surprised. So you were right, then? Someone was watching the building?”
 
 “Yeah. Although they didn’t seem to know who Giorgi was. At least not by sight.”
 
@@ -3312,7 +3312,7 @@ We walk in silence for a bit until we reach the cafe.
 
 Everyone is sitting around drinking coffee when we walk in and I’m not sure I’ve ever been so jealous in my life. It feels like forever since I’ve had a cup of coffee.
 
-“Alright, we can go,” I say to everyone.
+“Alright, we can go,” I say to the group.
 
 “Or we can sit,” Alex says. “And we can all eat something too, since I’m guessing there’s not a stocked kitchen where we’re going.”
 
@@ -3320,7 +3320,7 @@ Liam shakes his head when he notices Alex looking at him.
 
 “Fine,” I grumble in agreement.
 
-“Did you eat yet, Gavin?” Alex asks.
+“Did you eat yet, Gavin?” Alex inquires.
 
 “Not yet, but even if I had, I could always eat again.”
 
@@ -3340,13 +3340,13 @@ When we reach the building, I hand my un-magicked key to Peter.
 
 “You’re not coming?” Peter asks.
 
-“We are, different key though. I’ll show you tomorrow. Meet back here at ten. I have no idea how knocking will work,” Liam says more to himself than anyone else but it earns several odd looks. It must be too late for questions, since no one asks for any clarification.
+“We are, different key though. I’ll show you tomorrow. Let’s meet back here at ten. I have no idea how knocking will work,” Liam says more to himself than anyone else but it earns him several odd looks. It must be too late for questions though, since no one asks for any clarification.
 
 “Alex, Davy, you’re with us tonight,” Liam states. “Peter, lock the door behind you after you go in.”
 
 Peter nods.
 
-“Well, this is all very weird,” Alex says.
+“Well, this is all very weird,” Alex comments.
 
 “You have no idea. Liam, let Davy open the door. But Davy, let Liam go up the stairs first.”
 
@@ -3354,21 +3354,21 @@ Davy nods and Liam passes him the key. Davy inserts the key into the lock, and t
 
 “Not mine,” I answer. Davy looks at Liam and I say, “Not his either.”
 
-“Whose then?”
+“Whose, then?”
 
 “We’re not sure.”
 
 Davy gives Liam a hard look.
 
-“Really,” Liam tells him. “I inherited the key. So I assume my parents’, but I don’t actually know. We’re going to try to find out.”
+“Really,” Liam informs him. “I inherited the key. So I assume my parents’, but I don’t actually know. We’re going to try to find out.”
 
-“Alex you’ve got to feel this,” Davy tells him moving back from the door.
+“Alex you’ve got to feel this,” Davy tells him, moving back from the door.
 
 Alex reaches out to touch the key. “Huh.”
 
-“Take it out of the door,” Davy tells him.
+“Take it out of the door,” Davy urges.
 
-“Now *that* is interesting,” Alex says once he removes the key.
+“Now, *that* is interesting,” Alex says once he removes the key.
 
 “Can we go in?” Liam asks, and he seems a little bit on edge. “We can talk about how interesting all this is inside, but we look really suspicious standing around in front of a door talking about how weird it is.”
 
@@ -3376,23 +3376,23 @@ Alex reaches out to touch the key. “Huh.”
 
 Once we walk through the door, Liam locks it behind us.
 
-“Wait here a second,” I say to Alex and Davy as Liam begins ascending the stairs and disarming the trip wires. “Okay, you can go now,” I tell them once he’s done all four.
+“Wait here a second,” I order Alex and Davy as Liam begins ascending the stairs and disarming the trip wires. “Okay, you can go now,” I tell them, once he’s done all four.
 
-Liam hands me the key as we walk past him and he sets about rearming them.
+Liam hands me the key as we walk past, and he sets about rearming them.
 
 “I don’t think we have any idea who Liam is,” Alex mutters to Davy as we continue going up the stairs. “I’m beginning to see why Hazel likes him so much.”
 
 I roll my eyes, but he’s probably right. You look at Liam and think you know what you’re getting, but then he does something that surprises you. So you reset your expectations, and once again, you think you know who Liam is, until he does the next thing you never saw coming.
 
-Once we get to the top of the staircase, I unlock the next door and let Alex and Davy go through while I wait for Liam. His hand brushes across mine as I pass back the key, invoking memories of the last time we were here. Without company. I sigh, and Liam grins as if he knows what I’m thinking. We go through and Liam locks this door behind us as well.
+Once we get to the top of the staircase, I unlock the next door and let Alex and Davy go through while I wait for Liam. His hand brushes across mine as I pass back the key, invoking memories of the last time we were here. Without company. I sigh, and Liam grins as if he knows what I’m thinking. We go through the door and Liam locks it behind us as well.
 
-“Okay, explain,” Alex says once we turn to face him. He and Davy have both taken seats at the table where. Nope. Not thinking about that.
+“Okay, explain,” Alex orders once we turn to face him. He and Davy have both taken seats at the table where— Nope. Not thinking about that.
 
 “The other key—the one I gave to Peter—is, at least as far as the physical shape of the key is concerned, identical to the key we used to get into this flat. But when that key opens the door from the street, the staircase only goes to the second floor. There’s no way to use that key to get to this flat.”
 
-“Is your key the only one which can open the door to this flat?” Davy asks eying the key currently in Liam’s hand.
+“Is your key the only one that can open the door to this flat?” Davy queries, eying the key currently in Liam’s hand.
 
-“As far as I know,” Liam says, passing it back to Davy.
+“As far as I know,” Liam answers, passing it back to Davy.
 
 Davy turns it over in his hands.
 
@@ -3400,9 +3400,9 @@ Davy turns it over in his hands.
 
 He nods without looking up.
 
-I wait while Davy continues to look at the key. After a few minutes he hands it to Alex. Alex sets it on the table when he’s done looking at it.
+I wait while Davy continues to look at the key. After a few minutes, he hands it to Alex. Alex sets it on the table when he’s done looking at it.
 
-“I don’t think one person did all this,” Davy says finally.
+“I don’t think one person did all this,” Davy states finally.
 
 “Yeah, I had wondered about that myself.”
 
@@ -3412,11 +3412,11 @@ Davy nods. “I think if we wanted to recreate this, it would take at least you 
 
 He nods.
 
-“What about tying the other key to this flat since all the magic already exists?” I ask.
+“What about tying the other key to this flat, since all the magic already exists?” I inquire.
 
-“I could probably figure it out in a few days,” he says.
+“I could probably figure it out in a few days,” he answers.
 
-“You think it’s close enough to figure out how to undo what she did?”
+“Do you think it’s close enough to figure out how to undo what she did?”
 
 “Maybe. I’ll have a better idea in a few days.”
 

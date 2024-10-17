@@ -2898,9 +2898,9 @@ Davy laughs.
 
 I lie in bed, curled next to Liam for what feels like hours, before finally giving up. Luckily, a defining characteristic of buildings everywhere is rooftops. I open the window and am able to stand on the sill and reach the eaves of the rooftop just enough to be able to pull myself up and over the edge. Definitely not the easiest maneuver, but I manage it.
 
-The night air is cool, with the last hints of winter giving way to spring, and it’s quiet. I lie back on the roof and stare up at the stars. I’m dreading tomorrow. My mother probably arrived in Branton at least two weeks ago, and who knows what she’s been doing since. It’s almost guaranteed Iverson knows about me, and knows she’s back, meaning both of them are going to be looking for me. Her return is probably also going to accelerate Dairuvar’s overall aggression toward the other polities, making war virtually a foregone conclusion. Add the fucking war college to that, who will definitely being looking for Liam, Henry and me—both on behalf of themselves, but likely also at General Iverson’s behest—and it’s going to be a nightmare.
+The night air is cool, with the last hints of winter giving way to spring. It’s quiet. I lie back on the roof and stare up at the stars. I’m dreading tomorrow. My mother probably arrived in Branton at least two weeks ago, and who knows what she’s been doing since. It’s almost guaranteed Iverson knows about me, and knows she’s back, meaning both of them are going to be looking for me. Her return is probably also going to accelerate Dairuvar’s overall aggression toward the other polities, making war virtually a foregone conclusion. Add the fucking war college to that, who will definitely be looking for Liam, Henry and me—both on behalf of themselves, but likely also at General Iverson’s behest—and it’s going to be a nightmare.
 
-I wish there was someone else like me. We need to test out exactly how well and how precisely magic can be sensed, especially in a crowded area like a city, but we basically need two of me to do it, and the closest we have is a combination of me and Alex, and me and Liam. Even conducting the tests has risks—mostly that someone figures out where we are, which would be… bad. Very, very bad. Until we have some idea of what’s going to get us caught, all magic needs to be done with the lightest of touches, and even that will still be akin to playing with fire.
+I wish there was someone else like me. We need to test out exactly how well and how precisely magic can be sensed, especially in a crowded area like a city, but we basically need two of me to do it, and the closest we have is a combination of me and Alex, and me and Liam. Even conducting the test has risks—mostly that someone figures out where we are, which would be… bad. Very, very bad. Until we have some idea of what’s going to get us caught, all magic needs to be done with the lightest of touches, and even that will still be akin to playing with fire.
 
 So yeah. We’ll only be hunted by two polities and the Army of the Allied Polities’ War College. And if they find out that I killed Lisette… Or *why* I killed Lisette.
 
@@ -2922,13 +2922,13 @@ Liam nods.
 
 “I promise I’m okay. You don’t have to sit up here with me.”
 
-“I know. Do you want me to leave?” he asks, and I hear more than a hint of vulnerability in the question.
+“I know. Do you want me to leave?” he inquires quietly, and I hear more than a hint of vulnerability in the question.
 
 “No,” I answer honestly. “I want you to stay, but only if you’re actually okay being up here.”
 
 He interlaces his fingers with mine in response. “What are you thinking about?”
 
-I sigh. “There are so many problems, and I don’t see any good solutions. Dairuvar is going to be hunting for me. My mother is going to be hunting for me. The war college is going to be hunting for all us, and if they find out about Lisette—”
+I sigh. “There are so many problems, and I don’t see any good solutions. Dairuvar is going to be hunting me. My mother is going to be hunting me. The war college is going to be hunting for all of us, and if they find out about Lisette—”
 
 “They won’t.”
 
@@ -2946,7 +2946,7 @@ I sigh, but he has a point.
 
 “How do you figure? Unless I kill both of them, and probably Christine too, I don’t see a solution.”
 
-“Give me a couple days. In the meantime, I doubt the war college will have any idea we’re back. I don’t think Iverson will tell them. As far as they’re concerned we’ll be somewhere in the mountains. When it comes time to tell them anything, we’ll tell them Lisette died in the pass.”
+“Give me a couple days. In the meantime, I doubt the war college will have any idea we’re back. I don’t think Iverson will tell them. As far as they’re concerned, we’ll be somewhere in the mountains. When it comes time to tell them anything, we’ll tell them Lisette died in the pass.”
 
 “What about Amelia?” I ask. “She’ll have been back for a couple of weeks, and she knows Lisette didn’t die in the pass.”
 
@@ -2976,11 +2976,11 @@ I can’t tell if he’s serious or not, but I think he might be.
 
 The next morning over breakfast Liam explains the situation with Amelia to Peter. Of course Peter understands right away why we need to talk with her.
 
-“She might not want to come,” Peter tells us.
+“She might not want to come,” Peter states.
 
 “Yeah, that’s what I said.”
 
-“You’ll figure it out,” Liam tells him.
+“You’ll figure it out,” Liam responds.
 
 Peter sighs. “I’m taking Gavin and Giorgi.”
 
@@ -2996,7 +2996,7 @@ I head up the stairs only to realize I have no idea what room anyone else is in.
 
 “Next door,” he tells me.
 
-“Thanks. Peter and Liam are downstairs. I think they want to talk to you and Giorgi,” I say as I head to the next door.
+“Thanks. Peter and Liam are downstairs. I think they want to talk to you and Giorgi,” I let him know, as I head to the next door.
 
 Davy opens the door right as I reach it and lift my hand to knock.
 
@@ -3004,7 +3004,7 @@ Davy opens the door right as I reach it and lift my hand to knock.
 
 “Yeah, well.” I shrug. “New day, new me, new problems. Peter wants to know if you can figure out how to acquire a few horses.”
 
-“You’re running errands for Peter, now?” Davy asks skeptically.
+“You’re running errands for Peter, now?” Davy questions skeptically.
 
 “I’m being nice to Liam.”
 

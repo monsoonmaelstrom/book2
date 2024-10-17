@@ -2380,7 +2380,7 @@ I grin. You can always count on Gavin to relay the most important information fi
 
 Davy appears and hands her a waterskin and some food. Acting like a real person instead of like Gavin and me, who I guess expected her to get up and get it herself. She quickly drains the waterskin. A few days of unconsciousness will do that to a person.
 
-After she eats what Davy handed her, she quickly begins messing with the fabric knot, doing nothing to quell my uneasiness. While the learning experience was worthwhile, and perhaps even necessary, I am increasingly feeling like I will live to regret this. But at the same time, I think had I not done it, Lisette would have found a way to make me regret that as well. Damned if I did and damned if I didn’t. Story of my life.
+After she eats what Davy handed her, she quickly begins messing with the fabric knot, doing nothing to quell my unease. While the learning experience was worthwhile, and perhaps even necessary, I am increasingly feeling like I will live to regret this. But at the same time, I think had I not done it, Lisette would have found a way to make me regret that as well. Damned if I did and damned if I didn’t. Story of my life.
 
 I get up and go to find Liam. He’s next to the stream we’ve stopped by for the night, with Alex and Peter. I think Liam and Peter are trying to work out how to catch some fish, and I think Alex is only there to laugh at them, which fair. And since I would sooner go hungry than eat fish, I’m not going to volunteer any tips either.
 
@@ -2452,9 +2452,9 @@ I look for Lisette, and find her fiddling with the knot, but she’s actually cl
 
 ### 12 - It’s Called Freefall
 
-We spend the next twelve days walking. It’s monotonous, but at least we’re doing something. Lisette peppers me with questions about magic throughout the process. I don’t think I’ve ever spent so much time talking about it in my life. To say she’s infatuated would be understating the matter.
+We spend the next twelve days walking. It’s monotonous, but at least we’re doing something. Lisette peppers me with questions about magic throughout the trek. I don’t think I’ve ever spent so much time talking about it in my life. To say she’s infatuated would be understating the matter.
 
-I’m doing my best to remain detached from the whole thing. Either she’s going to get herself killed, I’m going to kill her, or everything will work itself out, and there’s no reason to dwell on it now that I’ve established the basic parameters of the situation. Alex and Davy both know the situation, and I’m pretty sure Giorgi’s worked it out as well. I’m not sure about the others, but if they haven’t, they haven’t been paying attention.
+I’m doing my best to remain detached from the whole thing. Either she’s going to get herself killed, I’m going to kill her, or everything will work itself out. There’s no reason to dwell on it, now that I’ve established the basic parameters of the situation. Alex and Davy both know the situation, and I’m pretty sure Giorgi’s worked it out as well. I’m not sure about the others, but if they haven’t, they haven’t been paying attention.
 
 “So what did you do to get us through the pass?” Lisette asks, and I feel all eyes except Davy’s, Alex’s, and Liam’s turn to me.
 
@@ -2472,7 +2472,7 @@ I consider my words carefully. There’s no good answer to this question. If I t
 
 “But—”
 
-“Lisette, she said no,” Henry says. “Drop it. You’re alive. That should be good enough.”
+“Lisette, she said no,” Henry chides. “Drop it. You’re alive. That should be good enough.”
 
 “But—”
 
@@ -2488,7 +2488,7 @@ We walk in silence for a while after that, and eventually Alex moves next to me,
 
 “She’s still thinking about it,” he tells me softly. “All the time. All I’ve felt coming from her since she woke up is the desire for magic.”
 
-I nod. It’s about what I suspected. “I’m not surprised,” I eventually say. “What do you think the chances are she’s able to figure out how to manage it?”
+I nod. It’s about what I expected. “I’m not surprised,” I eventually say. “What do you think the chances are she’s able to figure out how to manage it?”
 
 “Not high,” he says. After thinking about it for a minute, he goes on to add, “Maybe twenty percent. Probably less.”
 
@@ -2518,7 +2518,7 @@ He sighs, but lets his magic fall away, and we begin catching back up to the oth
 
 ----
 
-“What was that about earlier?” Liam asks later when we’re alone.
+“What was that about earlier?” Liam inquires that evening, when we’re alone.
 
 “What?”
 
@@ -2560,9 +2560,9 @@ I look at Giorgi only to find him already watching me. He nods.
 
 We both keep a close eye on Lisette for the rest of the day, and the more I watch her, the more certain I become: she’s going to run tonight. If she does, I can’t let her go back to Branton. It’ll be the deciding factor.
 
-She didn’t like it when I called for a moratorium on magic, the same as she didn’t like it when I wouldn’t answer her questions about the pass. She wants to do what she wants to do, and everyone else be damned, and that’s the single most dangerous attitude for her to have. Not necessarily for her, but for everyone around her.
+She didn’t like it when I called for a moratorium on magic, the same as she didn’t like it when I wouldn’t answer her questions about the pass. She wants to do what she wants to do, and everyone else be damned, and that’s the single most dangerous attitude for her to have. Not necessarily for herself, but for everyone around her.
 
-When we stop for the night, I make sure to pick a spot close to Lisette, and I see Giorgi, Alex, and Davy have done the same. Apparently we’re all expecting her to run tonight.
+When we stop for the night, I make sure to pick a spot close to Lisette, and I see Giorgi, Alex, and Davy have done the same. Apparently, we’re all expecting her to run tonight.
 
 After a bit, Giorgi and Davy both disappear into the woodlands, and Alex and I stay near Lisette.
 
@@ -2570,15 +2570,15 @@ After a bit, Giorgi and Davy both disappear into the woodlands, and Alex and I s
 
 “Beds,” Henry says wistfully.
 
-“Beds are nice,” Peter says, “but I’ll be happy to not spend everyday walking from sunup until sundown.”
+“Beds are nice,” Peter remarks, “but I’ll be happy not to spend everyday walking from sunup until sundown.”
 
 “Eating something besides rabbit. If I never eat rabbit again, it’ll be too soon,” Gavin comments.
 
-“You’re not wrong about that,” Alex says, nodding in agreement.
+“You’re not wrong about that,” Alex notes, nodding in agreement.
 
-“Lisette? What about you?” I ask.
+“Lisette? What about you?” I probe.
 
-“I don’t know,” she says, clearly distracted.
+“I don’t know,” she mumbles, clearly distracted.
 
 I hear Alex sigh.
 
@@ -2586,7 +2586,7 @@ I hear Alex sigh.
 
 “It’s a tie between privacy and churros,” I say, glancing toward Liam. “I can feel you rolling your eyes, Alex.”
 
-“Yeah, I’ve got to go with privacy,” Liam says.
+“Yeah, I’ve got to go with privacy,” Liam agrees.
 
 ----
 
@@ -2596,13 +2596,13 @@ It’s close to two in the morning when Lisette finally makes her move, slinging
 
 She jerks to a stop, clearly not having realized I was following her. She lets her pack fall from her shoulder as she turns to face me.
 
-“Back to Branton,” she says.
+“Back to Branton,” she states.
 
 “Well, that’s good. Since we’re all going there, we can keep going together.”
 
 “No, I can’t. I need to go now.”
 
-“Why?” I ask her.
+“Why?” I pry.
 
 “I just do.”
 
@@ -2622,9 +2622,9 @@ She jerks to a stop, clearly not having realized I was following her. She lets h
 
 Taking the statement for what it is, she starts toward me. Lisette has seven or eight inches on me, and probably a solid sixty pounds. Maybe more. So there’s no hesitation on my part when I draw a knife from its sheath. I could kill her in a second with magic, but when I told the others no magic, I meant it. I send my right arm back and release the stone I’ve had cupped in my palm throughout the conversation at her head. It hits her right above her left eyebrow, splitting the skin and sending blood streaming into her left eye.
 
-I draw a second knife and close the distance between us. I duck under her arms as I get close and send a knife into her ribs. Unfortunately, it hits bone and skates along, leaving a nasty gash that’s definitely not life threatening. I kick out at her right knee as I move past. I hear a popping crunch that sounds like it’s done some damage as I make contact. When I come up though, her right fist slams into my left cheekbone, sending me staggering back a couple of steps before I’m able to rebalance and slide to the side. My head is ringing, and I think the skin on my cheek is split open. But at least whatever blood is coming from the cut is flowing down my face and not into my eye. I move to Lisette’s left, trying for whatever advantage the blood clouding her vision can give me, and sink a knife into her left side.
+I draw a second knife and close the distance between us. I duck under her arms as I get close and send a knife into her ribs. Unfortunately, it hits bone and skates along, leaving a nasty gash that’s definitely not life threatening. I kick out at her right knee as I move past. I hear a popping crunch that sounds like it’s done some damage as I make contact. When I come up though, her right fist slams into my left cheekbone, sending me staggering back a couple of steps before I’m able to rebalance and slide to the side. My head is ringing, and I think the skin on my cheek is split open. But at least whatever blood is coming from the cut is flowing down my face and not into my eyes. I move to Lisette’s left, trying for whatever advantage the blood clouding her vision can give me, and sink a knife into her left side.
 
-When I do, I feel her begin to pull energy into herself. I was hoping to end this before she had a chance to use any magic. I twist the knife as I move, then yank it out as I slide around behind her. Once behind her, I drive both knives into her throat from opposite sides, and release them as she falls to her knees, with blood pulsing darkly from the wounds around each knife.
+I feel her begin to pull energy into herself. I was hoping to end this before she had a chance to use any magic. I twist the knife as I move, then yank it out as I slip around behind her. Once behind her, I drive both knives into her throat from opposite sides, and release them as she falls to her knees, with blood pulsing darkly from the wounds around each knife.
 
 “Fuck,” I mutter softly as I remove the knives and the pulsing blood ebbs to a slow trickle. I wait until I’m reasonably sure she’s gone, and then I plunge a knife into her heart for good measure. I’ve survived wounds I shouldn’t have been able to before, so I see no reason to chance her doing the same, however unlikely it may be.
 
@@ -2634,7 +2634,7 @@ I see Davy and Giorgi approaching from the south and turn to find Alex coming fr
 
 Alex makes it to me first and starts to reach for my face.
 
-“Don’t touch me,” I tell him sharply, and he snatches his hand back.
+“Don’t touch me,” I bark sharply, and he snatches his hand back.
 
 He tears a piece of cloth from his shirt and hands it to me instead. “It might scar,” he tells me as I press it to my face.
 

@@ -3028,15 +3028,15 @@ I follow along because I’ve got nothing better going on.
 
 ### 15 - It Wasn’t Me/Anti-Hero
 
-We enter the city on foot without Peter, Giorgi, and Gavin. Even though this puts us in closer physical proximity to all of the people and things I’m most concerned about, I feel better.
+We enter the city on foot without Peter, Giorgi, or Gavin. Even though this puts us in closer physical proximity to all of the people and things I’m most concerned about, I feel better.
 
-Apparently at some point over the last five years, and I couldn’t even say when it happened, I started to actually consider Branton home, and not just the place I’m currently living. I think it helps that it’s one of the places I never lived, or even visited, as a child. I don’t have a whole host of negative memories associated with it. There’s also the fact that it, like Corriven, is not the territory of any polity. It simultaneously belongs to all of them and none of them. It is, effectively, a free city-state.
+Apparently at some point over the last five years, and I couldn’t even say when it happened, I started to actually consider Branton my home, and not just the place I’m currently living. I think it helps that it’s one of the places I never lived, or even visited, as a child. I don’t have a whole host of negative memories associated with it. There’s also the fact that it, like Corriven, is not the territory of any polity. It simultaneously belongs to all of them and none of them. It is, effectively, a free city-state.
 
 The war college is similar. Each polity has its own standing army—collectively referred to as the armies of the Allied Polities—and then there is the Army of the Allied Polities. When there is an external threat, the armies of the Allied Polities fall under the command of the Army of the Allied Polities so that it acts as one cohesive force. After the threat has been addressed, the armies of the Allied Polities return to their individual polity’s command. This allows the Army of the Allied Polities to expand and contract as needed, while possessing the ability to have a trained military force during times which call for rapid expansion. However, this really only works for external threats, hence, the term ‘allied.’ If you have an internal threat, you still end up with what is functionally a civil war. And Dairuvar no longer wants an alliance. They want an empire.
 
 However, despite General Iverson having assumed the role of commanding General of the Army of the Allied Polities—something which never should have been permitted, as far as any reasonable thinking person is concerned, since he’s also the ruler of Dairuvar polity—the Army of the Allied Polities doesn’t maintain standing forces in individual polities, and according to a variety of treaties and other legal documents, it *can’t*. Effectively, this means that as long as I am officially a student of the war college or a member of the Army of the Allied Polities, neither General Iverson nor my mother can legally force me to Dairuvar. It’s a small protection, but it *is* a protection. That’s assuming I can go back to the war college, and they don’t end up hunting me as well.
 
-There are, however, some hiccups to this plan. Amelia is one. I’m the other one. Or at least my historical decisions are. To be fair, I only learned the finer details surrounding Liam’s plan, and the legalities related to the Army of the Allied Polities this morning. On our walk here. To this pub. Where we’re currently sitting. And I’m trying to figure out how to broach the topic of why I wasn’t already aware of said legalities.
+There are, however, some hiccups to this plan. Amelia is one. I’m the other. Or at least my historical decisions are. To be fair, I only learned the finer details surrounding Liam’s plan, and the legalities related to the Army of the Allied Polities this morning. On our walk here. To this pub. Where we’re currently sitting. And I’m trying to figure out how to broach the topic of why I wasn’t already aware of said legalities.
 
 Davy knows. Davy has been side-eyeing me since the second he heard the broad strokes of what Liam has planned. If Alex had spent half a second thinking about it, he probably would have figured it out and told Liam outright about the flaw in his plan. The flaw also known as Hazel Raidane, the person to whom rules are more of a suggestion of things you *should* do, under *ideal* circumstances, rather than things you *must* do, under *all* circumstances.
 
@@ -3046,21 +3046,21 @@ I’ve been sitting at the table, tapping the side of my half full glass of beer
 
 “Well, that’s good news,” Liam says grinning.
 
-I accelerate the rate I’m tapping my glass slightly and Davy props an elbow on the table and leans his chin on his fist, staring at me. I note his stare and sigh.
+I accelerate the rate at which I’m tapping my glass slightly and Davy props an elbow on the table and leans his chin on his fist, staring at me. I note his stare, and sigh.
 
-“What’s up with you two?” Gavin asks, looking between me and Davy.
+“What’s up with you two?” Gavin inquires, looking between me and Davy.
 
-“I don’t know, Hazel,” Davy says, “what’s up with us?”
+“I don’t know, Hazel,” Davy snarks, “what’s up with us?”
 
 I sigh again. Once definitely wasn’t enough.
 
 “There, uh, may be something I have neglected to mention.”
 
-“Do go on, cousin. Tell them all what you have neglected to mention,” Davy states flatly, clearly annoyed with me. In his defense, he did tell me. And I didn’t listen. I believe my exact words may have been, ‘It’ll be *fine*. No one *ever* checks these things.’ Knowing me, I probably even waved my hand airily.
+“Do go on, cousin. Tell everyone what you have neglected to mention,” Davy states flatly, clearly annoyed with me. In his defense, he did tell me. And I didn’t listen. I believe my exact words may have been, ‘It’ll be *fine*. No one *ever* checks these things.’ Knowing me, I probably even waved my hand airily.
 
 “Fine, you were right, Davy. I was wrong.” Best to start with that. “So. Um. Most of what you said this morning was news to me, Liam.”
 
-“What do you mean?” Liam asks.
+“What do you mean?” Liam questions.
 
 “The stuff about the treaties and how the Army of the Allied Polities may be officially allocated and dispersed, or whatever…”
 
@@ -3074,7 +3074,7 @@ I shrug.
 
 “Everyone who ends up at the war college would know that,” Peter says, starting to follow the statement to its logical conclusion. “Because to end up there you have to have already been in one of the polities’ armies and transferred to the Army of the Allied Polities—officially—prior to attending the war college. At which point they would have made it abundantly clear. You probably have to sign something in triplicate asserting you understand.”
 
-“Yeah. That,” I say, draining my glass. “Or not that, depending on your perspective.”
+“Yeah. That,” I affirm, draining my glass. “Or not that, depending on your perspective.”
 
 Giorgi starts laughing.
 
@@ -3084,25 +3084,25 @@ Giorgi starts laughing.
 
 “And how exactly did you end up at the war college?”
 
-I wait until the barman comes and sets another pint in front of me. Finally, I say, “I sort of decided it seemed like a good place to hide in plain sight and keep track of what was happening.”
+I wait until the barman comes and sets another pint in front of me. Finally, I answer, “I sort of decided it seemed like a good place to hide in plain sight and keep track of what was happening.”
 
 “How?”
 
-“I mean… orders and enrollment documents are merely paper. If you know what the paper looks like it’s pretty easy to add one more that looks like all the rest and says, ‘Hazel Raidane,’” I say with a shrug.
+“I mean… orders and enrollment documents are just paper. If you know what the paper looks like it’s pretty easy to add one more that looks like all the rest and says, ‘Hazel Raidane,’” I say with a shrug.
 
 “So you forged your way into the war college?” Liam hisses.
 
 Gavin is laughing now too, and Henry’s eyes have gone big.
 
-“Yes?” I say, like it’s a question whose answer I am unsure of and that will somehow make it less wrong, when that is in fact exactly what I did. “In my defense, it seemed like a good idea at the time.”
+“Yes?” I say, like it’s a question whose answer I am unsure of and that will somehow make it less wrong, when that is, in fact, exactly what I did. “In my defense, it seemed like a good idea at the time.”
 
-“I told you it wasn’t a good idea at the time,” Davy remarks.
+“I told you it wasn’t a good idea at the time,” Davy reminds me.
 
 “Yeah, well, it *was* working out just fine until all of this.”
 
 Giorgi and Gavin are still laughing. Peter looks like he has a headache, and Henry looks like he has no idea who I am. Liam looks… irate.
 
-“And no one noticed?” Peter asks like he can’t believe it.
+“And no one noticed?” Peter questions, like he can’t believe it.
 
 “No. It was easy. Be quiet, do what everyone else is doing, and blend in. That’s all fitting in anywhere ever is,” I shrug.
 
@@ -3116,17 +3116,17 @@ We both shrug.
 
 “It’s not like I can undo it.”
 
-Liam looks like he has a headache now too.
+Liam looks like he has a headache now, too.
 
-“Okay, so the papers you forged,” Liam says, going into damage control, “where did they *say* you were before coming to the war college?”
+“Okay, so the papers you forged,” Liam begins, going into damage control, “where did they *say* you were before coming to the war college?”
 
 “Firgasu.” It was as close to the truth as anything, and all good lies are built on as much truth as you can manage.
 
-“Well, at least that’s something,” Liam mutters. “But it still complicates pretty much everything. I think we’re going to need Amelia on our side, and I’m not sure how realistic a goal that is. No one might have looked too hard at your paperwork before, Hazel, but they damn well might now.”
+“Well, at least that’s something,” Liam mutters. “But it still complicates pretty much everything. I think we’re going to need Amelia on our side, and I’m not sure how realistic a goal that is. No one might have looked too hard at your paperwork before, Hazel, but they damn well might, now.”
 
 “You think she can convince her family to amend their records?” I guess.
 
-“I think she *can*, but I have no idea if she *will*,” Liam says.
+“I think she *can*, but I have no idea if she *will*,” Liam responds.
 
 “And what do we tell her about Lisette? The truth?” I’m skeptical that will go over well.
 
@@ -3138,7 +3138,7 @@ Liam looks like he has a headache now too.
 
 “Fine. How are we going to get her away from my mother?” I ask Peter.
 
-He shrugs. “I don’t know. I’ll do something to piss her off, and then we’ll go from there, I guess,” he says, taking a sip of his drink.
+He shrugs. “I don’t know. I’ll do something to piss her off, and then we’ll go from there, I guess,” he replies, taking a sip of his drink.
 
 I look at Liam, “I think he’s even worse at planning than I am,” I remark disparagingly.
 
@@ -3154,7 +3154,7 @@ It’s been at least two and a half hours since Peter left again, taking Giorgi 
 
 Now I’m working on getting some more money the honest way. Or at least the slightly less dishonest way. I’ve managed to increase what I started with tenfold by the time Peter walks back in with Gavin, Giorgi, and Amelia in tow. So even though I’m forced to bow out of the game, at least we can all eat tonight and I can pay the remainder of our tab. I take what I’ve won and return to my own table with the intent of letting someone other than me do the talking.
 
-“Hey Amelia,” I say as I sit down.
+“Hey Amelia,” I greet as I sit down.
 
 “I can’t believe you guys left us,” she says.
 
@@ -3166,9 +3166,9 @@ Now I’m working on getting some more money the honest way. Or at least the sli
 
 “Fine. But I want a drink and it looks like you’ve got all the money, as usual.”
 
-“Yeah, sure,” I say, then raising my voice so the barman will hear me, “Another round for the table.”
+“Yeah, sure,” I agree, then raising my voice so the barman will hear me, “Another round for the table.”
 
-“You left us,” Amelia says again.
+“You left us,” Amelia repeats.
 
 “Blame Michael,” I tell her.
 
@@ -3176,7 +3176,7 @@ Now I’m working on getting some more money the honest way. Or at least the sli
 
 “He is, or at least was—but I see no reason to expect that it’s changed—sleeping with Christine. And the very first thing we told him when she came on board was not to.”
 
-“He’s… You’re kidding, right?” she asks in disbelief.
+“He’s… You’re kidding, right?” she probes in disbelief.
 
 “No, I’m amazed you haven’t noticed. Ask him.”
 
@@ -3184,11 +3184,11 @@ Now I’m working on getting some more money the honest way. Or at least the sli
 
 I take that as my cue to let someone else do the talking.
 
-“Lisette’s dead,” Alex says before anyone else has the chance to speak.
+“Lisette’s dead,” Alex answers, before anyone else has the chance to speak.
 
-“What? How?” she asks, looking more surprised than upset by the news.
+“What? How?” Amelia asks, looking more surprised than upset by the news.
 
-“You remember how we told you all that magic could go sideways fast?” Alex asks.
+“You remember how we told you all that magic could go sideways fast?” Alex inquires.
 
 Amelia nods.
 
@@ -3206,11 +3206,11 @@ It’s technically true. Nicely done, Alex.
 
 “Why would they want to help you with that?”
 
-“It’s honestly the best way to limit Dairuvar’s access to Hazel, which is to the benefit of all of Firgasu, if you believe Alexandria,” Liam tells her.
+“It’s honestly the best way to limit Dairuvar’s access to Hazel, which is to the benefit of all of Firgasu, if you believe Alexandria,” Liam supplies.
 
-“I’ll think about it,” Amelia says.
+“I’ll think about it,” Amelia states.
 
-“Well think fast,” Liam tells her, “because we all, you included, need to go back and as soon as we do, it’s going to start the clock.”
+“Well think fast,” Liam responds, “because we all, you included, need to go back and as soon as we do, the clock is going to start ticking.”
 
 “Fine. I’ll write them. What do the records need to say?”
 

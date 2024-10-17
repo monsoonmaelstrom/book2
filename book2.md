@@ -3430,7 +3430,7 @@ Liam shrugs. “Never needed any. No one actually lives here.”
 
 ### 17 - Get Over It
 
-The next morning I’m up early sitting on the rooftop, watching the sunrise over the city. I only slept a couple of hours. Liam finds me after I’ve been out there for about thirty minutes.
+The next morning I’m up early sitting on the rooftop, watching the sunrise over the city. I only slept a couple of hours. Liam finds me after I’ve been out here for about thirty minutes.
 
 “Couldn’t sleep?” I ask when he wraps his arms around me.
 
@@ -3450,9 +3450,9 @@ I can’t help but sigh.
 
 “I don’t think I do,” I tell him as I step out of his arms and walk back inside.
 
-“You do,” Liam says following me.
+“You do,” Liam asserts, as he follows me.
 
-“He’s right, Hazel,” I hear Alex say from somewhere further inside. “You’re making things difficult for everyone. Not just Peter.”
+“He’s right, Hazel,” I hear Alex concur from somewhere further inside. “You’re making things difficult for everyone. Not just Peter.”
 
 “Stop listening to conversations you’re not part of, Alex.”
 
@@ -3460,41 +3460,41 @@ I can’t help but sigh.
 
 “I hate you all,” I tell them. Clearly they’ve been discussing this. Probably for a while.
 
-“It’s possible, Hazel, that if everyone thinks you’re the problem,” Davy tells me, “you might actually be the problem.”
+“It’s possible, Hazel, that if everyone thinks you’re the problem,” Davy states, “you might actually be the problem.”
 
-“Seriously?” I say incredulously.
+“Seriously?” I question, incredulously.
 
-“Seriously,” Davy responds. “Peter has apologized. You’re the one dragging this out.”
+“Seriously,” Davy answers. “Peter has apologized. You’re the one dragging this out.”
 
 “Peter apologized, and then right as I *started* to forgive him he tried to start a fight between Liam and me!”
 
-“Yeah, and he won’t do it again,” Liam tells me.
+“Yeah, and he won’t do it again,” Liam assures me.
 
-“Why? Because you broke his nose? I’ve suffered worse injuries and come back for seconds,” I tell him as I spin back toward him
+“Why? Because you broke his nose? I’ve suffered worse injuries and come back for seconds,” I snap as I spin back toward him
 
 “No.”
 
 “Then why? What’s he got to lose? What’s to stop him from fucking me over? From fucking us *all* over?”
 
-“Peter and I have talked,” Liam tells me.
+“Peter and I have talked,” Liam states.
 
 “Okay, about what?”
 
-“Do you trust me?” he asks, reaching out to take my hands as stares into my eyes.
+“Do you trust me?” he asks, reaching out to take my hands as he stares into my eyes.
 
 “Yes, of course I trust you,” I answer as I meet his gaze.
 
 “Then trust me when I tell you that he won’t.”
 
-“Fine. Whatever,” I say hotly. “I’ll take Peter.” *And make him answer my questions,* I think.
+“Fine. Whatever,” I bite out. “I’ll take Peter.” *And make him answer my questions,* I think.
 
 Alex sighs.
 
 ----
 
-Peter and I are sitting on a blanket in a small green space across from Reese’s shop, watching the storefront. We haven’t been here long. Probably less than twenty minutes, and hopefully to anyone passing by we simply look like a couple of people enjoying the mild weather.
+Peter and I are sitting on a blanket in a small green space across from Reese’s shop, watching the storefront. We haven’t been here long. Probably less than twenty minutes, and hopefully to anyone passing by, we simply look like a couple of people enjoying the mild weather.
 
-“Liam says I need to forgive you.” I tell him, breaking the silence. “Davy and Alex, evidently, agree with him. They say I need to get over it. That I’m the one who’s the problem right now.”
+“Liam says I need to forgive you.” I state, breaking the silence. “Davy and Alex, evidently, agree with him. They say I need to get over it. That I’m the one who’s the problem right now.”
 
 Peter flicks his eyes in my direction, so I know he’s listening, but he wisely says nothing.
 
@@ -3508,31 +3508,31 @@ Peter sighs again. Several minutes pass in silence, but I wait.
 
 Finally, Peter says, “I’m sorry about Leisch. I shouldn’t have lobbed what I knew was a bomb into the conversation and then walked away. I stand by the fact that Liam needed to know, but you’re both right that he didn’t need to know like that, and that it wasn’t my place to tell him.”
 
-He sounds… sincere. It makes me even more suspicious. Which annoys me because maybe they’re right. Maybe there is no way for Peter to win with me right now.
+He sounds… sincere. It makes me even more suspicious. Which annoys me, because maybe they’re right. Maybe there is no way for Peter to win with me right now.
 
 “And yes, Liam and I have talked about it. But I also know he didn’t tell you to ask me to relay the content of those conversations to you.”
 
 “It was worth a shot,” I mutter. “You’re all asking me to have a whole lot of faith in you when history demonstrates absolutely no reason I should.”
 
-“I think Liam is asking you to have faith in him,” Peter says.
+“I think Liam is asking you to have faith in *him*,” Peter responds.
 
 What in the hell am I supposed to say to that? That I don’t have faith in anyone? That half the time I’m not sure I trust anyone?
 
 I’ve forgiven Alex for more or less the same thing a half a dozen times over. But Alex has also saved my life a half a dozen times over to make up for it.
 
-I decide to lay my cards on the table. “I want to trust you. I really do. It would make it easier for me. It would make it easier for Liam. It would be easier for everyone. But for as long as I’ve known you, I’ve done nothing to you except keep you alive. Whereas you’ve erased my memory, lied to me, and tried to drive a wedge between me and Liam, so hopefully you can see why it might be difficult for me.”
+I decide to lay my cards on the table. “I want to trust you. I really do. It would make it easier for me. It would make it easier for Liam. It would make it easier for everyone. But for as long as I’ve known you, I’ve done nothing to you except keep you alive. Whereas you’ve erased my memory, lied to me, and tried to drive a wedge between me and Liam, so hopefully you can see why it might be difficult for me.”
 
 “I get it, but it’s also like you said yesterday: it’s not like I can undo any of that.”
 
 “Yeah. I know.”
 
-“So where does that leave us?” Peter asks.
+“So where does that leave us?” Peter questions softly.
 
 “Trust is earned, so maybe try earning some, Peter. Stop acting like I’m going to bite you every time we’re in the same room together. I can’t make myself trust you, but I’ll stop with the snide remarks.”
 
 “Alright.”
 
-We sit silently, watching the shop for a while. After a while I ask something I’ve been wondering for a while. “What was with you trying to get my mother to call me by my name?”
+We sit silently, watching the shop. After a bit I ask something I’ve been wondering for a while. “What was with you trying to get my mother to call me by my name?”
 
 “*You* wanted her to call you by your name.”
 
@@ -3540,9 +3540,9 @@ We sit silently, watching the shop for a while. After a while I ask something I�
 
 He shrugs.
 
-“I don’t know if you’re shrugging because that’s your answer or because you don’t want to answer.”
+“I don’t know if you’re shrugging because that’s your answer, or because you don’t want to answer.”
 
-After a long pause, Peter finally says, “It seemed important to you and it was a small ask. She clearly wasn’t listening when you told her, so I thought maybe if someone else did…”
+After a long pause, Peter explains, “It seemed important to you and it was a small ask. She clearly wasn’t listening when you told her, so I thought maybe if someone else did…”
 
 “Thanks.”
 
@@ -3552,7 +3552,7 @@ After a long pause, Peter finally says, “It seemed important to you and it was
 
 We fall back into silence, neither of us having much to say to the other. I’m both bored and annoyed. I begin pulling some small purple flowers from the ground in irritation and twisting them into a crown as I watch the shop.
 
-Peter’s eyes dart back and forth between the shop and my hands for several minutes before he finally says, “You really can’t sit still, can you?”
+Peter’s eyes dart back and forth between the shop and my hands for several minutes before he finally comments, “You really can’t sit still, can you?”
 
 “I prefer not to.”
 
@@ -3560,7 +3560,7 @@ Peter’s eyes dart back and forth between the shop and my hands for several min
 
 “I’m aware.”
 
-“You guys seem to talk a lot,” Peter comments.
+“You guys seem to talk a lot,” Peter remarks.
 
 I shrug. “Giorgi doesn’t talk ‘a lot’ to anyone. Giorgi makes Liam seem like a chatterbox in comparison.”
 
@@ -3584,7 +3584,7 @@ I don’t say anything.
 
 I had long wondered how one of the Crears ended up as a housekeeper for Liam’s grandparents.
 
-“Your father wanted someone watching the Martens just in case. Then when Liam showed up, apparently Reese alone wasn’t enough.”
+“Your father wanted someone watching the Martens, just in case. Then when Liam showed up, apparently Reese alone wasn’t enough.”
 
 “Why your family?”
 
@@ -3602,27 +3602,27 @@ He nods.
 
 “To explain.”
 
-“You’re still not going to tell me why Liam says I should trust you?” I ask, trying again.
+“You’re still not going to tell me why Liam says I should trust you?” I inquire, trying again.
 
 “No.”
 
-I sigh. “Go walk over to the shop and say hi. See what happens. Here,” I say, handing him the flower crown I’ve been making. “You can give that to Reese.”
+I sigh. “Go walk over to the shop and say hi. See what happens. Here,” I say, as I hand him the flower crown I’ve been making. “You can give that to Reese.”
 
 I watch Peter walk across and enter the shop. Nothing changes, which is good. He walks in and Reese immediately rushes to hug him the same way she did all those months ago with Liam. He hugs her back and then hands her the flower crown. She looks at it intently for a moment, and then looks at Peter in question. He shrugs. They talk for a few more minutes and then she hands him a bag. He hugs her and walks back out.
 
 Everything looks the same.
 
-Peter crosses back over to where I’m sitting on the blanket, and hands me the bag. “Here. Liam said you like churros.”
+Peter crosses back to where I’m sitting on the blanket, and hands me the bag. “Here. Liam said you like churros.”
 
 “Thanks,” I say as I take the bag from him. I open it and lift it to inhale the scent of cinnamon and sugar. All churros are good churros, but these are *really* good churros.
 
 “She knew something was up with the flower crown,” Peter comments.
 
-“So it would seem,” I say as I pull out a churro and take a bite. Magic. This is actual magic. Way better than anything I can do. “Did you tell her who I was? After Liam brought me here?” I ask him.
+“So it would seem,” I agree, as I pull out a churro and take a bite. Magic. This is actual magic. Way better than anything I can do. “Did you tell her who I was? After Liam brought me here?” I probe.
 
 “No. I didn’t find out you had been here until somewhat recently. Liam didn’t tell me and Reese never mentioned it.”
 
-“Haven’t you wondered why? I mean you say she and my mother were best friends, and you’ve seen my mother. There’s no way she didn’t have a solid guess about who I was. Seems like the sort of thing you’d mention.”
+“Haven’t you wondered why? I mean, you say she and my mother were best friends, and you’ve seen my mother. There’s no way she didn’t have a solid guess about who I was. Seems like the sort of thing you’d mention.”
 
 He shrugs. “We can ask her once the others get here, if you want.”
 
@@ -3630,7 +3630,7 @@ He shrugs. “We can ask her once the others get here, if you want.”
 
 “No. I’m pretty sure they’re for you.”
 
-“Did you tell her I was here?” I ask, since I don’t think she’d be able to see us from the shop.
+“Did you tell her I was here?” I wonder, since I don’t think she’d be able to see us from the shop.
 
 “No.”
 
@@ -3658,23 +3658,23 @@ Another hour goes by before Alex, Davy, and Liam arrive. I’ve long since finis
 
 “Anything?” Liam asks.
 
-“No,” Peter says and I shake my head.
+“No,” Peter answers and I shake my head.
 
 “And have you two spent the past couple of hours becoming fast friends?” Alex teases.
 
 “Yeah. Peter braided my hair and everything,” I tell him sarcastically.
 
-“Are you two good?” Liam asks seriously.
+“Are you two good?” Liam inquires seriously.
 
 I look at Peter to find him looking at me as well. We both shrug.
 
-Liam sighs, and I can hear the frustration as he says, “Come on. Let’s go talk to Reese.”
+Liam sighs, and I can hear the frustration in his voice as he says, “Come on. Let’s go talk to Reese.”
 
-We enter the shop together, with Liam at the front and Peter bringing up the rear. Once we’re inside, Peter flips the sign on the door to closed and locks it behind him. Reese comes out from the back and takes one look at our group of five and then lets out an exhale that makes it sound like she has the weight of the world pressing down on her shoulders. There are no hugs for anyone this time.
+We enter the shop together, with Liam at the front and Peter bringing up the rear. Once we’re inside, Peter flips the sign on the door to closed and locks it behind him. Reese comes out from the back and takes one look at our group of five, and then lets out an exhale that makes it sound like she has the weight of the world pressing down on her shoulders. There are no hugs for anyone this time.
 
 “I’ve been expecting you,” she says to me.
 
-“Since when?” I ask.
+“Since when?” I respond in question.
 
 “Since Liam brought you here.”
 
@@ -3682,11 +3682,11 @@ We enter the shop together, with Liam at the front and Peter bringing up the rea
 
 She laughs. “So who are your friends?”
 
-“This is my brother Alex and my cousin Davy,” I say, gesturing to them in turn as she nods to each.
+“This is my brother Alex and my cousin Davy,” I introduce, gesturing to them in turn as she nods to each.
 
 “Well, you all may as well sit down.”
 
-The sound of the chair legs scraping across the floor seems to echo within the space today.
+The sound of the chair legs scraping across the floor seems to echo ominously within the space today.
 
 “Has my mother been to see you yet?” I ask her.
 
@@ -3698,9 +3698,9 @@ Reese’s eyes widen slightly. “No. She’s back?”
 
 “So what happened?”
 
-“She changed. Right around the time her brother died. She… I don’t know how she is now, but she became a different person after he died. It was subtle at first. Or maybe I didn’t want to see it, but she became meaner and more vindictive. She went from being a person who had friends to being someone who only had people she used when she needed something from them. It wasn’t long after that that our friendship fell apart.”
+“She changed. Right around the time her brother died. She… I don’t know how she is now, but she became a different person after he died. It was subtle at first. Or maybe I didn’t want to see it, but she became meaner and more vindictive. She went from being a person who had friends, to being someone who only had people she used when she needed something from them. It wasn’t long after that that our friendship fell apart.”
 
-When I don’t offer any response, Liam picks up the conversation. “Reese, you gave me a key you said my mother left for me. We need to know whatever it is you know about that key. How it was made, who made it, why.”
+When I don’t offer any response, Liam picks up the conversation. “Reese, you gave me a key you said my mother left for me. We need to know whatever it is you know about that key. How it was made, who made it, and why.”
 
 “I—” Reese begins to rise, but Liam catches her wrists.
 
@@ -3710,13 +3710,13 @@ Reese looks down at Liam’s hands on her wrists, and he lets go. “Your father
 
 “Why did he want it?” I ask.
 
-“Why does Randall want anything?” Reese asks, and I get the feeling it’s rhetorical.
+“Why does Randall want anything?” Reese murmurs the question, and I get the feeling it’s rhetorical.
 
-“Do you know *how* they made it?” I ask.
+“Do you know *how* they made it?” I probe.
 
 “Why?” she asks suspiciously.
 
-“My mother did something to Liam. Something that feels a lot like the magic on that key,” I tell her.
+“My mother did something to Liam. Something that feels a lot like the magic on that key,” I explain.
 
 “You look so much like her, you know.”
 
@@ -3726,7 +3726,7 @@ Reese looks down at Liam’s hands on her wrists, and he lets go. “Your father
 
 I nod.
 
-“We used to make crowns like that. I recognized the weaving. I taught her that,” Reese says, and I get the distinct impression she’s trying to avoid the question.
+“We used to make crowns like that. I recognized the weaving. I taught her that,” Reese says, and I get the distinct impression she’s trying to avoid answering the question.
 
 “What was she like before?” Alex asks, letting her.
 
@@ -3738,21 +3738,19 @@ I can’t even begin to imagine my mother as that person, and based on Alex’s 
 
 “I don’t know exactly what they did. I wasn’t there, and the kind of stuff they were talking about was so far beyond my understanding.”
 
-“What kind of stuff?” Davy asks.
+“What kind of stuff?” Davy questions.
 
 “You’re Christine’s child?” she asks Davy.
 
 He nods.
 
-“I hope you’ll forgive me but I never did like her very much.”
+“I hope you’ll forgive me, but I never did like her very much.”
 
 “It’s an opinion I share,” Davy assures her. “She’s with Alexandria now.”
 
-Reese sighs.
+Reese sighs. “I don’t know. They were talking about using Randall to power the magic, and James to amplify it, and William to focus it. I don’t know the specifics beyond that. It was originally Alexandria’s idea. She would know more.”
 
-“I don’t know. They were talking about using Randall to power the magic, and James to amplify it, and William to focus it. I don’t know the specifics beyond that. It was originally Alexandria’s idea. She would know more.”
-
-“Well, that explains why what she did to Liam feels so similar,” I mutter. At least it means my suspicions are right. I can figure out how to undo this. Or Davy and I together can. We just have to get it right the first time. No pressure.
+“Well, that explains why what she did to Liam feels so similar,” I mutter. At least it means my suspicions are correct. I can figure out how to undo this. Or Davy and I together can. We just have to get it right the first time. No pressure.
 
 “Do you know about the prophecy?” I ask.
 
@@ -3764,7 +3762,7 @@ Reese rolls her eyes. “The prophecy,” she mutters, seeming to echo how I fee
 
 I ball my hands into fists beneath the table as I resist the urge to look at Peter and smirk since, while a smirk isn’t technically a comment, doing so would probably still be snide.
 
-My effort must show though, because Peter says, “Go ahead and say it, Hazel. I know you want to.”
+My effort must show though, because Peter sighs, “Go ahead and say it, Hazel. I know you want to.”
 
 “I *wasn’t* going to say anything, but since you bring it up: I told you!” I burst out, never one to deny an outright invitation to say I was right.
 
@@ -3794,13 +3792,13 @@ Reese thinks for a minute. “It was some stupid rhyme.”
 
 “It’s not even any good,” Alex scoffs when Reese is done.
 
-“To be fair,” Reese says, “I think it started out as a joke. Alexandria was convinced she could make the others believe she could predict the future, and it worked. At least with Randall.”
+“To be fair,” Reese responds, “I think it started out as a joke. Alexandria was convinced she could make the others believe she could predict the future, and it worked. At least with Randall.”
 
-“So what you’re telling me is he’s even crazier than she is,” I comment, letting my head fall to my arms folded in front of me. The future looks bleak.
+“So what you’re telling me is he’s even crazier than she is,” I comment, letting my head fall onto my arms folded in front of me. The future looks bleak.
 
-“He’s power hungry, but I wouldn’t say he’s crazy,” Reese says.
+“He’s power hungry, but I wouldn’t say he’s crazy,” Reese replies.
 
-“You’d have to be crazy to believe something like that,” I say.
+“You’d have to be crazy to believe something like that,” I state.
 
 “Maybe not if you’re the kind of powerful that lets you reshape reality,” Reese shrugs. “That kind of power makes most things seem possible.”
 
@@ -3812,7 +3810,7 @@ Reese thinks for a minute. “It was some stupid rhyme.”
 
 “Being the kind of powerful that makes most things seem possible,” I answer.
 
-“You mean the kind of powerful you are?” Liam asks.
+“You mean the kind of powerful that you are?” Liam asks.
 
 “Maybe.”
 
@@ -3822,7 +3820,7 @@ Liam wraps an arm around my waist. “Did you and Peter talk?”
 
 “And?”
 
-I shrug. “I have trust issues. I find it hard to trust Peter simply because you think I should when you can’t or won’t give me any good reason to,” I answer honestly. “But I told him I’ll stop with the snide remarks if he stops acting like I’m going to bite him every time I walk into a room.”
+I shrug. “I have trust issues. I find it hard to trust Peter simply because you think I should, when you can’t or won’t give me any good reason to,” I answer honestly. “But I told him I’ll stop with the snide remarks if he stops acting like I’m going to bite him every time I walk into a room.”
 
 Liam sighs. “You’re not making this easy.”
 

@@ -2302,7 +2302,7 @@ The next morning Lisette doesn’t wake up. She’s breathing and her pulse is f
 
 “Over this terrain?” Henry asks uncertainly.
 
-“Yeah. Liam, Peter, Alex, you guys are the biggest. What do you have for extra clothes?” I ask.
+“Yeah. Liam, Peter, Alex, you guys are the biggest. What do you have for extra clothes?” I question.
 
 “Not much,” Peter says, pulling out a spare shirt and pair of pants.
 
@@ -2310,7 +2310,7 @@ The next morning Lisette doesn’t wake up. She’s breathing and her pulse is f
 
 Alex sighs. “Well there’s no way I’m going to be able to wear those again, Hazel.”
 
-I shrug. “If you have a better idea of how to carry her for the next twenty five miles, I’m all ears.”
+I shrug. “If you have a better idea about how to carry her for the next twenty five miles, I’m all ears.”
 
 “I don’t know. How about a litter?”
 
@@ -2350,9 +2350,9 @@ After what feels like twenty minutes or so, Giorgi comes back with two rabbits. 
 
 Liam drops to sit next to me, and I immediately move a little bit closer and interlace my fingers with his. Everyone’s exhausted, so we all sit silently while Alex builds a fire and Davy and Henry set about butchering the rabbits.
 
-“So how much longer are we going to carry her?” Gavin asks, nodding to Lisette.
+“So how much longer are we going to carry her?” Gavin asks, nodding at Lisette.
 
-“I have no idea. If we’re lucky she’ll wake up tomorrow,” I answer.
+“I have no idea. If we’re lucky, she’ll wake up tomorrow,” I answer.
 
 “So you’re saying we’ll definitely be carrying her tomorrow,” Gavin says.
 
@@ -2364,7 +2364,7 @@ I sigh. “You’re probably right.”
 
 ----
 
-In the evening two days later, after another fifty miles of us carrying her through the scrubland, Lisette finally wakes up.
+In the evening two days later, after another fifty miles of carrying her across the scrubland, Lisette finally wakes up.
 
 “What happened?” she asks groggily.
 
@@ -2374,7 +2374,7 @@ I grin. You can always count on Gavin to relay the most important information fi
 
 “Oh,” Lisette says, looking somewhat abashed. “Did it work?” she asks, looking at me.
 
-“I have no idea,” I tell her. “You’re not dead,” I shrug. “Beyond that, I have no idea. Even if it did, you’re still going to have to figure out how it works. Start with the knot again.”
+“I have no idea,” I tell her. “You’re not dead,” I shrug. “Beyond that, I don’t know. Even if it did, you’re still going to have to figure out how it works. Start with the knot again.”
 
 “Start with walking again,” Gavin mutters, and I can’t help but laugh. I’m as sick of carrying her as everyone else.
 
@@ -2392,15 +2392,17 @@ He nods and steps away from the stream.
 
 “Can’t I just want a little alone time with you?” I ask in response.
 
-He stops moving forward and spins me around to face him, catching my other hand in his, before bringing his mouth to meet mine. My lips eagerly part beneath his, and as his tongue slides over mine I press myself more firmly against him and he releases my hands, sliding his to my waist. Mine immediately wrap around him to pull him closer to me. His hands move down to my hips and then over my ass, before he lifts me up, and I wrap my legs around him. I can feel the heat coming off of him as I slip my tongue into his mouth, deepening our kiss. I manage to work my hands under his shirt when he gently pulls back panting.
+He stops moving forward and spins me around to face him, catching my other hand in his, before bringing his mouth to meet mine. My lips eagerly part beneath his, and as his tongue strokes over mine I press myself more firmly against him and he releases my hands, sliding his to my waist. Mine immediately wrap around him to pull him closer to me. His hands move down to my hips and then over my ass, before he lifts me up, and I wrap my legs around him. I can feel the heat coming off of him as I slip my tongue into his mouth, deepening our kiss. I manage to work my hands under his shirt when he gently pulls back, panting.
 
 “This isn’t what you had on your mind when you asked me to walk with you,” he says.
 
 “Well it’s damn sure what I have on my mind now,” I say kissing him again, my own breathing sounding equally as ragged.
 
-He pulls back though, and I’m forced to say, “This now. Talking later. Please, Liam. Please,” I repeat again, beseechingly, when he doesn’t move.
+He pulls back again though, and I’m forced to say, “This now. Talking later. Please, Liam. Please,” I repeat again, beseechingly, when he doesn’t move.
 
-Finally his mouth is on mine again, as hungry for me as I am for him. His hand slips beneath my shirt to the small of my back, and I moan softly, bringing a new urgency to his movements. He sets me down so he can pull off my shirt, and I strip off his clothes exactly as quickly. His teeth find my nipple and gently nip at it. I wind one hand through his hair to keep me balanced and on my feet and wrap my other around his dick. He gasps as he brings his mouth back to mine. After a moment, I pull away and skim my lips over his jaw, before moving down his neck to his chest. I let my tongue trace over the ridges of his ribs, and the muscles of his stomach as I drop to my knees, and slide the head of his penis into my mouth, moving my tongue over him languidly. The sound he makes as his hands tangle in my hair is enough to make me never want to stop, and I take him deeper into my mouth, working my tongue along the length of him. I continue going as his breathing becomes rougher and rougher. In one quick motion, he pulls me from my knees, lifting me into the air, and spinning us around so my back is against the nearest tree, as he thrusts into me. I find his mouth with my own to keep from shouting out in pleasure because there’s nothing shielding the sound right now, and we’re not that far from everyone else. But I definitely don’t have the ability to do anything about it right now. Liam is the only thing I can focus on as he thrusts into me again and again.
+Finally, his mouth is on mine again, as hungry for me as I am for him. His hand slips beneath my shirt to the small of my back, and I moan softly, bringing a new urgency to his movements. He sets me down so he can pull off my shirt, and I strip off his clothes exactly as quickly. His teeth find my nipple and gently tease it. I wind one hand through his hair to keep me balanced and on my feet and wrap my other around his dick. He gasps as he brings his mouth back to mine. After a moment, I pull away and skim my lips over his jaw, before moving down his neck to his chest. I let my tongue trace over the ridges of his ribs, and the muscles of his stomach as I drop to my knees, and take the head of his penis into my mouth, moving my tongue over him languidly. The sound he makes as his hands tangle in my hair is enough to make me never want to stop, and I suck him deeper into my mouth, working my tongue along the length of him. I continue, as his breathing becomes rougher and rougher. In one quick motion, he pulls me from my knees, lifting me into the air and turning us around so my back is against the nearest tree, as he slides into me.
+
+I find his mouth with my own to keep from shouting out in pleasure because there’s nothing shielding the sound, and we’re not that far from everyone else. But I definitely don’t have the ability to do anything about it right now. Liam is the only thing I can focus on as he thrusts into me again and again.
 
 I’m nearly there when he drops a hand to trace across my clit as he continues to drive into me. It’s enough to push me over the edge, and I lock my legs around him holding him tight to me as I convulse around him, which is enough to pull him over with me.
 
@@ -2438,7 +2440,7 @@ I sigh. “We’d better go back. He’ll definitely make good on that threat if
 
 We stand up and begin to sort out whose clothes are whose, tugging them on as we go.
 
-Finally we make our way back to the others. When we get there Alex takes one look at us, his eyes shifting between Liam and me. “Gods, this is so weird,” he mutters before walking away.
+Finally, we make our way back to the others. When we get there Alex takes one look at us, his eyes shifting between Liam and me. “Gods, this is so weird,” he mutters before walking away.
 
 I look at Liam, and we both shrug.
 
@@ -2446,7 +2448,7 @@ I look at Liam, and we both shrug.
 
 “Never said it wasn’t,” he tosses back over his shoulder.
 
-I look for Lisette, and find her fiddling with the knot, but she’s actually close now, and I can’t help but sigh. I really hope I’m wrong, and I’m pretty sure I’m not.
+I look for Lisette, and find her fiddling with the knot, but she’s actually close now, and I can’t help but sigh. I really hope I’m wrong, but I’m pretty sure I’m not.
 
 ### 12 - It’s Called Freefall
 

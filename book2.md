@@ -3832,7 +3832,7 @@ I spend the next day sequestered in the flat on Ginnelstreet with Davy and Alex,
 
 I think Liam might be a little irritated by my refusal to accept on blind faith that things with Peter are good. I meant it when I said I’d stop with the remarks, but trusting anyone is hard for me. Trusting a person based solely on the word of another person, even if that person is Liam, is honestly beyond me. It’s not a matter of being willing or unwilling. I can’t do it. So I’m doing my best but, honestly, I’m not sure if it’s good enough. Part of me gets it. Peter and Liam have been friends since forever. I’m the interloper. Which is both true, and a really shitty feeling to have. I think maybe I’m feeling… insecure? It’s not a feeling I have a ton of experience with.
 
-“What’s up with you?” Alex finally asks me when it’s clear for about the tenth time my mind is elsewhere.
+“What’s up with you?” Alex questions, when it’s clear for about the tenth time my mind is elsewhere.
 
 “I’m not sure.”
 
@@ -3842,13 +3842,13 @@ I think Liam might be a little irritated by my refusal to accept on blind faith 
 
 “Go on.”
 
-“They’ve been friends since they were kids, and Liam wants me to trust Peter, but I can’t. I can stop making it obvious I don’t, but I don’t know if that will be enough.”
+“They’ve been friends since they were kids, and Liam wants me to trust Peter, but I can’t. I can stop making it obvious that I don’t, but I don’t know if that will be enough.”
 
 Alex shrugs.
 
-“Thanks. That’s very helpful,” I say scathingly.
+“Thanks. That’s very helpful,” I remark scathingly.
 
-“Do you want me to lie to you and tell you it will all be fine?” Alex asks me in the same tone.
+“Do you want me to lie to you and tell you it will all be fine?” Alex retorts in the same tone.
 
 “I don’t know. Maybe.”
 
@@ -3870,7 +3870,7 @@ Alex shrugs.
 
 “I think the original key and locks were probably all cast from the same piece of metal, like the rings.”
 
-“Can we redo it without them all being from the same piece of metal?” I ask.
+“Can we redo it without them all being from the same piece of metal?” I want to know.
 
 “Yeah, but it’s harder. It’ll take more time to do.”
 
@@ -3884,7 +3884,7 @@ Alex shrugs.
 
 “You can’t do it faster than that? The day before yesterday you said maybe a few days.”
 
-“Do you want to try it?” Davy asks sharply.
+“Do you want to try it?” Davy responds sharply.
 
 I sigh. “I’d rather see you do it first.”
 
@@ -3896,19 +3896,19 @@ The next day, it’s time for Liam, Henry, Amelia and me to show back up to the 
 
 I’m confused about… everything. I’m stuck in a loop waiting for Davy to figure out the key. Waiting for Liam to figure out if the situation between me and Peter is tenable. Waiting to see if Iverson comes after me. Waiting to see if my mother does. Waiting to see if I live out the day.
 
-The four of us walk back through the gates and Henry, Amelia and I return to our rooms, while Liam goes to speak with whomever. The official story is that Firgasu was sending correspondence as normal and no one knows what happened. The world is a mysterious place. The delegation which was supposed to come couldn’t because the snow in the pass came early, and they decided the smart move was not to chance the crossing. They sent a note, but like the others, who knows what happened to it? And Lisette died because conditions in the pass were bad, and we weren’t smart and we did chance it.
+The four of us walk back through the gates and Henry, Amelia and I return to our rooms, while Liam goes to speak with whomever. The official story is that Firgasu was sending correspondence as normal, and no one knows what happened. The world is a mysterious place. The delegation which was supposed to come couldn’t because the snow in the pass came early, and they decided the smart move was not to chance the crossing. They sent a missive, but like the others, who knows what happened to it? And Lisette died because conditions in the pass were bad, and we weren’t smart and we did chance it.
 
-It’s the most boring series of the simplest lies, and absolves everyone from wrongdoing. It’s so boring that no one should look twice at it, but that doesn’t mean no one will. Henry and Amelia will be fine either way. They were just along for the ride. Liam’s the one who sanctioned everything, and I’m the one who basically did everything else. I’m not exactly nervous, more anticipating the worst and waiting for the axe to fall.
+It’s the most boring series of the simplest lies, and it absolves everyone from wrongdoing. It’s so boring that no one should look twice at it, but that doesn’t mean no one will. Henry and Amelia will be fine either way. They were just along for the ride. Liam’s the one who sanctioned everything, and I’m the one who basically did everything else. I’m not exactly nervous, more anticipating the worst and waiting for the axe to fall.
 
-I set my pack in my room but don’t bother unpacking it. Who knows if it’s worth the time and effort. I stand in the middle of my room for a minute simultaneously grateful to finally have some privacy while also resenting it, or maybe resenting that Liam isn’t also here with me. My emotions are such a mess. I want to leave, but I can’t because now people are actually paying attention to me, so I have to be on my best behavior.
+I set my pack in my room but don’t bother unpacking it. Who knows if it’s worth the time and effort. I stand in the middle of my room for a minute simultaneously grateful to finally have some privacy while also resenting it, or maybe resenting that Liam isn’t here with me. My emotions are such a mess. I want to leave, but I can’t because now people are actually paying attention to me, so I have to be on my best behavior.
 
 It’s everything I never wanted, yet here I am.
 
-I need to go do *something*. I’m going to go crazy if I don’t. Unfortunately it’s a Sunday. Meaning there’s *nothing* going on. Nothing to distract myself with. Liam might be right that it would be easier in the general sense to come back on a weekend but at least if we’d come back tomorrow there would be things I had to do. Rooms to sit in. People to pretend to listen to. I don’t know. Maybe it wouldn’t have been better.
+I need to go do *something*. I’m going to go crazy if I don’t. Unfortunately, it’s a Sunday. Meaning there’s *nothing* going on. Nothing to distract myself with. Liam might be right that it would be easier in the general sense to come back on a weekend but at least if we’d come back tomorrow there would be things I had to do. Rooms to sit in. People to pretend to listen to. I don’t know. Maybe it wouldn’t have been better.
 
 I decide to go to the gym, where at least I can hit something. I head out of my room and start down the hallway, only to find Amelia coming up it. I have no idea where her room is, but I’m pretty sure it’s not anywhere near here.
 
-I want to tell her to go away. I don’t know what she wants but I know I’m not in any mood to deal with whatever it is. I’m not fit company for anyone at the moment. If I was anyone else, I’d stay far away from me for the foreseeable future. So I don’t say anything to her, since it feels like anything that comes out of my mouth will be nothing more than a snarl at best, and Amelia hasn’t done anything to deserve that.
+I want to tell her to go away. I don’t know what she wants, but I know I’m not in any mood to deal with whatever it is. I’m not fit company for anyone at the moment. If I was anyone else, I’d stay far away from me for the foreseeable future. So I don’t say anything to her, since it feels like anything that comes out of my mouth will be nothing more than a snarl at best, and Amelia hasn’t done anything to deserve that.
 
 “Where are you going?” she asks when she gets close to me.
 
@@ -3922,7 +3922,7 @@ I sigh but don’t tell her not to. When we get to the gym I immediately head fo
 
 I shrug. “Did you want something, Amelia?”
 
-“Do you want to spar?” she asks.
+“Do you want to spar?” she invites.
 
 “With you? Now?”
 
@@ -3932,7 +3932,7 @@ She nods.
 
 “Why? I could take you.”
 
-“Hah,” I scoff. “I’m in a bad mood,” I tell her. “It’s not a good time to spar with me.”
+“Hah,” I scoff. “I’m in a bad mood,” I answer. “It’s not a good time to spar with me.”
 
 She shrugs. “I still say I could take you.”
 
@@ -3964,11 +3964,11 @@ I manage to dodge the punch she throws again, but barely. I dip under her arm an
 
 “Oh yeah?”
 
-“After the pass I figured I was probably wrong about you,” she tells me.
+“After the pass I figured I was probably wrong about you,” she explains.
 
 I laugh. “After the pass, I didn’t think about you at all,” I admit as I rush in, feinting with a jab at her face before driving my knee into her stomach. She twists so it catches her in the side and doesn’t knock the wind out of her. At the same time, she grabs my knee and sweeps the foot that was on the ground out from under me. Then she uses the weight of her own body to drive me into the ground. It hurts and it knocks the wind out of me. My entire body wants to seize into a tiny ball as I fight for a breath. I ignore it. This is *good*.
 
-I drive an elbow into her jaw and roll her off of me as I try and fail to suck in air. I get back onto my feet, finally gulping in a breath. I see Amelia rubbing at her jaw as I do, but she resumes a fighting stance and I do the same. She launches a kick at me, which I block as I retreat. She does another, and I catch her leg and use it to shove her backwards. She falls.
+I drive an elbow into her jaw and roll her off of me as I try, and fail, to suck in air. I get back onto my feet, finally gulping in a breath. I see Amelia rubbing at her jaw as I do, but she resumes a fighting stance and I do the same. She launches a kick at me, which I block as I retreat. She tries another, and I catch her leg and use it to shove her backwards. She falls.
 
 As she does, I feel something ripple across the atmosphere and it feels like the inside of my head is rapidly expanding. I turn, searching for the source of the sensation. I’ve never felt anything like it in my life.
 

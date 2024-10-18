@@ -4924,7 +4924,7 @@ I nod. “Davy doesn’t think I’d have to, but honestly neither of us knows. 
 
 The next day comes all too soon. The dawn is cloudless and seems extra bright when compared to the fog of last night. I wish it wasn’t here.
 
-“Did you sleep?” Alex asks as he walks out onto the roof and hands me a cup of coffee that’s still steaming.
+“Did you sleep?” Alex inquires, as he walks out onto the roof and hands me a cup of coffee that’s still steaming.
 
 “Not really.”
 
@@ -4944,13 +4944,13 @@ Alex shrugs. “Liam would die for you, sis. And I don’t know. Sometimes it se
 
 “You know me. Full of hubris,” I say softly.
 
-“But do you think you can do it?” he asks me seriously.
+“But do you think you can do it?” he asks seriously.
 
 “Yes.”
 
-The only real question is how much of myself I’ll have to give up to do it. Or how much I won’t. I don’t know which thought is worse—that I’ll have to become more like her or that I’m already so much like her it won’t matter.
+The only real question is how much of myself I’ll have to give up to do it. Or how much I won’t. I don’t know which thought is worse—that I’ll have to become more like her, or that I’m already so much like her it won’t matter.
 
-“What are you going to do about Iverson?” Alex asks. “Seems like this is definitely the sort of thing he’d be able to feel.”
+“What are you going to do about Iverson?” Alex probes. “Seems like this is definitely the sort of thing he’d be able to feel.”
 
 “Yeah. It does.”
 
@@ -4962,9 +4962,9 @@ I spent a good chunk of the night thinking about it. We can’t do it here for o
 
 “I can’t think of a better place,” I admit. “Iverson presumably already knows about it, so we wouldn’t be giving anything away by doing it there, and though it might not be much, maybe it will help to muddy the waters a little bit. Could be me, but it could also be you or Davy.”
 
-“Well, if we do it there, we could all go for brunch first. Maybe send Gavin and Giorgi around to check it out before we show up,” Alex says shrugging.
+“Well, if we do it there, we could all go for brunch first. Maybe send Gavin and Giorgi around to check it out before we show up,” Alex suggests, shrugging.
 
-“Yeah. Where is Davy, anyway?” I ask, taking a sip of my coffee.
+“Yeah. Where is Davy, anyway?” I wonder, taking a sip of my coffee.
 
 “He went down to talk to Peter and Liam.”
 
@@ -4972,7 +4972,7 @@ I spent a good chunk of the night thinking about it. We can’t do it here for o
 
 Alex shrugs.
 
-“Are you still mad at him?” I ask.
+“Are you still mad at him?” I pry.
 
 “Mad might be overstating it, but yeah. I’m somewhat irritated he didn’t mention anything at all.”
 
@@ -5006,9 +5006,9 @@ I shrug and seriously debate whether or not to share the next thing I’m thinki
 
 Alex nods.
 
-“After the pass, when I woke up, you were all gone. I found Davy unconscious and I was so weak I could barely get him onto my horse. Then to find out she’d taken Liam… I spent so much magic—so much of myself—keeping us all alive during the pass that I was too weak to do anything about any of it for that first day. I couldn’t do *anything*. It made me realize for maybe the first time what being powerless would be like. I think I’d like that even less,” I admit. “And that realization scares me, because I always thought all this power was something I could do without. Something I would willingly give up if I could. But now, having felt that, I don’t know if I would actually be willing to give up *any* of it.
+“After the pass, when I woke up, you were all gone. I found Davy unconscious and I was so weak I could barely get him onto my horse. Then, to find out she’d taken Liam… I spent so much magic—so much of myself—keeping us all alive during the pass that I was too weak to do anything about any of it for that first day. I couldn’t do *anything*. It made me realize, maybe for the first time, what being powerless would be like. I think I’d like that even less,” I admit. “And that realization scares me, because I always thought all this power was something I could do without. Something I would willingly give up if I could. But now, having felt that, I don’t know if I would actually be willing to give up *any* of it.
 
-“And I really don’t like knowing that about myself. It makes me feel more like her, and less like I can trust myself at all. Then when you factor in the fact I already risked Liam’s life on nothing more than a guess that she wouldn’t kill him when we all left, and the fact I’m willing to do it again now…” I trail off.
+“And I really don’t like knowing that about myself. It makes me feel more like her, and less like I can trust myself at all. Then when you factor in that I already risked Liam’s life on nothing more than a guess that she wouldn’t kill him when we all left, and the fact I’m willing to do it again now…” I trail off.
 
 Even though it’s something I realized a while ago, and have been thinking about a lot, saying it out loud to another person—even Alex who’s not that different from me—makes me feel vulnerable, like I’m showing off the parts of myself there’s something wrong with.
 
@@ -5020,11 +5020,11 @@ A little while later, Davy comes back with Liam in tow.
 
 After a few minutes of hushed conversation between Alex and Davy, which I’m sure has a lot to do with me and Liam, Davy says, “Alex and I will meet you two at the cafe with the others in an hour and a half or so.”
 
-“Have you decided?” I ask Liam once the door shuts behind them.
+“Have you decided?” I question Liam once the door shuts behind them.
 
 “Yes.”
 
-“Okay, well before you tell me what you decided, I want to talk for a minute,” I tell him as I take a seat at the table and nod for him to do the same. Once we’re both seated I blurt out, “I don’t know if you should trust me.”
+“Okay, well, before you tell me what you decided, I want to talk for a minute,” I tell him as I take a seat at the table and nod for him to do the same. Once we’re both seated, I blurt out, “I don’t know if you should trust me.”
 
 “Why?” he asks slowly.
 
@@ -5034,11 +5034,11 @@ He nods. Of course he remembers. I’m just stalling.
 
 “When you woke up, you asked if everything was okay, and I said we could talk about it later, but there was never a good time for later.” I sigh. “And I didn’t want to talk about it. Mostly the second part. Only now I think we should.
 
-“I wasn’t sure,” I admit. “I wasn’t sure she wasn’t going to kill you. Killing you wasn’t the logical choice. There was nothing to be gained by it, but she doesn’t always make the logical choice. I told you I was sure because I *wanted* to be sure but probably also because I wanted to get off that ship and I wanted you to come with me. I’ve always known I was willing to gamble with my own life, but it’s mine to do with what I want, so I’ve never had an issue with that. But I am, evidently, also willing to gamble with your life on a maybe, and I don’t particularly like that about myself. I feel like you should know before you make a decision.”
+“I wasn’t sure,” I admit. “I wasn’t sure she wasn’t going to kill you. Killing you wasn’t the logical choice. There was nothing to be gained by it, but she doesn’t always make the logical choice. I told you I was sure because I *wanted* to be sure, but probably also because I wanted to get off that ship and I wanted you to come with me. I’ve always known I was willing to gamble with my own life, but it’s mine to do with what I want, so I’ve never had an issue with that. But I am, evidently, also willing to gamble with *your* life on a maybe, and I don’t particularly like that about myself. I feel like you should know before you make a decision.”
 
 I sigh, but force myself to continue. “I’ve also always thought I would give up all this power if I could, but after the pass and what happened afterward, I don’t know if that’s true. Actually, that’s a lie. If I’m being honest, I don’t think I would, which is not something I want to admit to you. Or anyone.” I hate it. I hate that this is who I am.
 
-Liam’s face gives nothing away, and he says nothing for several long minutes. Finally, he tells me, “No one *ever* gives up power willingly. Lots of people like to say they would, but when push comes to shove they don’t. Usually they try to grab more power at that point, and hold onto it tighter, while continuing to tell themselves they’re not the type of person who would do that.”
+Liam’s face gives nothing away, and he says nothing for several long minutes. Finally, he tells me, “No one *ever* gives up power willingly. Lots of people like to say they would, but when push comes to shove they don’t. Usually they try to grab more power at that point, and hold onto it tighter, while continuing to tell themselves they’re not the kind of person who would do that.”
 
 He leans back in his chair, drumming his fingers across the table top. “I would say I think that makes you normal, but you realize you’re unlikely to give it up, which is more than most people can say. You’re also not trying to actively cultivate more power for yourself, which you certainly have plenty of opportunity to do if you wanted.”
 
@@ -5050,7 +5050,7 @@ He leans back in his chair, drumming his fingers across the table top. “I woul
 
 My mouth drops at his last words. “I’m not… I don’t… That was a dick thing to say!”
 
-“It’s true,” Liam says evenly.
+“It’s true,” Liam states evenly.
 
 “You have no idea—”  I begin.
 
@@ -5058,23 +5058,23 @@ My mouth drops at his last words. “I’m not… I don’t… That was a dick t
 
 “Then you’re an idiot!” I want to shout it at him, but I’m so tired. “And you have no idea. None. None of you do,” I can’t explain it but I’m certain it’s true. Everyone thinks they know who I am and what I’m capable of, but how could they possibly know when I’m not even sure myself?
 
-“Are you done telling me what I know?” Liam asks.
+“Are you done telling me what I know?” Liam challenges.
 
 “I don’t know. Are you done telling me who I am?” My tone is brittle and angry and it fully reflects how I feel. How I’ve felt since last night. Since Liam pointed out I don’t always think to include him when I make decisions affecting both of us. Since Davy reminded me of what my mother did before I was even born. Of who I am. Of our sameness.
 
-“Probably not,” he states.
+“Probably not,” he responds.
 
 I think I’ve had it with everyone. With the entire world. I shove my chair back from the table and stand up because I feel like I’m going to explode, but Liam grabs my wrists.
 
-“Ask me why.” he tells me as he stares me down.
+“Ask me why,” he urges as he stares me down.
 
-“I don’t care why.”
+“I don’t care why!”
 
 “Ask. Me. Why.”
 
-“Fine. Why? I’m waiting with bated breath,” I say sarcastically.
+“Fine. Why? I’m waiting with bated breath,” I retort sarcastically.
 
-“Perhaps we all tell you that we think you’re a good person because we think you’re a good person, but more importantly because we think you *need* to hear it. It’s possible you don’t give *us* enough credit. Maybe we all realize how easy it would be for you to *stop* being a good person. So we tell you to remind you. To give you expectations to live up to.”
+“Perhaps we all tell you that we think you’re a good person because we think you’re a good person, but more importantly because we think you *need* to hear it. It’s possible you don’t give *us* enough credit. Maybe we all realize exactly how easy it would be for you to *stop* being a good person. So we tell you to remind you. To give you expectations to live up to.”
 
 “That’s asinine!”
 
@@ -5082,7 +5082,7 @@ Liam releases my wrists and shrugs. “Are you done being mad yet?”
 
 “No! I’ve barely even gotten started!” I shout back at him, and I don’t think I’ve ever said anything in my life which has felt more true.
 
-“Well, how about I tell you my terms before you storm off?” Liam asks with a gleam to his eye that both intrigues and annoys me.
+“Well, how about I tell you my terms before you storm off?” Liam proposes, with a gleam to his eye that both intrigues and annoys me.
 
 “Your *terms*?” I spit back at him.
 
@@ -5094,17 +5094,17 @@ His last statement takes a little bit of the wind out of my sails. “What are y
 
 Ouch. That stings a little bit. Mostly because it’s so incredibly accurate. I slowly sink back down into my seat.
 
-“Okay,” I say. “Go on.”
+“Okay,” I respond begrudgingly. “Go on.”
 
-“You want to do this because you don’t want her to have power over you. Her connection to me gives her power over you *because* you love me. But long term, you and I both know you would sooner we both die than let her use me to control you, because your love for me probably wouldn’t survive that.”
+“You want to do this because you don’t want her to have power over you. Her connection to me gives her power over you *because* you love me. But long term, you and I both know you would sooner we both die than let her use me to control you, because your love for me wouldn’t survive that.”
 
-I think he’s wrong about that last statement, and that’s what really scares me. That’s why I don’t want her to have that kind power over me. I would die for Liam, but I would also kill for him. Maybe for Alex and Davy too. I would raze entire cities to nothing more than smoldering ash. That’s why she can’t have that kind of power over me.
+I think he’s wrong about that last statement, and that’s what really scares me. That’s why I don’t want her to have that kind of power over me. I would die for Liam, but I would also kill for him. Probably for Alex and Davy too. I would raze entire cities to nothing more than smoldering ash. That’s why she can’t have that kind of power over me.
 
-My mother and I have been locked in a quiet stalemate since Leisch. She can’t kill Liam because I’ll kill her if she does, but there’s only so far I can stretch that, because she knows I won’t stand there and watch Liam die, so if she wants to call my bluff, *really* call it… Well. Knowing her, that’s why she wanted me and Davy in Dairuvar.
+My mother and I have been locked in a quiet stalemate since Leisch. She can’t kill Liam because I’ll kill her if she does, but there’s only so far I can stretch that, because she knows I won’t stand there and watch Liam die, so if she wants to call my bluff, *really* call it… Well. Knowing her, that’s why she wants me and Davy in Dairuvar.
 
 But I don’t tell him any of that, I merely say, “Perhaps you underestimate my love for you.”
 
-“Perhaps,” he says shrugging, “either way, I want this, but you want it more.”
+“Perhaps,” he agrees shrugging, “either way, I want this, but you want it more.”
 
 I nod, it’s true.
 
@@ -5112,11 +5112,11 @@ I nod, it’s true.
 
 I look at him questioningly.
 
-Seeing my expression, he says, “Back in Leisch you said you wanted a failsafe. A way someone could take you out if it all goes wrong. Congratulations. You’re getting one today.”
+Seeing my confusion, he says, “Back in Leisch you said you wanted a failsafe. A way someone could take you out if it all goes wrong. Congratulations. You’re getting one today.”
 
 “I—no. I don’t want that.”
 
-“Oh? Did you have someone else in mind?” Liam asks facetiously.
+“Oh? Did you have someone else in mind?” Liam inquires facetiously.
 
 “No. I just—no.”
 
@@ -5124,11 +5124,11 @@ Seeing my expression, he says, “Back in Leisch you said you wanted a failsafe.
 
 I want to reject them, but he’s right. I need this. I need it so much more than he does. I need him to be safe from her. And I need to talk to her. And I need a gods damned failsafe. I need all of it.
 
-“Fine. Deal,” I tell him, as I stand back up and extend my hand toward him.
+“Fine. Deal,” I agree, as I stand back up and extend my hand toward him.
 
 He clasps his hand around mine, and uses it to pull me closer to him.
 
-“I’m still mad,” I tell him as he wraps his arms around me.
+“I’m still mad,” I inform him as he wraps his arms around me.
 
 “I know.”
 

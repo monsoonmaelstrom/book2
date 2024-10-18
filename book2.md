@@ -4182,13 +4182,13 @@ Alex rolls his eyes.
 
 ### 20 - Ride
 
-“Where are you going?” Liam asks as he walks alongside me matching me step for step as I climb the stairs.
+“Where are you going?” Liam asks, as he walks alongside me matching me step for step as I climb the stairs.
 
 “To the roof. Do you have the key for the door?”
 
-“Yes, but what are you going to do? You need to keep a low profile, remember?” He asks, his voice tight.
+“Yes, but what are you going to do? You need to keep a low profile, remember?” He reminds me, his voice tight.
 
-“There’s not a whole lot of reason to keep a low profile, now that Iverson is *here*, and has seen me. Right now, I need to do exactly the opposite of that. Don’t worry. Only Iverson will know it was me, and he’s not going to say anything,” I tell Liam with more confidence than I feel.
+“There’s not a whole lot of reason to keep a low profile, now that Iverson is *here*, and has seen me. Right now, I need to do exactly the opposite of that. Don’t worry. Only Iverson will know it was me, and he’s not going to say anything,” I state with more confidence than I feel.
 
 I can tell Liam has doubts, but he unlocks the door once I reach it, and I fling it open and step out onto the rooftop.
 
@@ -4200,27 +4200,27 @@ I start pulling power into me. A lot of power, as quickly as I can. I use it to 
 
 The temperature is rapidly plummeting, but I want it to dip even more. I can see my breath in the air now, but it’s not cold enough yet to make the snow last overnight.
 
-If I’m right, I’m making such a cacophony right now, that there’s no way Iverson will be able to track anyone else’s magic, regardless of how he’s doing it. The temperature where I’m standing is cool enough now, but I want the whole city to be this cold. Fortunately the wind is also cycling the air, so it shouldn’t be too much longer.
+If I’m right, I’m making such a cacophony right now, that there’s no way Iverson will be able to track anyone else’s magic, regardless of how he’s doing it. The temperature where I’m standing is cool enough, but I want the whole city to be this cold. Fortunately the wind is also cycling the air, so it shouldn’t be too much longer.
 
 Once it’s almost cold enough, I send the temperature plummeting the last little bit when I coalesce the clouds overhead and the first flurries begin to fall. Then I cut it all off.
 
 I’m grinning as I hold out my palm to catch a flake. Snow is wonderful when you don’t have to worry about it killing you.
 
-“What was that?” Liam asks as he rushes toward me and grabs my shoulders, worry clear in his slate grey eyes.
+“What was that?” Liam barks out, as he rushes toward me and grabs my shoulders, worry clear in his slate grey eyes.
 
 I encircle us so that no one listening, assuming anyone is, can hear our conversation. “A distraction. Hopefully.”
 
-“I’ve never felt you do anything like that,” Liam tells me as he looks down into my eyes.
+“I’ve never felt you do anything like that!” Liam exclaims as he looks down into my eyes.
 
 “Because normally I’m not endeavoring to show off in the stupidest possible way.”
 
-“And you think now is the time to do that? To make yourself a target?” he asks with a hint of anger.
+“And you think now is the time to do that? To make yourself a target?” he challenges, with a hint of anger.
 
-“I think,” I say, holding onto him a little tighter, “it worked on the archery field.”
+“I think,” I explain, holding onto him a little tighter, “it worked on the archery field.”
 
 “The… what? That competition we had?”
 
-“Yes. I made myself a target, and then I trusted Davy and Alex to pick you all off. I bet you guys never even fired a single shot that was anywhere close to either of them because you were all so focused on me. Same principle. Whatever is going to happen with Iverson, confronting him head on isn’t going to work. But letting him think that’s what I’m doing might.” I kiss Liam gently.
+“Yes. I made myself a target, and then I trusted Davy and Alex to pick you all off. I bet you guys never even fired a single shot that was anywhere close to either of them, because you were all so focused on me. Same principle. Whatever is going to happen with Iverson, confronting him head on isn’t going to work. But letting him think that’s what I’m doing might.” I kiss Liam gently.
 
 “I—a little warning might be nice.”
 
@@ -4238,9 +4238,9 @@ I shrug.
 
 “What look?”
 
-“Hazel,” Liam says, his voice full of admonishment.
+“Hazel,” Liam rebukes, his voice full of admonishment.
 
-“I think maybe she was teaching us how to break without being broken.”
+“I think maybe she was teaching us how to break, without being broken.”
 
 “That sounds…”
 
@@ -4256,15 +4256,17 @@ The next few days go by unremarkably, aside from the constant talk of how odd th
 
 I need to talk to Davy, but I’m unwilling to draw attention to him by doing so, especially since I know as soon as he thinks he’s got it figured out, he’ll let me know.
 
-So instead, I continue on pretending everything is fine. I show up to the classes I’m supposed to. I do the work I’m supposed to. In the evenings I’ve been sparring with Amelia. She hasn’t won since that first time. I’ve been spending my nights in Liam’s room since he seems worried I’m going to do something stupid if left to my own devices. I’m not, but I’m also not complaining. It’s better than spending all night awake and alone in my room. While Liam sleeps each night, I’ve been trying to work out how Iverson knew where I was that first day, and I think I’ve got it. It’s those damn energy meridians. It’s got to be. Nothing else explains it. I bet he can sense them. I proved I can do it to an extent with Lisette. It’s definitely easier the closer I am, but I also bet the bigger they are the easier they are to feel. Meaning mine are probably the easiest to feel of all. I’ve been trying to feel them out in the nights when everyone else is asleep, and I can definitely feel Liam’s, but he’s right next to me. I feel twinges I believe might be others, much farther away and much dimmer. I think it’s partially because I’m not very good at it—yet—but also because distance diminishes it like it does with every other sense. Meaning he probably can’t find Davy and Alex unless he gets close to them, and if I’m making a bunch of other noise at the same time, he might not be able to even if he’s close.
+So instead, I continue on pretending everything is fine. I show up to the classes I’m supposed to. I do the work I’m supposed to. In the evenings, I’ve been sparring with Amelia. She hasn’t won since that first time. I’ve been spending my nights in Liam’s room since he seems worried I’m going to do something stupid if left to my own devices. I’m not, but I’m also not complaining. It’s better than spending all night awake and alone in my room.
+
+While Liam sleeps each night, I’ve been trying to work out how Iverson knew where I was that first day, and I think I’ve got it. It’s those damn energy meridians. It’s got to be. Nothing else explains it. I bet he can sense them. I proved I can do it to an extent with Lisette. It’s definitely easier the closer I am, but I also bet the bigger they are, the easier they are to feel. Meaning mine are probably the easiest to feel of all. I’ve been trying to feel them out in the nights when everyone else is asleep, and I can definitely feel Liam’s, but he’s right next to me. I feel twinges I believe might be others, much farther away and much dimmer. I think it’s partially because I’m not very good at it—yet—but also because distance diminishes it like it does with every other sense. Meaning he probably can’t find Davy and Alex unless he gets close to them, and if I’m making a bunch of other noise at the same time, he might not be able to even if he’s close.
 
 Liam said Iverson was staring at them with a blank expression the entire time he was reporting to Commander Selby. I bet the majority of Iverson’s focus was on figuring out where I was during the conversation, all so he could get up and walk there like he knew exactly where I was the whole time. It was a bluff. He was showing off. I find the realization oddly comforting.
 
-Initially, it was bothering me that I couldn’t feel General Iverson when trying to feel for the energy meridians around me. I’m not exactly sure where he is, but I’m sure he’s lurking somewhere close by. And based on what I felt in the gym, he should glow the same way I think I do. However, it occurred to me not long after that, that if I can be really loud, I can probably be really quiet. It’s what I’ve been focused on for the past several hours. It’s actively different from not using any magic or not pulling in any power. Even when I’m not doing either of those things, my energy meridians still practically glow. I think I’ve figured out the knack for making them dimmer though. I want to see if I can make them go dark, and if I can, can I hold them like that? And what happens if I do? I feel like there could be some negative side effects, but it seems like it could be useful enough to chance it.
+Initially, it was bothering me that I couldn’t feel General Iverson when trying to feel for the energy meridians around me. I’m not exactly sure where he is, but I’m sure he’s lurking somewhere close by. And based on what I felt in the gym, he should glow the same way I think I do. However, it occurred to me not long after that, that if I can be really loud, I can probably be really quiet. It’s what I’ve been focused on for the past several hours. It’s actively different from not using any magic or not pulling in any power. Even when I’m not doing either of those things, my energy meridians still practically glow. Although, I think I’ve figured out the knack for making them dimmer. I want to see if I can make them go dark, and if I can, can I hold them like that? And what happens if I do? I feel like there could be some negative side effects, but it seems like it could be useful enough to chance it.
 
-Right now I’ve got them like banked ashes and I’ve been holding them there for close to thirty minutes. It takes no small amount of effort or focus, but I’m betting it’s one of those things that gets easier with practice since Iverson seems to be able to do it almost constantly.
+Right now I’ve got them like banked ashes and I’ve been holding them there for close to thirty minutes. It takes no small amount of effort or focus, but I’m betting it’s one of those things that gets easier with practice, since Iverson seems to be able to do it almost constantly.
 
-I hear a knock on the door, which startles me, since it’s close to three in the morning and the halls have been silent for hours. But it doesn’t startle me enough to let my meridians flare back up. It does wake Liam up though. He looks at me with his eyebrows raised in question, and I shrug. I fade back into the shadows where I won’t be visible from the door as Liam gets up to open it.
+I hear a knock on the door, which startles me, because it’s close to three in the morning and the halls have been silent for hours. But it doesn’t startle me enough to let my meridians flare back up. It does wake Liam up though. He looks at me with his eyebrows raised in question, and I shrug. I fade back into the shadows where I won’t be visible from the door as Liam gets up to open it.
 
 “General Iverson?” Liam asks groggily.
 
@@ -4274,23 +4276,23 @@ Shit.
 
 *Lie. Lie. Lie.*
 
-“Why would she be with me?” Liam asks, still sounding half asleep.
+“Why would she be with me?” Liam questions, still sounding half asleep.
 
 “Because she’s spent every night in this room since you returned.” It definitely sounds like a statement of fact and not a question or an assumption.
 
 *Hah! I’m right.* I grin but make sure to keep everything banked exactly the way it was before he knocked on the door.
 
-“I haven’t seen her,” Liam says tonelessly.
+“I haven’t seen her,” Liam answers tonelessly.
 
-“Hmm,” I hear and then the door shuts.
+“Hmm,” I hear, and then the door shuts.
 
-“What was that about?” Liam asks when he sees the look on my face.
+“What was that about?” Liam wants to know when he sees the look on my face.
 
 I hold my finger up to my lips, but say nothing. I gesture to the air around us. Can Liam make a sound shield? I have no idea, but I can’t do it right now without potentially alerting Iverson to what I’ve been doing.
 
 Liam looks confused, so I gesture to the air around us again and point to my ear. I see him realize what I’m asking and he shrugs.
 
-“Fortunately, I’ve seen you do that a lot,” Liam says after a moment of concentration.
+“Fortunately, I’ve seen you do that a lot,” Liam comments, after a moment of concentration.
 
 I resist the urge to jump into his arms, barely. Instead, I fling myself against him, grinning like a maniac. “I’ve got it!”
 
@@ -4298,7 +4300,7 @@ I resist the urge to jump into his arms, barely. Instead, I fling myself against
 
 “I know how he found me in the gym that day. He just gave himself away!”
 
-I kiss him because I can’t help myself. All this exuberance I’m feeling has to go somewhere and he’s the only available target. By the time I come up for a breath, I am actually in his arms, and he looks thrilled for an entirely different reason.
+I kiss him because I can’t help myself. All this exuberance I’m feeling has to go somewhere, and he’s the only available target. By the time I come up for a breath, I am actually in his arms, and he looks thrilled for an entirely different reason.
 
 “I can’t,” I tell him when he leans in for another kiss. “I can’t do that and this at the same time. Yet.”
 
@@ -4308,13 +4310,13 @@ I kiss him because I can’t help myself. All this exuberance I’m feeling has 
 
 “Instead of sleeping?”
 
-“Yes! I can feel yours when you’re close to me, and I think if I practiced more I could feel them from farther away. I think maybe I can feel others in the distance as well, but I can’t feel his and I know he’s been hanging about, so I figured he must be doing something to hide them. So I’ve been working on doing it too.”
+“Yes! I can feel yours when you’re close to me, and I think if I practiced more I could feel them from farther away. I think maybe I can feel others in the distance as well, but I can’t feel his and I know he’s been hanging about, so I figured he must be doing something to hide them. So I’ve been working on doing it, too.”
 
 “Is that why you couldn’t do any magic?”
 
-“Yes! Right now I’ve got them all dimmed down really low, but to do magic I’m pretty sure I’d have to let them go back to normal, and as soon as I did that, he would know I was here, and then he would know I’ve figured it out.”
+“Yes! Right now I’ve got them all dimmed down really low, but to do magic I’m pretty sure I’d have to let them go back to normal, and as soon as I did that, he would know I was here, and then he would know I figured it out.”
 
-“So how much focus does it take?” Liam asks as his mouth caresses the side of neck.
+“So how much focus does it take?” Liam asks as his mouth caresses the side of my neck.
 
 I want to let him keep going. I really, really do but right now I can’t. “Too much.”
 
@@ -4324,7 +4326,7 @@ I want to let him keep going. I really, really do but right now I can’t. “To
 
 That earns me an honest laugh.
 
-“Alright. Do you want to start trying to teach me how to do it then? I’m definitely not going to be able to fall back asleep.”
+“Alright. Do you want to start trying to teach me how to do it? I’m definitely not going to be able to fall back asleep.”
 
 ### 21 - Just a Girl/Stupid Girl
 

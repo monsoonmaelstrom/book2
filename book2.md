@@ -4334,9 +4334,9 @@ The next day I’m sitting in the gallery listening to a last minute session abo
 
 The Avonarese Commander has been called in to give a briefing about the return of Avonare Polity’s heir. Evidently, my mother chose this morning to announce she’s back. From the sound of things, she hasn’t mentioned Alex or me, which is good news for both of us, as far as I’m concerned. If she could forget we exist entirely, it would solve about half of my problems.
 
-Earlier this morning she, apparently, summoned the Avonarese Commander to the residence she has been staying in, and requested Commander Melbrin accompany her to Corriven. I haven’t been able to figure out the angle behind her request yet since, on its face, it’s a stupid request. Nothing about my mother’s return is official yet, and therefore Commander Melbrin doesn’t answer to her. The overall discussion so far has put forth the same argument.
+Earlier this morning she, apparently, summoned the Avonarese Commander to the residence she has been staying in, and requested Commander Melbrin accompany her to Corriven. I haven’t been able to figure out the angle behind her request yet since, on its face, it’s a stupid request. Nothing about my mother’s return is official yet, and therefore Commander Melbrin doesn’t answer to her. The overall discussion thus far has put forth the same argument.
 
-I don’t think my mother’s going to get what she’s asking for, but I also don’t think she ever expected to, so there must be some other reason she was asking for it. But the only reason I can figure she might have, is to cause this exact situation, which doesn’t make any sense to me either. Though I have heard rumors swirling around stating Dairuvar is mobilizing its army near its northeastern border—the one it shares with Avonare. So maybe her decision to suddenly announce her return is related to that. Or maybe she’s behind those rumors. I think both options are equally plausible.
+I don’t think my mother’s going to get what she’s asking for, but I also don’t think she ever expected to, so there must be some other reason she was asking for it. But the only reason I can figure she might have, is to cause this exact situation, which doesn’t make any sense to me either. Though I have heard rumors swirling around stating Dairuvar is mobilizing its army near its northeastern border—the one it shares with Avonare. Maybe her decision to suddenly announce her return is related to that. Or maybe she’s behind those rumors. I think both options are equally plausible.
 
 People have been coming in and out of the gallery throughout the discussion—since as far as political gossip goes, this is prime—so when the bench creaks next to me, I pay it no mind. Slowly, I begin to feel a ramp up in the energy around me. It goes from nothing, to a trickle, then a steady flow, to a raging river. I ignore it, and focus on the scene in front of me as if I feel nothing. I know it must be General Iverson. And evidently he’s hoping to elicit a reaction from me. But I know nothing. I see nothing. I feel nothing.
 
@@ -4360,7 +4360,7 @@ Eventually someone calls for a recess. As soon as the statement is made I feel a
 
 “Where were you last night?”
 
-“Last night?” I repeat as if I’m confused by the question.
+“Last night?” I repeat, as if I’m confused by the question.
 
 “Yes. After curfew. Where were you?”
 
@@ -4370,9 +4370,9 @@ Eventually someone calls for a recess. As soon as the statement is made I feel a
 
 “In my room?”
 
-“Are you sure?” he asks. “Because I knocked on your door and no one answered.”
+“Are you sure?” he asks. “Because I knocked on your door, and no one answered.”
 
-“On *my* door?” I wait but he says nothing. “I’m a heavy sleeper. I must not have heard you. I’m sorry. Is there something I can help you with now, sir?”
+“On *my* door?” I wait, but he says nothing. “I’m a heavy sleeper. I must not have heard you. I’m sorry. Is there something I can help you with now, sir?”
 
 “So you weren’t in Captain Marten’s room?”
 
@@ -4380,15 +4380,15 @@ I shake my head mutely.
 
 “I saw you sparring in the gym.”
 
-“Last night?” I ask as if I can’t follow the subtext of the conversation at all.
+“Last night?” I question, as if I can’t follow the subtext of the conversation at all.
 
 “No.”
 
 “Oh. When?”
 
-“The day you and the others returned.”
+“The day you, and the others, returned.”
 
-“Oh. I don’t remember you being there. Sorry. I took kind of a nasty blow to the head that night. I had a concussion and everything,” I tell him as I rub at the back of my head like it still kind of hurts.
+“Oh. I don’t remember you being there. Sorry. I took kind of a nasty blow to the head that night. I had a concussion and everything,” I tell him, as I rub at the back of my head like it still kind of hurts.
 
 “The weather was very peculiar that night.”
 
@@ -4398,7 +4398,7 @@ He’s beginning to look a touch exasperated. I fight the urge to grin, and inst
 
 “Do you know who I am, Miss Raidane?”
 
-“Yes?” I say with what I hope is more than a fair amount of confusion. “You’re General Iverson. I haven’t confused you with someone else have I?”
+“Yes?” I say with what I hope is more than a fair amount of bewilderment. “You’re General Iverson. I haven’t confused you with someone else have I?”
 
 “Hmm,” he says before getting up and leaving.
 
@@ -4406,9 +4406,9 @@ I debate calling out ‘Bye!’ to his receding back, but decide not to push my 
 
 ----
 
-“I saw you talking to General Iverson earlier,” Henry says as we sit together at a table with Amelia.
+“I saw you talking to General Iverson earlier,” Henry comments, as we sit together at a table with Amelia.
 
-“Correction, you saw General Iverson talking to me earlier,” I tell him as I blow on a spoonful of soup.
+“Correction, you saw General Iverson talking *to me* earlier,” I tell him as I blow on a spoonful of soup.
 
 “Really?” Amelia asks.
 
@@ -4418,15 +4418,15 @@ I debate calling out ‘Bye!’ to his receding back, but decide not to push my 
 
 “Information,” I answer. I’m just not sure if he was looking for information about my mother, or information about me. He definitely didn’t get any of the former, and I hope he got very little of the latter.
 
-Since the end of the session this afternoon, all I’ve heard in every hallway and every room, are conversations about Avonare and the Raidanes. People are wondering where my mother has been for the last three decades, what she’s been doing, and, most importantly, why she’s back now. I’ve heard wild speculation—she was being held prisoner by Dairuvar or Oulanen, she was being held hostage by her own family—as well as more reasonable statements—she had a mental breakdown, she abdicated but then realized the error of her ways. Both flavors of gossip are variously asserting she’s come back to stabilize the alliance or tear it apart, depending on who’s doing the talking. I’m already finding it exhausting.
+Since the end of the session this afternoon, all I’ve heard in every hallway and every room, are conversations about Avonare and the Raidanes. People are wondering where my mother has been for the last three decades, what she’s been doing, and, most importantly, why she’s back now. I’ve heard wild speculation—she was being held prisoner by Dairuvar or Oulanen, she was being held hostage by her own family—as well as more reasonable statements—she had a mental breakdown, she abdicated but then realized the error of her ways. Both flavors of gossip are variously asserting that she’s come back to stabilize the alliance or tear it apart, depending on who’s doing the talking. I’m already finding it exhausting.
 
-“What did you tell him?” Henry asks.
+“What did you tell him?” Henry questions.
 
 “That I like oolong tea.”
 
 “No, seriously.”
 
-“Seriously. I told him I like oolong tea,” I grin remembering the annoyance that flickered across his face as I said that. “Do you guys remember the stuff about the energy meridians?” I ask, changing the subject.
+“Seriously. I told him I like oolong tea,” I grin, remembering the annoyance that flickered across his face as I said that. “Do you guys remember the stuff about the energy meridians?” I wonder, changing the subject.
 
 They both nod.
 
@@ -4436,7 +4436,7 @@ They both nod.
 
 “I need you guys to work on being able to feel them,” I tell them. “It’s important.”
 
-“Important why?” Amelia asks.
+“Important why?” Amelia wants to know.
 
 “I’ll tell you when you figure out how to feel them. See you in the gym later?” I ask her as I stand up to leave.
 
@@ -4448,9 +4448,9 @@ Iverson shows up that night in the gym while Amelia and I are sparring. Of cours
 
 He didn’t drag Liam with him tonight, which also doesn’t surprise me.
 
-The first time he was here, he saw me lose to Amelia. I intend for him to see the same scenario again this time. I expect he’ll do the same thing tonight he did that first night. Since he saw me react that first night, I can’t pretend like I don’t feel it, but I can act like I have no idea what it is or what the source is. Which is to say, if I’m right and he does it again, I intend to react exactly the same way I did then. Let him think I still have no idea what it is or that it’s coming from him.
+The first time he was here, he saw me lose to Amelia. I intend for him to see the same scenario again this time. I expect he’ll do the same thing tonight he did then. Since he saw me react that first night, I can’t pretend like I don’t feel it, but I can act like I have no idea what it is or what the source is. Which is to say, if I’m right and he does it again, I intend to react exactly the same way I did then. Let him think I still have no idea what it is, or that it’s coming from him.
 
-I slow all my reactions just enough to give Amelia another slight advantage in addition to the size advantage she already has on me.
+I slow all of my reactions just enough to give Amelia another slight advantage in addition to the size advantage she already has on me.
 
 Iverson has been watching us spar for probably close to ten minutes before I finally feel that same physical rippling sensation that makes the inside of my head feel like it’s expanding in size. Like before, I let myself appear distracted. Like I’m searching for the source.
 
@@ -4458,13 +4458,13 @@ Amelia goes on the attack, taking advantage of the perceived lapse in my attenti
 
 I tap the mat. “You win.”
 
-“Hah!” Amelia says rising to her feet and extending a hand to pull me up. Amelia likes winning. I don’t mind. So do I.
+“Hah!” Amelia says, rising to her feet and extending a hand to pull me up. Amelia likes winning. I don’t mind. So do I.
 
 “Nice,” I comment once we’re both back on our feet.
 
-“Want to go again?” she asks.
+“Want to go again?” she proposes.
 
-“No, though I was thinking about going for a run if you want to come,” I tell her. I don’t want to spend any longer in this gym with Iverson watching me than I have to, and I have a feeling he’ll stick around as long as I do.
+“No, though I was thinking about going for a run if you want to come,” I answer. I don’t want to spend any longer in this gym with Iverson watching me than I have to, and I have a feeling he’ll stick around as long as I do.
 
 As expected, she declines, and I spend the next hour running laps around the inside perimeter of the walls, thinking. Davy really needs to hurry up. I need to get out of this holding pattern.
 

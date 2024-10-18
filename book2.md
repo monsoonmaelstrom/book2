@@ -3994,7 +3994,7 @@ I hear the door open and shut.
 
 “What happened?” I ask.
 
-“You don’t remember?” Liam asks.
+“You don’t remember?” Liam questions, and I hear the concern in his voice.
 
 “I remember Amelia and I were sparring.” I pause. “And then I remember seeing you. And… Was General Iverson with you?”
 
@@ -4006,7 +4006,7 @@ I hear the door open and shut.
 
 “I definitely have a concussion,” I mutter. “With Iverson here, it’s not safe.”
 
-“He’ll figure it out,” Liam tells me.
+“He’ll figure it out,” Liam states.
 
 “Fine,” I relent. “What happened?”
 
@@ -4026,7 +4026,7 @@ I hear the door open and shut.
 
 I wasn’t using any magic. I haven’t used any magic since before we got back to Branton. How did he know where I was? Amelia? Maybe. I’ll have to ask her. But if not… I don’t like the implications of that.
 
-“What did he do?” Liam asks. “I felt magic rolling out from him, but I don’t know what it was.”
+“What did he do?” Liam inquires. “I felt magic rolling out from him, but I don’t know what it was.”
 
 “I have no idea. I’ve never felt anything like it in my life. It almost felt like a sounding.”
 
@@ -4046,7 +4046,7 @@ I close my eyes. “Before or after you felt his magic?”
 
 “Well, damn.” My head somehow hurts worse, if that’s possible. “Can you go ask Amelia if she’s done any magic—anything at all—since we got back here?”
 
-“Okay, I’ll go talk to her once Alex gets here.”
+“Okay, I’ll talk to her once Alex gets here.”
 
 “How did the rest of it go?” I ask, trying to focus on something other than the pain, nausea, and desire to go to sleep.
 
@@ -4054,31 +4054,31 @@ I close my eyes. “Before or after you felt his magic?”
 
 “Did Iverson ask any questions?”
 
-“No. He just sat there and stared expressionlessly at us.”
+“No. He just sat there and stared at us expressionlessly.”
 
 “Great. Has Peter talked to him at all yet?”
 
-“Not that I know of,” Liam tells me.
+“Not that I know of,” Liam responds.
 
 “You should ask him. He’s going to have to,” I tell Liam, even though the thought only adds to my nausea.
 
-I obviously knew Peter would have to talk to Iverson at some point, and I didn’t like the idea then, but since some point is apparently now, I like the idea even less. I am literally going to have to trust Peter based on nothing at all. Or maybe it doesn’t even matter. Iverson is already here. I’m not sure what Peter could say to him that would make it worse. Iverson evidently knows exactly who I am, and if I had to guess he’s got a pretty solid idea what I’m capable of. At this point, the best we can probably hope to do is to keep Alex and Davy off his radar, and I have no idea how feasible that is. Maybe if I’m interesting enough he’ll forget to look for Davy.
+I obviously knew Peter would have to talk to Iverson at some point, and I didn’t like the idea then, but since some point is apparently now, I like the idea even less. I am literally going to have to trust Peter based on nothing at all. Or maybe it doesn’t even matter. Iverson is already here. I’m not sure what Peter could say to him that would make it worse. Iverson evidently knows exactly who I am, and if I had to guess he’s got a pretty solid idea what I’m capable of. At this point, the best we can probably hope to do is to keep Alex and Davy off his radar, and I have no idea how feasible that is. Maybe if I’m interesting enough, he’ll forget to look for Davy.
 
 “Okay,” Liam agrees. “How’s your head?”
 
 “I’ll live. At least for tonight. Probably.”
 
-Liam spends the next forty minutes or so it takes for Alex to arrive asking approximately once a minute if I’m awake. By the time I hear a tapping on the window, I’m about five minutes away from trying to strangle Liam simply to make him stop asking if I’m awake.
+Liam spends the next forty minutes, or so, it takes for Alex to arrive asking approximately once a minute if I’m awake. By the time I hear a tapping on the window, I’m about five minutes away from trying to strangle Liam simply to make him stop asking if I’m awake.
 
-“You couldn’t come through the door?” Liam asks as he opens the window for Alex.
+“You couldn’t come through the door?” Liam questions as he opens the window for Alex.
 
-“I left my Captain of the Guard costume in Davy’s flat,” Alex tells him sarcastically. “Makes walking through the building a little harder. Do me a favor and bring me a new one? Save me the trouble of getting it myself? Unless you want me snooping through your things, in which case I’m happy to oblige. I *am* interested in what other secrets you might be keeping.”
+“I left my Captain of the Guard costume in Davy’s flat,” Alex answers sarcastically. “Makes walking through the building a little harder. Do me a favor and bring me a new one? Save me the trouble of getting it myself? Unless you want me snooping through your things, in which case I’m happy to oblige. I *am* interested in what other secrets you might be keeping.”
 
 “I’ll trade you for it,” Liam tells him.
 
 I see a speculative look on Alex’s face when I glance toward the foot of the bed where they’re talking, and even pointing my eyes in that direction is enough to send a new wave of nausea roiling through me.
 
-“What happened to Hazel?” Alex asks Liam, seeming to notice I’m here for the first time.
+“What happened to Hazel?” Alex inquires, seeming to notice I’m here for the first time.
 
 “She lost,” Liam says.
 
@@ -4086,13 +4086,13 @@ I see a speculative look on Alex’s face when I glance toward the foot of the b
 
 “What was it you told Gavin before? Winning is winning and dead is dead?”
 
-“Piss off and go talk to Amelia, Liam.” I tell him. “And bring Alex a uniform when you come back. Please.”
+“Piss off and go talk to Amelia, Liam.” I bite out. “And bring Alex a uniform when you come back. Please.”
 
-I hear the door open and close, then Alex asks again, “What happened.”
+I hear the door open and close, then Alex asks again, “What happened?”
 
 “I fucking lost. To Amelia,” I grit out.
 
-“You lost a fight to Amelia?” Alex asks incredulously.
+“You lost a fight to Amelia?” Alex responds, incredulously.
 
 “To be fair, she’s better than you would expect, but I was surprised.”
 
@@ -4102,7 +4102,7 @@ I hear the door open and close, then Alex asks again, “What happened.”
 
 Alex reaches around to the back of my head, and the pain fades from stabbing to bearable to gone in seconds.
 
-“Thanks,” I say as I’m finally able to leverage myself into a sitting position.
+“Thanks,” I say, as I’m finally able to leverage myself into a sitting position.
 
 “So what happened?”
 
@@ -4124,7 +4124,7 @@ Alex reaches around to the back of my head, and the pain fades from stabbing to 
 
 “Yeah, maybe. Or at least I think he’s got a solid idea of what I *could* do, but maybe not necessarily what I *can* do,” I say with a shrug. “Like just because I could do something in theory, it doesn’t necessarily mean I can do it in practice. Or at least I’m hoping I can convince him of that.”
 
-“You’re going to what? Play dumb?”
+“You’re going to, what? Play dumb?”
 
 “It’s worked before,” I shrug. “Do you have a better idea?”
 
@@ -4132,17 +4132,17 @@ Alex reaches around to the back of my head, and the pain fades from stabbing to 
 
 “I have no idea if I can, Alex. I’ve never felt anything like that in my life.”
 
-“Well that’s reassuring.”
+“Well, that’s reassuring.”
 
 “Yeah. I know. After what I felt, I think Peter might have been right about her hiding,” I tell him quietly.
 
-“Do you know what Liam wants?” he asks, changing the subject. When he sees the look on my face he elaborates, “For the war college costume.”
+“Do you know what Liam wants?” he inquires, changing the subject. When he sees the confusion on my face he elaborates, “For the war college costume.”
 
 “Oh. No. No clue.”
 
-“Interesting. I can’t believe you let *Amelia* get the drop on you. I’m going to tell Peter,” Alex says, grinning.
+“Interesting. I can’t believe you let *Amelia* get the drop on you. I’m going to tell Peter,” Alex remarks, grinning.
 
-I sigh. “Yeah, well. Whatever. Tell him Iverson is around too.”
+I sigh. “Yeah, well. Whatever. Tell him Iverson is around, too.”
 
 We fall into silence while we wait for Liam to come back and it’s another ten minutes before I hear him tap on the door.
 
@@ -4150,9 +4150,9 @@ We fall into silence while we wait for Liam to come back and it’s another ten 
 
 “Perfect!” Alex says enthusiastically. “What do you want for it?”
 
-“Rings for you and Davy,” Liam tells him.
+“Rings for you and Davy,” Liam answers.
 
-“*Two* rings? For *one* uniform? Seems like a bit of a lopsided trade.”
+“*Two* rings? For *one* costume? Seems like a bit of a lopsided trade.”
 
 “Do you want a second uniform?”
 
@@ -4176,7 +4176,7 @@ Alex rolls his eyes.
 
 “Why?” he asks, clearly suspicious.
 
-“I’m going to go make a scene. I’m going to saturate the whole area in so much magic that hopefully Iverson will have no idea you were ever here, or are leaving. Hopefully it’ll be distracting enough that no one follows you. But still, be careful,” I tell him before I open my door and step out into the hallway.
+“I’m going to go make a scene. I’m going to saturate the whole area in so much magic that hopefully Iverson will have no idea you were ever here, or are leaving. Hopefully it’ll be distracting enough that no one follows you. But still, be careful,” I remind him before I open my door and step out into the hallway.
 
 “You’d better go with her,” I hear Alex tell Liam behind me. “Whatever she’s doing sounds like it’s probably a bad idea.”
 

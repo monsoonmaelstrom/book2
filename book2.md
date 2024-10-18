@@ -4476,7 +4476,7 @@ I’m getting edgy. It’s been close to two weeks since I’ve talked to Davy o
 
 “I talked to Peter a few days ago,” Liam tells me as his fingertips trail up my spine, eliciting a shiver.
 
-“And?” I ask prodding for more information.
+“And?” I prod for more information.
 
 I feel Liam shrug beneath me. “Everything was fine.”
 
@@ -4502,7 +4502,7 @@ Liam laughs. “I know. I know. I was only kidding. You’re an adrenaline junki
 
 “I’m not an adrenaline junkie!”
 
-“Uh huh,” he comments, clearly disagreeing.
+“Uh huh,” he remarks, clearly disagreeing.
 
 “I’m not!” I protest.
 
@@ -4510,11 +4510,11 @@ Liam laughs. “I know. I know. I was only kidding. You’re an adrenaline junki
 
 “Doesn’t everyone?”
 
-“No,” Liam answers before rolling and pinning me beneath him. “This, for instance, makes me feel much more alive than possibly dying does.”
+“No,” Liam answers, before rolling and pinning me beneath him. “This, for instance, makes me feel much more alive than possibly dying does.”
 
-I arch into him. “This makes me feel pretty alive too. It’s just… I need both, I guess. The way my heart races when I’m in bed with you is totally different than the way it pounds when I’m jumping across buildings or climbing something really high. I need both equally or I feel like something is missing,” I explain, running my hands over his chest.
+I arch into him. “This makes me feel pretty alive too. It’s just… I need both, I guess. The way my heart races when I’m in bed with you is totally different than the way it pounds when I’m jumping across buildings or climbing something really high. I need both equally, or I feel like something is missing,” I explain, running my hands over his chest.
 
-“I know,” Liam says, then kisses me softly. “I know who you are, Hazel. Shall we go out then? We can see who follows us.”
+“I know,” Liam says, then kisses me softly. “I know who you are, Hazel. Shall we go out? We can see who follows us.”
 
 “Could be dangerous,” I whisper.
 
@@ -4526,11 +4526,11 @@ I arch into him. “This makes me feel pretty alive too. It’s just… I need b
 
 We walk out the gate like normal people. It’s all very boring. There’s no one obviously following us, so we stop and linger on the bridge for a good while. If I’d thought to bring some bread, I could feed the swans which have recently migrated back. Unfortunately, it didn’t occur to me before we left. More’s the pity. Feeding the swans is great cover for standing around trying to figure out who might be following you. Plus, watching the swans squabble over bread is always amusing.
 
-I let my awareness expand outward as I search for the energy meridians of anyone who might be following us. I don’t feel anyone except Liam, who’s right next to me, but it would be stupid to assume that Iverson or one of his people isn’t following us. And more likely than not, not all of his people are magic users.
+I let my awareness expand outward, as I search for the energy meridians of anyone who might be following us. I don’t feel anyone except Liam, who’s right next to me, but it would be stupid to assume that Iverson or one of his people isn’t following us. And more likely than not, not all of his people are magic users.
 
-Eventually, we resume walking, taking a circuitous route through the city, and it feels so good to be away from the war college that I halfway toy with the idea of whether or not I want to go back.
+Eventually, we resume walking, taking a circuitous route through the city, and it feels so good to be away from the war college that I halfway toy with the idea of whether I want to go back.
 
-“Anything?” Liam asks me.
+“Anything?” Liam inquires.
 
 “Not that I can tell.”
 
@@ -4538,25 +4538,25 @@ Eventually, we resume walking, taking a circuitous route through the city, and i
 
 “Yeah. I do.”
 
-“Want to go get a drink?” Liam asks me, sliding an arm around my waist.
+“Want to go get a drink?” Liam asks, sliding an arm around my waist.
 
 “Yes.”
 
-Ten minutes later, we’re sitting at the bar of a nearby pub surveying the crowd entering and exiting. The pub is dimly lit, with low ceilings, but it manages to feel cozy, rather than claustrophobic. I haven’t been able to pick up on anyone following us. It’s starting to bug me. Both because I don’t like the thought I could be wrong, in which case everything I think about Iverson could be wrong, and because I don’t like the thought there’s someone watching me who is so much better at what they’re doing than I am. Both thoughts are disconcerting.
+Ten minutes later, we’re sitting at the bar of a nearby pub surveying the crowd entering and exiting. The pub is dimly lit, with low ceilings, but it manages to feel cozy, rather than claustrophobic. I haven’t been able to pick up on anyone following us. It’s starting to bug me. Both because I don’t like the thought I could be wrong, in which case everything I think about Iverson could be wrong, and also because I don’t like the thought there’s someone watching me who is so much better at what they’re doing than I am. Both thoughts are disconcerting.
 
 Unexpectedly, my ring for Davy goes hot.
 
-“I think we might *finally* have an answer,” I tell Liam as I look pointedly at my hand. Now I just need to figure out how Liam and I can both get to Davy without being followed. Without leading Iverson straight to him.
+“I think we might *finally* have an answer,” I tell Liam as I look pointedly at my hand. Now, I just need to figure out how we can get to Davy without being followed. Without leading Iverson straight to him.
 
-“An answer about me?” Liam asks me.
+“An answer about me?”
 
-“Yes, I hope so. But we need to figure out how to get to Davy without being followed, and I don’t have a lot of good ideas about how to do that right now.
+“Yes, I hope so. But we need to figure out how to get to Davy without being followed, and I don’t have a lot of good ideas about how to do that right now.”
 
-“We’ll have to wait until it’s dark,” Liam says thinking. “I’ve been working on being able to dim my energy meridians since you brought it up, and I think I’ve got it.”
+“We’ll have to wait until it’s dark,” Liam states. “I’ve been working on being able to dim my energy meridians since you brought it up, and I think I’ve got it.”
 
 “Show me?”
 
-He does, and it’s not perfect. The best way I can describe it is that it feels like light leaking out from underneath a door, but I think if he can sustain it like that, it’s probably good enough.
+He does, and it’s not perfect. The best way I can describe it is that it feels like light leaking out from underneath a door, but I think if he can sustain it, it’s probably good enough.
 
 “How long can you keep it like that?”
 
@@ -4566,13 +4566,13 @@ He does, and it’s not perfect. The best way I can describe it is that it feels
 
 “Maybe?”
 
-“Well, I guess we’ll find out,” I say, thinking. “How long until it gets dark, do you think?”
+“Well, I guess we’ll find out,” I comment. “How long until it gets dark?”
 
 “Four hours or so. What do you have in mind?”
 
 “The weather has been very peculiar lately,” I mutter.
 
-“What?” Liam asks.
+“What?” Liam asks, confused.
 
 “Just something Iverson said to me,” I say absentmindedly.
 
@@ -4580,9 +4580,9 @@ He does, and it’s not perfect. The best way I can describe it is that it feels
 
 “The day my mother officially announced she was back,” I comment.
 
-“You didn’t think that was worth mentioning?” Liam asks.
+“You didn’t think that was worth mentioning?”
 
-“No. He was trying to get a reaction out of me, but why not build off of it?” I ask rhetorically.
+“No. He was trying to get a reaction out of me, but why not build off of it?” I ask, rhetorically.
 
 “What are you thinking?”
 
@@ -4592,7 +4592,7 @@ He does, and it’s not perfect. The best way I can describe it is that it feels
 
 “*Really* foggy. Yeah. If he can’t follow us magically and he can’t follow us visually…” I shrug.
 
-“Won’t he feel you doing that and know something is up?” Liam asks, and it’s a fair question.
+“Won’t he feel you doing that and know something is up?” Liam wants to know, and it’s a fair question.
 
 “Not if I spend the next four hours doing it very, very slowly.”
 
@@ -4616,11 +4616,11 @@ He holds out his hand and I take it as I hop down off my stool. I let him lead t
 
 “Alright, let’s become invisible,” I say as I wait for his nod before stepping through the door.
 
-Outside visibility is down to no more than ten feet, even less in some places. If anyone is following us by line of sight they’ll have to be close enough that we’ll know it, and right now they shouldn’t be able to follow by tracking our magic. It’s the best I can do. I hope it’s good enough as I tug Liam into a fast walk. We’re both quiet as we move through the fog.
+Outside, visibility is down to no more than ten feet, even less in some places. If anyone is following us by line of sight they’ll have to be close enough that we’ll know it, and right now they shouldn’t be able to follow by tracking our magic. It’s the best I can do. I hope it’s good enough as I tug Liam into a fast walk. We’re both quiet as we move through the fog.
 
-The Ginnelstreet flat is about three miles away, the fog should last more than long enough to make it there before it begins to dissipate. I keep an eye on Liam as we walk since I’m truly not sure how long he can maintain keeping his energy meridians dimmed down.
+The Ginnelstreet flat is about three miles away, the fog should last more than long enough to make it there before it begins to dissipate. I keep an eye on Liam as we walk, since I’m truly not sure how long he can maintain keeping his energy meridians dimmed down.
 
-We walk for about twenty minutes when Liam suddenly pulls me sideways against the nearest wall pressing a finger against his lips. I strain to hear whatever it is he thinks he heard that has us pressed up against the wall, waiting. One minute goes by, then another. Liam holds us unmoving, then finally I hear it. A careful shuffling forward. The sound of someone following us. Someone who stopped when we stopped, but is now unsure since we’ve been unmoving for so long. Someone creeping along.
+We walk for about twenty minutes when Liam suddenly pulls me sideways against the nearest wall pressing a finger against his lips. I strain to hear whatever it is he thinks he heard that has us pressed up against the wall, waiting. One minute goes by, then another. Liam holds us unmoving, then finally I hear it. A careful shuffling forward. The sound of someone following us. Someone who stopped when we stopped, but is now unsure since we’ve been motionless for so long. Someone creeping along.
 
 Liam releases my hand when he’s sure I’ve heard what he has, and I see a knife in his palm. As soon as the man following us has walked past, Liam moves to slam the pommel of the knife into the back of his head. The man drops.
 
@@ -4628,11 +4628,11 @@ I search the man’s pockets quickly, but find nothing. I place the tip of my kn
 
 “What are you doing?” Liam asks, grabbing my hand.
 
-“You don’t leave an enemy alive at your back. Plus when he wakes up he’ll be able to tell Iverson the direction we were headed in, which could be enough,” I whisper quickly.
+“You don’t leave an enemy alive at your back. Plus, when he wakes up he’ll be able to tell Iverson the direction we were headed in, which could be enough,” I whisper quickly.
 
 “If Iverson finds the body he’ll know that anyway,” Liam argues.
 
-“Not if you help me get his body to the river,” I answer. I thrust my knife forward and Liam doesn’t stop me, but I can’t help but note the look in his eyes as I do so.
+“Not if you help me get his body into the river,” I answer. I thrust my knife forward and Liam doesn’t stop me, but I can’t help but note the look in his eyes as I do.
 
 I think I might have killed off whatever delusions Liam may have still been harboring about me being a good person. I sigh.
 
@@ -4640,7 +4640,7 @@ I think I might have killed off whatever delusions Liam may have still been harb
 
 Liam nods, and we shuffle our way a couple of streets over to the river where we toss the body in. It makes a muffled splash as it hits the surface.
 
-“Come on,” I whisper and we resume our trek.
+“Come on,” I whisper, and we resume our trek.
 
 About half an hour later, we’re close to the Ginnelstreet flat and I’m letting just enough power creep back through my energy meridians to warm my rings for Davy and Alex so that they’ll meet us on the street so we can get in. As soon as I’ve done it, I dim them back down. A minute goes by and I see the door open.
 
@@ -4664,9 +4664,9 @@ Alex looks at me sharply, so I elaborate.
 
 Well, at least Alex thinks I made the right decision. I’m sure Davy will too. I sigh, noting the questioning look Alex is casting between me and Liam.
 
-“What’s up with you two?” Alex asks, unwilling to leave well enough alone.
+“What’s up with you two?” Alex inquires, unwilling to leave well enough alone.
 
-“Nothing,” I tell him
+“Nothing,” I state.
 
 “Liam?”
 
@@ -4678,11 +4678,11 @@ I think I hear Alex sigh, but it’s hard to tell over the sound of my own sigh 
 
 Alex looks between us. I nod and he goes into the flat by himself, leaving us standing alone on the landing.
 
-Liam takes my hands in his. “Just because I need time to think it doesn’t mean there’s something wrong,” he tells me.
+Liam takes my hands in his. “Just because I need time to think, it doesn’t mean there’s something wrong,” he states.
 
 I resist the urge to shrug and play it off like it doesn’t matter and I don’t care, because it does and I do. Instead, I say nothing. But Liam waits me out, seeming to know that there are always at least a hundred separate thoughts racing through my head.
 
-“I can’t possibly conceive of a world in which needing time to think doesn’t mean there’s something wrong,” I tell him.
+“I can’t possibly conceive of a world in which needing time to think doesn’t mean there’s something wrong,” I respond.
 
 “I know.”
 
@@ -4698,7 +4698,7 @@ I open my mouth to answer his question but then close it. “That’s not fair. 
 
 “I—” Liam begins but then hesitates.
 
-“I’ll stay here,” I tell him as I walk through the door.
+“I’ll stay here,” I respond quickly, as I walk through the door.
 
 ### 23 - Here
 

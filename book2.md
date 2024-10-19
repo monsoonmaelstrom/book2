@@ -6098,9 +6098,9 @@ Amelia exits ahead of me, seemingly eager to be out of the room. As I pull the d
 
 Amelia leads us southwest, away from the war college, toward wherever it is Peter normally lives when he’s not trying to be hard to find.
 
-The southwestern quadrant of Branton is by far the quietest area of the city. It’s almost all small neighborhoods interspersed with tiny green spaces, where old couples and people with young families live. It’s not where I expected Peter to live. But if I strip out everything that’s happened over the past several months, and think back to the Peter that I met that first day in the pub with Davy, this is *exactly* where I would have expected *that* Peter to live. Who knows, maybe the Peter I met that first day is closer to the real Peter than any other version.
+The southwestern quadrant of Branton is by far the quietest area of the city. It’s almost all small neighborhoods interspersed with tiny green spaces, where old couples and people with young families reside. It’s not where I expected Peter to live. But if I strip out everything that’s happened over the past several months, and think back to the Peter who I met that first day in the pub with Davy, this is *exactly* where I would have expected *that* Peter to live. Who knows, maybe the Peter I met that first day is closer to the real Peter than any other version.
 
-People are complicated. Mostly that’s neither a good nor a bad thing. But when people are complicated the way Peter is, or even the way that Alex is, and definitely the way that I am, it’s just hard. Maybe those similarities between Peter and me are what Alex, Davy, and Liam have been trying to make me understand for a while now.
+People are complicated. Mostly that’s neither a good nor bad thing. But when people are complicated the way Peter is, or even the way that Alex is, and definitely the way that I am, it’s just hard. Maybe those similarities between Peter and me are what Alex, Davy, and Liam have been trying to make me understand for a while now.
 
 It’s roughly a thirty minute walk to reach Peter’s flat, deep within one of the southwestern quadrant’s many neighborhoods. His door is a cheery turquoise which looks like it’s been fairly recently painted.
 
@@ -6112,15 +6112,15 @@ It’s roughly a thirty minute walk to reach Peter’s flat, deep within one of 
 
 “No. We don’t exactly have the ‘exchange keys’ kind of relationship.”
 
-“Okay. So when you got here last night you knocked and no one answered? You didn’t go in?” I ask.
+“Okay. So when you got here last night you knocked and no one answered? You didn’t go in?” I check.
 
 “No, I didn’t go in. I waited around for a while getting progressively more annoyed, and then left,” she tells me, sounding frustrated.
 
-I block the door with my body for a moment, pantomiming having a key while I use magic to unlock the door and check if anyone is in there, but the flat is empty. I open the door and allow Amelia to enter first, and then lock it behind me as I follow her in.
+I block the door with my body for a moment, pantomiming having a key while I use magic to unlock the door and check if anyone is inside, but the flat is empty. I open the door and allow Amelia to enter first, and then lock it behind me as I follow her in.
 
-“Anything look out of the ordinary?” I ask her.
+“Anything seem out of the ordinary?” I question.
 
-“No,” she says softly after glancing over the space briefly.
+“No,” she says softly, after glancing over the space briefly.
 
 I begin looking around. It’s very tidy and very homey. It gives off the vibe of the kind of person who would enjoy hosting dinner parties.
 
@@ -6128,9 +6128,9 @@ I begin looking around. It’s very tidy and very homey. It gives off the vibe o
 
 “Back through the hall. Last door.”
 
-I find the bedroom door cracked, and push it all the way open. The bed is made, and the curtains are open. I begin opening drawers. It doesn’t look like any clothes are missing. At least not as far as I can tell.
+I find the bedroom door cracked, and push it all the way open. The bed is made, and the curtains are open. I begin opening drawers. It doesn’t look like any clothes are missing. At least, not as far as I can tell.
 
-“Do you know how often Peter is here?” I call out to Amelia.
+“Do you know how often Peter’s here?” I call out to Amelia.
 
 “At least every couple of days,” she calls back.
 
@@ -6142,43 +6142,43 @@ I head to the bathroom. All the toiletries are present. It looks like whatever h
 
 ----
 
-“What do you think happened?” Amelia asks as we walk toward Reese’s shop.
+“What do you think happened?” Amelia wonders, as we walk toward Reese’s shop.
 
 “I think someone took them.”
 
 “Iverson?”
 
-“Or my mother,” I say. “But probably Iverson. Is Michael still hanging around with my mother and Christine?”
+“Or my mother,” I respond. “But probably Iverson. Is Michael still hanging around with my mother and Christine?”
 
-“I don’t know. I haven’t talked to him in a while, but I assume so. He’s got nowhere else here to go.”
+“I don’t know. I haven’t talked to him in a while, but I assume so. He’s got nowhere else to go here.”
 
-“We should go to talk to him later,” I say more to myself than to her. I really don’t think my mother took them. If she had them, she’d want to make sure I knew she had them. She’d have left some sort of message or messenger, the same way she did after the pass, but it doesn’t hurt to check.
+“We should go talk to him later,” I say, more to myself than to her. I really don’t think my mother took them. If she had them, she’d want to make sure I knew she had them. She’d have left some sort of message or messenger, the same way she did after the pass, but it doesn’t hurt to check.
 
-It takes about twenty five minutes to make it from Peter’s neighborhood to Reese’s shop. I lead us to the same spot where Peter and I scoped out the shop last time. I can already tell the shop doesn’t look open which, in the middle of the day, is a bad sign for any business, but especially a twenty four hour one. I want to go in and see what I can find, but I decide to be smart and watch the place for a while first. It should give enough time for Henry, Giorgi, and Gavin to show up. Hopefully with Davy. If Iverson has Davy too, it makes the situation that much worse.
+It takes about twenty-five minutes to make it from Peter’s neighborhood to Reese’s shop. I lead us to the same spot Peter and I scoped out the shop last time. I can already tell the shop doesn’t look open which, in the middle of the day, is a bad sign for any business, but especially a twenty-four hour one. I want to go in and see what I can find, but I decide to be smart and watch the place for a while first. It should allow enough time for Henry, Giorgi, and Gavin to show up. Hopefully with Davy. If Iverson has Davy too, it makes the situation that much worse.
 
-Amelia and I are early, so we’ve got about an hour before the others are supposed to be here. We sit in silence, since neither of us is all that keen on conversation at the moment. During that time, I don’t see any movement in the shop. No one goes in, and no one comes out. I can’t feel anything alive in there either, and stretching my senses out, I can’t feel any other magic users in the area. If there are any around, they have their energy meridians dimmed, and I probably wouldn’t be able to tell they’re here unless I know who they are, and visually see them.
+Amelia and I are early, so we’ve got about an hour before the others are supposed to meet us here. We sit in silence, since neither of us is all that keen on conversation, at the moment. During that time, I don’t see any movement in the shop. No one goes in, and no one comes out. I can’t feel anything alive in there either, and stretching my senses out, I can’t feel any other magic users in the area. If there are any around, they have their energy meridians dimmed, and I probably wouldn’t be able to tell they’re here unless I know who they are, and visually see them.
 
-The shop gives me a bad feeling though.
+The shop gives me a bad feeling, though.
 
 After a while, I pull out Peter’s journal and begin to flip through it while we wait for the others to show up.
 
-“What’s that?” Amelia asks eventually.
+“What’s that?” Amelia inquires eventually.
 
 “Nothing,” I answer.
 
 “You seem pretty interested in it for ‘nothing.’”
 
-I shrug, but don’t answer, and she goes back to watching the shop.
+I shrug, but don’t reply, and she goes back to watching the shop.
 
 “Well, shit,” I mutter as I flip through a few pages.
 
-“*What?*” Amelia asks, clearly exasperated.
+“*What?*” Amelia questions, clearly exasperated.
 
 “Nothing,” I repeat.
 
-Amelia snatches the notebook from my hands. I sigh, but make no move to grab it back. Doing so would turn into a grappling match and undoubtedly draw a bunch of attention we don’t need.
+Amelia snatches the notebook from my hands. I sigh, but make no move to grab it back. Doing so would just turn into a grappling match and undoubtedly draw a bunch of attention we don’t need.
 
-“Well, shit,” she echoes as she reads the last few pages I just finished.
+“Well, shit,” she echoes, as she reads the pages I just finished.
 
 Once she looks up, meeting my eyes, I snatch the journal back.
 
@@ -6202,35 +6202,35 @@ Once she looks up, meeting my eyes, I snatch the journal back.
 
 I nod. No wonder Liam didn’t want to relay the content of their conversation to me. Fuck. Now I feel bad for Peter. I don’t want to feel bad for *Peter*.
 
-“What’s brutal?” Gavin asks.
+“What’s brutal?” Gavin wants to know.
 
 I startle at the sound, having been so distracted by the journal and the conversation with Amelia that I didn’t realize they were approaching.
 
-“Nothing,” I answer quickly.
+“Nothing,” I respond quickly.
 
 At the same time Amelia blurts out, “Liam told Peter that if Peter and Hazel couldn’t work their shit out, he’d choose Hazel. Regardless of what happened or how it went down, even if Hazel was the one forcing him to choose, he’d choose Hazel, so Peter had better figure out how to fix things in order to stop it from getting to that point.”
 
-“Oh. Obviously,” Gavin says.
+“Oh. Obviously,” Gavin states.
 
 “Obviously?” Amelia and I ask at the same time. I’m not sure what her rationale is, but I’m not sure *I* would choose me. Especially not if I was the one forcing the choice.
 
-“Obviously,” Gavin repeats but doesn’t elaborate.
+“Obviously,” Gavin repeats, but doesn’t elaborate.
 
-“Whatever,” I say. “It doesn’t matter right now. Davy! When did you last see Alex?”
+“Whatever,” I reply. “It doesn’t matter right now. Davy! When did you last see Alex?”
 
 “Yesterday, around noon, when he left with Peter and Liam. No response since then.”
 
 “Do you know what they were doing? Liam seemed pissed.”
 
-“Coming here. Reese was missing,” he says, clearly worried, not that you’d be able to tell from his words alone.
+“Coming here. Reese was missing,” he informs me, clearly worried, not that you’d be able to tell from his words alone.
 
 “Fuck,” I hiss. “Okay. Giorgi and I will go look around the shop. The rest of you stay here. Davy, be careful, yeah?”
 
 “You too,” Davy tells me.
 
-Giorgi and I enter through the front door, which is unlocked despite the shop being unoccupied. The shop isn’t quite trashed, but it’s not far from it. There’s a haze of soot high on the walls and ceiling that I don’t remember seeing before. Someone clearly either didn’t care if anyone knew they were here or wanted to make sure anyone who came looking *knew* they were here. My money is on the latter.
+Giorgi and I enter through the front door, which is unlocked despite the shop being unoccupied. The shop isn’t quite trashed, but it’s not far from it. There’s a haze of soot high on the walls and ceiling that I don’t remember seeing before. Someone clearly either didn’t care if anyone knew they were here, or wanted to *make sure* anyone who came looking *knew* they were here. My money is on the latter.
 
-“Do you know where Reese lives?” I ask Giorgi as I poke around.
+“Do you know where Reese lives?” I question Giorgi as I poke around.
 
 He nods.
 
@@ -6248,9 +6248,9 @@ Giorgi shrugs. “Someone’s got to keep track of these things.”
 
 “If you’d seen her last time we were here…” I say with a shrug. “She might have decided running was a good option. But since the others are all missing too, it looks like someone decided for her.”
 
-“Or wanted to make it look like they decided for her. She still could have run, and someone else could have decided to make it look like they took her,” Giorgi says thinking aloud.
+“Or wanted to make it look like they decided for her. She still could have run, and someone else could have decided to make it look like they took her,” Giorgi remarks, thinking aloud.
 
-“Yeah maybe. I’m not sure it makes any difference.”
+“Yeah, maybe. I’m not sure it makes any difference.”
 
 He nods.
 
@@ -6274,7 +6274,7 @@ I stop talking.
 
 “Alex would have had a key with him, right?”
 
-Davy nods and I’m already running.
+Davy nods, and I’m already running.
 
 ### 31 - Burning Down the House
 

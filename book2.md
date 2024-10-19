@@ -6996,7 +6996,7 @@ He grins. “But it’s so entertaining in there.”
 
 I feel like I’ve been floating in silent darkness forever. There’s no wind. No temperature. No smell. No up. No down. No anything. It’s formless. I’d say I was lost, but there’s nothing here, so being lost seems technically impossible.
 
-I remember what was happening. I remember everything. I remember Iverson fighting against me, and the distant feel of the water as we hit it. I remember seeing Liam before that, and the relief I felt, even though I *knew* he was okay before that.
+I remember what was happening. I remember everything. I remember Iverson fighting against me, and the distant feel of the water as we hit it. I remember seeing Liam before that, and the relief I felt, even though I already *knew* he was okay.
 
 I *remember* everything, but I don’t *know* anything. I don’t know how I got here, and I don’t know how to get out. I don’t even know where ‘here’ is. I don’t know what happened to Iverson when I entered this nothing, and I don’t know what happened to me either.
 
@@ -7004,9 +7004,9 @@ There’s no magic here, and I don’t know if that’s *because* there’s no m
 
 There’s nothing.
 
-I’m not sure how long I’ve been here. I have no idea if time is moving very slowly, or very quickly. I haven’t been hungry, thirsty, or tired since I’ve been here. I’m honestly not even totally sure if I’m corporeal or if I’m an idea trapped in my own head. I keep trying to feel my body and I think, for brief moments, I do. But then the idea of it collapses like a sandcastle that’s too close to the water, and I’m not sure if I’ve imagined it or not.
+I’m not sure how long I’ve been here. I have no idea if time is moving very slowly, or very quickly. I haven’t been hungry, thirsty, or tired since I’ve been here. I’m honestly not even totally sure if I’m corporeal or if I’m an idea trapped in my own head. I keep trying to feel my body and I think, for brief moments, I do. But then the idea of it collapses like a sandcastle that’s too close to the water, and I can’t tell if I’ve imagined it or not.
 
-I’m going to go crazy if I can’t find a way out of here. If Liam can’t find a way to get me out. Because I think he’s the only one who might be able to. I have no idea how Alex or Davy could even find me. It’s solely the connection Liam has to me which might allow him to do it, and that’s assuming it’s intact outside of this place.
+I’m going to go crazy if I can’t find a way out of here—if Liam can’t find a way to get me out. Because I think he’s the only one who might be able to. I have no idea how Alex or Davy could even find me. It’s solely the connection Liam has to me which might allow him to do it, and that’s assuming it’s intact outside of this place.
 
 I could be dead, but I’m pretty sure I’m not. *Being* dead seems like the kind of thing you’d be sure of, and I definitely don’t *feel* dead. What I feel, is really fucking annoyed.
 
@@ -7016,7 +7016,7 @@ I want to yell, but it doesn’t seem to have any effect. I’ve tried. And I do
 
 If this was a room, I’d be banging my fists against the door in rage, but even that’s denied to me because there is no door, and because I possibly don’t have hands.
 
-That’s the weirdest part of it all: not knowing if I have a body or not, and not being able to look to see it, or even reach down and touch it.
+That’s the weirdest part of it all: not knowing if I have a body, and not being able to look to see it, or even reach down and touch it.
 
 I am currently as formless as this place is. I hate it. It vexes me terribly.
 
@@ -7038,7 +7038,7 @@ The darkness seems darker. I’m not sure how long it’s seemed darker, but I d
 
 I don’t think I’m ever going to get out of here. Getting out of here implies that there is somewhere else. Another place. But I don’t remember being anywhere else. I think I’ve been here forever.
 
-Except… there’s somewhere else. Right? Right?
+Except… there’s somewhere else. Right? Right…?
 
 ----
 
@@ -7058,15 +7058,17 @@ I know who I am again. I think I forgot for a while, which seems like a very bad
 
 But I need to get out of here. I can’t stay here. It feels like maybe the barrier between this place and everywhere else is getting thinner. Like maybe soon I’ll be able to break through it. Or would be able to if I had a body.
 
-How do you get a body? A body is a thing you have. Where is mine? How do I get it back?
+How do you get a body? A body is a thing you just *have*. Where is mine? How do I get it back?
 
 Liam is the one who can get me out. I’m sure of it. I focus everything I can on thoughts of him.
 
 The annoying way he’s always asking questions. So many questions. Questions about me, questions about magic, questions about us, questions about Davy, questions about Alex, questions I don’t want to answer. Only now maybe I do want to answer them.
 
-The way his eyes crinkle slightly when he laughs. The way his body engulfs mine, how the second he wraps his arms around me I lose all desire to be anywhere else. I think about how stubborn he can be when he thinks he’s right, or when he thinks I’m wrong. The way he’s always trying to keep me safe, even though I’m so much more powerful than he is—so much more powerful than he can even begin to understand—and the irony that I need him to come to my rescue now is not lost on me. I think about the look on his face that night we made paper lanterns and watched them float away. I think about falling in love with him, and I hold onto that thought with everything I can.
+I think about the way his eyes crinkle slightly when he laughs. I think about the way his body engulfs mine. I think about the way I lose all desire to be anywhere else the second he wraps his arms around me. I think about how stubborn he can be when he thinks he’s right, or when he thinks I’m wrong. I think about the way he’s always trying to keep me safe, even though I’m so much more powerful than he is—so much more powerful than he can even begin to understand—and the irony that I need him to come to my rescue now is not lost on me. I think about the look on his face that night we made paper lanterns and watched them float away.
 
-I feel the magic binding us together flare to life, and as soon as I do, I’m grasping at it like it’s a life preserver, because I’m pretty sure it is. It feels like I’m being pulled. I’m just not sure if I’m being pulled out of here, or pulled apart. I don’t think it matters though, because either way it’s something different. And right now, different is good. Different is life. Or death. But hopefully life.
+I think about falling in love with him, and I hold onto that thought with everything I can.
+
+I feel the magic binding us together flare, and as soon as I do, I’m grasping at it like it’s a life preserver, because I’m pretty sure it is. It feels like I’m being pulled. I’m just not sure if I’m being pulled out of here, or pulled apart. I don’t think it matters though, because either way it’s something different. And right now, different is good. Different is life. Or maybe death. But hopefully life.
 
 I think maybe I hear screaming, and maybe I feel pressure.
 

@@ -6284,19 +6284,19 @@ I’m too far away. I’ll never make it to the flat in time. I stop running and
 
 The situation is far from ideal. I’m a couple of miles away from the flat, and fire can be difficult to control under the best of circumstances—circumstances which would at least place me within a couple of blocks of the building where I would be able to control this better, where I would be able to contain the spread of what I’m about to do. But it doesn’t matter because there’s not a better option I can see.
 
-Someone’s people are in the building, and it doesn’t matter if it’s my mother’s people or Iverson’s. If they have Alex, they have a key. And if getting the key was worth grabbing Alex, Peter, and Liam, whatever is in there that they want, I’ve already decided they can’t have it. They simply can’t.
+Someone’s people are in the building, and it doesn’t matter if it’s my mother’s people or Iverson’s. If they have Alex, they have a key. And if getting the key was worth grabbing Alex, Peter, and Liam, whatever’s in there that they want, I’ve already decided they can’t have it. They simply can’t.
 
 While it doesn’t take *that* much energy to set a dry piece of wood alight, it *does* take a fair amount of energy to set every inch of a building ablaze at exactly the same moment in a conflagration so hot it almost instantly turns the wood to ash. On top of that, I need *rain*, not snow, meaning I can’t take the energy from the heat in our current surroundings because Davy’s going to need it.
 
-Two out of the three deer managed to survive the winter, so I pull on the connections I have with them hard. A lot harder than is ideal, but letting whoever is in the flat have whatever they’re looking for would be a lot less ideal. I can’t explain why I’m so sure, I just am, so consequences be damned. I do it anyway.
+Two out of the three deer managed to survive the winter, so I pull on the connections I have with them hard. A lot harder than is ideal, but letting whoever is in the flat have whatever they’re looking for would be a lot worse. I can’t explain why I’m so sure, I just am, so consequences be damned. I do it anyway.
 
 As soon as I start pulling power from the deer, I’m directing it, as best I can from this distance, at the Ginnelstreet flat, using what I can see via the eyes of a fucking bird to do it. This is so far from ideal. It’s like trying to perform surgery with a broadsword.
 
-Flames immediately engulf the interior of the building, which is almost all wood, but I continue feeding power into the fire because the exterior of the structure is brick, and it hasn’t completely disintegrated into a pile of ash or collapsed, which is the result I’m looking for. Since I have no idea what they’re trying to find, nothing can remain. Not the building, not any of the people in it—who according to Davy, *should* all be working for whoever took Liam and Alex—not the furniture. Everything needs to go.
+Flames immediately engulf the interior of the building, which is almost all wood, but I continue feeding power into the fire because the exterior of the structure is brick, and it hasn’t completely disintegrated into a pile of ash or collapsed in a heap of burned rubble, which is the result I’m looking for. Since I have no idea what they’re trying to find, nothing can remain. Not the building, not any of the people in it—who according to Davy, *should* all be working for whoever took Liam and Alex—not the furniture. Everything needs to go.
 
-I’m fighting with the fire to keep it burning hot enough while also stopping it from spreading to easier, more flammable structures nearby as the fire consumes more and more of the building. It feels like the amount of heat radiating off of my body isn’t tremendously different from what’s coming off of the fire itself, but it doesn’t matter. If I don’t maintain control of the fire, that whole twisted section of the city will go up in flames. It’s a lot of old wooden structures built a handful of feet away from each other.
+I’m fighting with the fire to keep it burning hot enough while also stopping it from spreading to easier, more flammable structures nearby as the fire consumes more and more of the building. It feels like the amount of heat radiating off of my body isn’t tremendously different from what’s coming off of the fire itself, but it doesn’t matter. If I don’t maintain control of the fire, that whole twisted section of the city will go up in flames—it’s a lot of old wooden structures built a handful of feet away from each other.
 
-The building is still burning. I’m not sure exactly how long it’s been, but I feel like it has to have been more than twenty minutes at this point. I haven’t seen anyone make it out of the building alive. Most of it has been reduced to ash, but there are recognizable sections of the building which need to keep burning. I want ash with a consistency like dry snow. By the time the fire is out, I want the only evidence that a building ever existed there to be the gap where it once stood and a twisted heap of burned brick rubble. So I continue to pour energy into it.
+The building is still burning. I’m not exactly sure how long it’s been, but I feel like it has to have been more than twenty minutes at this point. I haven’t seen anyone make it out of the building alive. Most of it has been reduced to ash, but there are recognizable sections of the building which need to keep burning. I want ash with a consistency like dry snow. By the time the fire is out, I want the only evidence that a building ever existed there to be the gap where it once stood and a twisted heap of burned brick rubble. So I continue to pour energy into it.
 
 Finally, I feel raindrops hit my skin.
 
@@ -6306,17 +6306,17 @@ The frequency with which the raindrops are hitting my skin increases, and as it 
 
 I’ve cut off all the energy I was feeding into it, and I’m trying to pull back everything remaining, but I’m so far away it’s proving next to impossible over this kind of distance after that kind of effort.
 
-Luckily, the rain has increased from a drizzle to a downpour to a deluge. It’s falling so heavily now, it’s actually becoming difficult to breathe, which is fine, because this is exactly the amount of water I needed. From a bird’s eye view, I no longer see any visible flames, only steam. Hopefully the rainfall will be sustained enough to keep anything from reigniting.
+Luckily, the rain has increased from a drizzle to a downpour to a deluge. It’s falling so heavily now, it’s actually becoming difficult to breathe, which is fine, because this is exactly the amount of water I needed. From a bird’s eye view, I no longer see any visible flames, only steam. Hopefully, the rainfall will be sustained enough to keep anything from reigniting.
 
-I take a gasping breath, and stumble as I reach out for the side of the nearest building to brace myself.
+I take an uneven breath, and stumble as I reach out for the side of the nearest building to brace myself.
 
-“We need to move,” I say raggedly. “I don’t care where for now. Anywhere not here.”
+“We need to move,” I gasp raggedly. “I don’t care where for now. Anywhere not here.”
 
 “Okay,” Davy agrees, taking the lead.
 
 I stumble after him, trying not to trip over my own feet.
 
-Davy looks back at me and says, “Gavin, Henry, help her. I have the feeling we want to be gone sooner rather than later.”
+Davy looks back at me and orders, “Gavin, Henry, help her. I have the feeling we want to be gone sooner rather than later.”
 
 ----
 
@@ -6324,7 +6324,7 @@ We come to a stop in front of a heavily disused warehouse several miles south of
 
 The sky is still darkened by storm clouds making the late afternoon look more like late evening, but I’m grateful for the thick cloud cover and rain keeping people off the streets. The fewer prying eyes to see our passage, the better.
 
-“In here,” Davy says as he slides a door open.
+“In here,” Davy directs, as he slides a door open.
 
 The entire floor of the warehouse is covered in a thick layer of dust. Going based off of that, no one has been here in months, maybe even years. We come in streaming water, turning the floor we’re standing on into a muddy tableau.
 
@@ -6332,21 +6332,21 @@ Davy heaves the door shut, metal groaning in protest as he does, finally droppin
 
 “What did you do?” Amelia asks, looking at me.
 
-“I, uh, hope you guys didn’t have anything valuable in the flats,” I say by way of explanation as I look from Gavin to Giorgi.
+“I, uh, hope you guys didn’t have anything valuable in the flats,” I begin by way of explanation, as I look from Gavin to Giorgi.
 
 “Only all of our current worldly possessions,” Gavin answers.
 
 “Sorry,” I wince slightly as I say it. “The building no longer exactly… exists.”
 
-“Define ‘no longer exactly exists,’” Gavin says.
+“Define ‘no longer exactly exists,’” Gavin demands.
 
 “Went up in flames?” I try.
 
 “I think knowing you might be hazardous to our health,” Gavin comments, but he doesn’t sound particularly upset as he surveys the interior of the warehouse.
 
-“Yeah. Well, I did try to warn you all about that,” I say with a sigh. A small part of me can’t believe I burned the entire building to the ground. “So, how mad do you think Liam is going to be?”
+“Yeah. Well, I did try to warn you all about that,” I remind him with a sigh. A small part of me can’t believe I burned the entire building to the ground. “So, how mad do you think Liam is going to be?”
 
-“Honestly?” Gavin asks. “I don’t think he’ll give a shit. It was just a building.”
+“Honestly,” Gavin replies, “I don’t think he’ll give a shit. It was just a building.”
 
 “I hope you’re right.”
 
@@ -6364,7 +6364,7 @@ I nod. I’m exhausted, and we still need to *find* them. All that, and I have n
 
 I always am.
 
-“We should all sleep,” I tell everyone. “Sleep now, tactics when we wake up. The earliest we’ll move will be tomorrow night. We’ll probably need to do something about food, if anyone wants to handle that.” I say, deciding food falls under supply chain and logistics, which are not among my specialties.
+“We should all sleep,” I tell everyone. “Sleep now, tactics when we wake up. The earliest we’ll move will be tomorrow night. We’ll probably need to do something about food, if anyone wants to handle that.” I throw out, deciding food falls under supply chain and logistics, which are not among my specialties.
 
 “I’ll do it,” Giorgi states.
 
@@ -6376,27 +6376,27 @@ I wake up sometime later, slightly disoriented with the feeling that I’m forge
 
 Amelia, Henry, and Gavin are engaged in a quiet conversation about a dozen feet away. Davy is napping a few feet away from me on my other side with an arm thrown over his face. And Giorgi is sitting alone, just… staring at me?
 
-“What?” I ask.
+“What?” I inquire.
 
 “Food?” he queries in response.
 
 “Alright,” I answer, and he passes me some bread. “Why were you watching me sleep?”
 
-“No reason,” he says in a way that clearly indicates there was a reason.
+“No reason,” he remarks in a way that clearly indicates there was a reason.
 
 “Whatever,” I grumble. “What time is it?”
 
 “A bit before midnight, I think.”
 
-“Damn. Davy, wake up,” I say as I stretch a leg across to jostle him. I’m guessing he didn’t sleep last night either. “Did the rest of you sleep?”
+“Damn. Davy, wake up,” I order as I stretch a leg across to jostle him. I’m guessing he didn’t sleep last night either. “Did the rest of you sleep?”
 
 Giorgi nods and says, “A couple of hours.”
 
 Davy sits up, rubbing the sleep from his eyes.
 
-“Good?” I ask him.
+“Good?” I question.
 
-“Yeah. What do you think about the Northend Bluffs?” Davy asks.
+“Yeah. What do you think about the Northend Bluffs?” Davy wonders.
 
 “You’re thinking about the cliffs?”
 
@@ -6412,15 +6412,15 @@ He nods.
 
 “We’ll stipulate condition,” I tell him, sounding more confident than I’m sure I have any right to. “Iverson wants me. I’m the bait. We’ll stipulate the condition the others have to be in for me to show up.”
 
-“What are you guys thinking?” Gavin asks.
+“What are you guys thinking?” Gavin questions curiously.
 
-“I can find us a couple of small boats,” Davy says thinking aloud. “The hard part is going to be getting everyone over the cliff and into the boats before he can do anything about it.”
+“I can find us a couple of small boats,” Davy says, thinking aloud. “The hard part is going to be getting everyone over the cliff and into the boats before he can do anything about it.”
 
 Yeah. That’s definitely the hard part.
 
-“I’ll come up with something,” I tell him, though I have no idea what. Maybe just a good old fashioned ‘Run!’ since beggars can’t be choosers and all that. “What time are you thinking? I need to send out invitations,” and do a few other things.
+“I’ll come up with something,” I state, though I have no idea what. Maybe just a good old fashioned ‘Run!’ since beggars can’t be choosers and all that. “What time are you thinking? I need to send out invitations,” and do a few other things.
 
-“Midnight? May as well play into the drama of it all,” Davy says.
+“Midnight? May as well play into the drama of it all,” Davy answers.
 
 I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cliff?”
 

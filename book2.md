@@ -6434,17 +6434,17 @@ I nod. “Okay. Midnight. You’ll be waiting with boats near the base of the cl
 
 ### 32 - Repeat
 
-I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty or so hours, but it feels overwhelming, endless, and next to impossible. I can think and move at the same time though, so I start heading back toward the city at a fast walk, which quickly increases to a jog.
+I slide the metal door of the warehouse shut behind me and lean back against it. I am so screwed. I’m trying to organize my thoughts into a list of things I need to do in the next twenty, or so, hours but it feels overwhelming, endless, and next to impossible. I can think and move at the same time though, so I start heading back toward the city at a fast walk, which quickly increases to a jog.
 
-Once I’ve covered about three miles, I slow back to a walk. The streets are mostly empty. I’m a few miles south of the city, and there isn’t much reason for people to be out late in this part of the city. I begin scanning the buildings. I’m looking for one that looks like it has easy rooftop access with a mostly flat roof.
+Once I’ve covered about three miles, I slow back to a walk. The streets are mostly empty. I’m a few miles south of the city, and there isn’t much reason for people to be out late in this area. I begin scanning the buildings. I’m looking for one that looks like it has easy rooftop access with a mostly flat roof.
 
-It takes a few minutes because the buildings are a lot less dense here, but I finally find one with a drainpipe running along the exterior of the building which looks secure enough to hold my weight as I climb up it. When I reach the roof I move to the center and wait. After a minute I think I hear a scuff behind me.
+It takes a few minutes because the buildings are a lot less dense here, but I finally find one with a drainpipe running along the exterior of the building which looks secure enough to hold my weight as I climb up it. When I reach the roof, I move to the center and wait. After a minute, I hear a scuff behind me.
 
-“Do you have any more bread?” I ask.
+“Do you have any more bread?” I inquire.
 
 “Yes. How long have you known I was following you?” Giorgi asks.
 
-“Pretty much since I left. Your idea or Davy’s?”
+“Pretty much since I left. Your idea, or Davy’s?”
 
 “We both thought it was a good idea for everyone to have backup.”
 
@@ -6454,7 +6454,7 @@ It takes a few minutes because the buildings are a lot less dense here, but I fi
 
 I sigh, but don’t say anything else as I take the bread and begin crumbling it in my hand, letting my senses expand outward. A single spotted eagle isn’t going to cut it. It’s too big, too obvious, and too singular. There’s a flock of pigeons roosting not far from here. I urge the wind to pick up enough to stir the branches of the tree they’re perching on, causing a few of them to take flight or risk falling, and then call them to me.
 
-Before long, I have one pigeon perched immobile on my hand, and another on the ground in front of me. I begin making them into new extensions of myself. Me, but not me. The one on my hand is first by virtue of being closest, and as the magic snaps into place, my stomach drops a little bit. At this point I’m no longer sure it’s even distaste for what I’m doing. I think it might be some sort of sensory thing. Like seasickness. At least that’s what I tell myself as I start on the second one.
+Before long, I have one pigeon perched immobile on my hand, and another on the ground in front of me. I begin making them into new extensions of myself. Me, but not me. The one on my hand is first by virtue of being closest, and as the magic snaps into place, my stomach drops a little bit. At this point, I’m no longer sure it’s even distaste for what I’m doing. I think it might be some sort of sensory thing. Like seasickness. At least, that’s what I tell myself as I start on the second one.
 
 My stomach flips a little bit more when the magic for the second settles into place, and I send both of them back to roost for the night. Once again, I let my senses expand back outward, looking, looking, looking.
 
@@ -6474,7 +6474,7 @@ The dizziness slams into me with a new intensity and I’m heaving up a mixture 
 
 “Here,” Giorgi says, holding out a waterskin.
 
-“Thanks,” I say softly as I take it and rinse my mouth.
+“Thanks,” I reply softly as I take it and rinse my mouth.
 
 “Is that how we got through the pass?”
 
@@ -6482,7 +6482,7 @@ The dizziness slams into me with a new intensity and I’m heaving up a mixture 
 
 “How?”
 
-“Imagine I’m holding the magic in my hand,” I say, still kneeling. “And imagine your magic is like a third hand, and you can reach out and take it. Then keep trying until you do.”
+“Imagine I’m holding the magic in my hand,” I explain, still kneeling. “And imagine your magic is like a third hand, and you can reach out and take it. Then keep trying until you do.”
 
 It takes about twenty minutes of trial and error, but eventually he figures it out. I was pretty confident he’d be able to.
 
@@ -6500,11 +6500,11 @@ He nods.
 
 “I need a pen and paper.”
 
-“You have Peter’s journal, right? Just rip a page out of that,” Giorgi says with a shrug.
+“You have Peter’s journal, right? Just rip a page out of that,” Giorgi comments with a shrug.
 
 I was going to give it back, but I can do that less a few pages, right?
 
-“Do you have anything to write with?” I ask him.
+“Do you have anything to write with?” I inquire.
 
 “No, but there’s bound to be something in one of these buildings.”
 
@@ -6520,25 +6520,25 @@ Back outside, I find five rocks about half the size of my fist and begin ripping
 
 Giorgi and I continue walking toward Branton in silence.
 
-It’s probably a little after three in the morning when the first owl reaches its location, dropping the rock in the entry of Reese’s shop, and turning to fly back toward Giorgi and me. The next lands at the last spot I saw Iverson before diverting the eagle to the Ginnelstreet flats. I direct it to land on a wide windowsill and it moves the rock from its talons to its beak, then starts banging the rock against the window.
+It’s probably a little after three in the morning when the first owl reaches its destination, dropping the rock in the entry of Reese’s shop, and turning to fly back toward Giorgi and me. The next lands at the last spot I saw Iverson before diverting the eagle to the Ginnelstreet flats. I direct it to land on a wide windowsill and it moves the rock from its talons to its beak, then starts banging the rock against the window.
 
 On the seventh rap against the glass, the glass shatters. The owl drops the rock and takes flight. I begin counting its wingbeats as it flies away.
 
 *One. Two. Three. Fou—* It’s like I took a hook to the side of my temple. I thought I was prepared, but the fact that I’m lying flat out on the ground says otherwise. I hold my head, waiting for my vision to clear, as Giorgi grabs me under the arms and begins pulling me upright.
 
-“What the hell just happened?” he asks, and it might be the first time I’ve ever heard him sound anything other than neutral, indifferent, or amused.
+“What the hell just happened?” he demands, and it might be the first time I’ve ever heard him sound anything other than neutral, indifferent, or amused.
 
-“Iverson,” I managed to groan out, my hands still wrapped around my head as I try to force my brain to remember it exists within the confines of my skull. “Killed. The messenger.” I manage to get out between ragged gasps of pain.
+“Iverson,” I groan, my hands still wrapped around my head as I try to force my brain to remember it exists within the confines of my skull. “Killed. The messenger.” I manage to get out between ragged gasps of pain.
 
 “Well, I guess you can consider the invitations delivered. Can you stand?” Giorgi asks.
 
-“Give me a minute,” I say as I move a hand to one of his arms to brace myself. “Damn. That hurt.”
+“Give me a minute,” I state, as I move a hand to one of his arms to brace myself. “Damn. That hurt.”
 
 ----
 
-I’ve moved both of the pigeons to locations around the Dairuvar compound, where they’re currently blending in, being pigeons, waiting for Iverson to move. For all I know, he could have something similar in place, but I don’t think he does. Or at least, I don’t think he does *right now*. Mostly because I don’t think he knows where I am. But once I get to the Northend Bluffs he’ll know exactly where to look, which raises its own set of problems that I ponder as we make our way north.
+I’ve moved both of the pigeons to locations around the Dairuvar compound, where they’re currently blending in, being pigeons, waiting for Iverson to move. For all I know, he could have something similar in place, but I don’t think he does. Or at least, I don’t think he does *right now*. Mostly, because I don’t think he knows where I am. But once I get to the Northend Bluffs he’ll know exactly where to look, which raises its own set of problems that I ponder as we make our way north.
 
-At least I know he’s still there based on the reception the owl delivering my message received.
+At least I know he’s still there, based on the reception the owl delivering my message received.
 
 “We need to stop and get food,” I say. “Some sandwiches or something we can eat on the move.”
 
@@ -6550,7 +6550,7 @@ Giorgi grins.
 
 We find a vendor who’s just opening for the day. Fortunately, he’s not selling hand pies but frittatas. We order a couple each and are back on the move again as soon as we receive them.
 
-“So what’s the plan?” Giorgi finally asks.
+“So what’s the plan?” Giorgi finally questions.
 
 “Don’t die. Don’t lose.”
 
@@ -6558,7 +6558,7 @@ We find a vendor who’s just opening for the day. Fortunately, he’s not selli
 
 “Seriously. I don’t have any plans.” I tell him, which isn’t *exactly* true. But it's mostly true. “I have ideas about some ways to possibly avoid dying.”
 
-I run through possible scenarios in my head, over and over, but all I see are flaws in all of them. I consider aiming for ‘trust me, I’m harmless,’ but after the past twenty four hours, I think we’re well past that. He knows I’m not harmless, so I may as well aim for every possible advantage. Only any advantage I have time to preemptively give myself, he has time to counteract. That’s the problem with magic: whatever you can do, there’s probably someone else who can do it too. That’s why no sensible person wages wars using magic. All you’re going to get with that is complete and utter destruction.
+I run through possible scenarios in my head, over and over, but all I see are flaws in all of them. I consider aiming for ‘trust me, I’m harmless,’ but after the past twenty four hours, I think we’re well beyond that. He knows I’m not harmless, so I may as well aim for every possible advantage. Only any advantage I have time to preemptively give myself, he has time to counteract. That’s the problem with magic: whatever you can do, there’s probably someone else who can do it too. That’s why no sensible person wages wars using magic. All you’re going to get with that is complete and utter destruction.
 
 I’m going around in circles and getting nowhere. I need a change of perspective. I need to think about something else.
 
@@ -6566,11 +6566,11 @@ I’m going around in circles and getting nowhere. I need a change of perspectiv
 
 Giorgi’s eyes dart to me and then quickly dance away. I see his jaw flex.
 
-“Oh,” I say. “You think you know something *big* that I don’t know! What is it?”
+“Oh,” I comment. “You think you know something *big* that I don’t know! What is it?”
 
-“I didn’t say that,” he remarks and I sense feigned disinterest in his tone.
+“I didn’t say that,” he responds, and I sense feigned disinterest in his tone.
 
-“I’m pretty sure you did. At least your face did,” I tell him. “Which is actually interesting because it means it’s definitely something big. Or at least you think it is.”
+“I’m pretty sure you did. At least your face did,” I inform him. “Which is actually interesting, because it means it’s definitely something big. Or at least you think it is.”
 
 “How do you figure?”
 
@@ -6582,7 +6582,7 @@ I start guessing, watching his expression as I do.
 
 “Something about Liam?” I ask, pausing long enough to see if I get a reaction. “No. Not Liam. Something about Peter?” Still nothing. “Probably not Alex. Have you figured out something about my mother?” I wait half a second, but there’s no reaction. “How would you have, though? Same with Iverson. So not either of them. Amelia?” Still nothing. “No. Henry? Nope. Gavin? Gavin’s practically an open book. If it was about you, you wouldn’t have reacted. Hell, you wouldn’t have even thought it,” I mutter.
 
-“Davy? No, that doesn’t make any sense either. Davy’s a steel trap. Process of elimination says that only leaves me,” I say, remembering the way he was staring at me when I woke up earlier.
+“Davy? No, that doesn’t make any sense either. Davy’s a steel trap. Process of elimination says that only leaves me,” I state, remembering the way he was staring at me when I woke up earlier.
 
 I think he momentarily misses a breath.
 

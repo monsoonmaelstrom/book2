@@ -7076,15 +7076,15 @@ I think I’m alive.
 
 ### 36 - The Great Escape
 
-“Try,” Alex tells me again when I don’t immediately respond.
+“Try,” Alex demands again when I don’t immediately respond.
 
 Alex isn’t quite as impatient as Hazel, but he’s not far off either. It makes me wonder, because Alexandria doesn’t seem impatient at all. She seems like a snake hidden at the base of a rock—cold-blooded and content to lie in wait forever if that’s what it takes, and neither Alex nor Hazel are like that.
 
-“If it was you, Hazel would try,” he says.
+“If it was you, Hazel would try,” he pushes.
 
 I know she would. At least I can be sure that if this is the wrong move, and it makes the situation worse, we’ll both end up dead. I won’t have to live knowing I made the wrong decision and caused her death.
 
-“Fine,” I mutter. “I’ll try it. How hard do you think I should… pull on it?”
+“Fine,” I mutter. “I’ll try. How hard do you think I should… pull on it?”
 
 “As hard as you need to. If she was able to wake up on her own, she would have done it already. And she looks generally better now, so I don’t think you need to worry about…” Alex waves a hand ambiguously in the air.
 
@@ -7100,13 +7100,13 @@ I know she would. At least I can be sure that if this is the wrong move, and it 
 
 “There’s nothing to it but to do it.”
 
-“There’s nothing to it but to do it,” I echo his words, and the times I’ve heard Hazel say those same eight words flicker through my memory.
+I echo his words, “There’s nothing to it but to do it.” The times I’ve heard Hazel say those same eight words flicker through my memory.
 
 I reach out for the magic binding us together. It looks the same as ever: a web of glimmering, golden strands woven around me and across to her. When we’re this close together it practically seems to glow with its own inner light. Except for that first night, I haven’t tried to actively do anything with or to this magic.
 
 But Alex is right. If she was going to wake up on her own, she would have done it by now. I wrap my arms around her a little bit tighter. Then I begin pulling on the connection between us.
 
-At first, all I feel is resistance. It feels like I’m pulling on a rope that’s anchored to a wall, and it’s not going to move. Following Alex’s advice, I pull harder. I keep increasing the intensity with which I’m pulling until it seems like I finally feel the resistance give, just a little bit. I continue pulling but then Hazel starts screaming.
+At first, all I feel is resistance. It feels like I’m pulling on a rope that’s anchored to a wall, and it’s not going to move. Following Alex’s advice, I pull harder. I keep increasing the intensity with which I’m pulling until it seems like I finally feel the resistance give, just a little bit. I continue pulling, but then Hazel starts screaming.
 
 “Don’t stop,” Alex tells me over her screaming.
 
@@ -7126,7 +7126,7 @@ All of a sudden, the pressure gives like a soap bubble popping, and Hazel falls 
 
 “I’m going to—”
 
-“*Go to sleep, Liam,*” Alex says, seeing me moving to stand, and evidently drawing the appropriate conclusion.
+“*Go to sleep, Liam,*” Alex orders, seeing me moving to stand, and evidently drawing the appropriate conclusion.
 
 The world goes dark.
 
@@ -7144,15 +7144,15 @@ It kind of sounds like Hazel’s voice, but it can’t be because Hazel hasn’t
 
 *Why can’t I open my eyes?*
 
-“No,” she says softly. It’s barely a whisper.
+“No,” she answers softly. It’s barely a whisper.
 
-“Well then. You’re welcome. Besides, if you truly meant that, you would have taught him to stop it from happening.”
+“Well, then. You’re welcome. Besides, if you truly meant that, you would have taught him how to stop it from happening.”
 
 “Let him go,” she sighs.
 
 My eyes open and I see Hazel’s face swimming just out of focus in front of me. I blink quickly several times to clear my vision and bring her into focus.
 
-“You… You’re alive!” The relief I feel is palpable. I bring my hands to her face to reassure myself she’s real. That this isn’t some dreamscape hallucination. There’s never any texture in dreams, and I can feel her skin beneath my fingers. She’s real. I’m awake. She’s awake.
+“You… You’re alive!” The relief I feel is palpable. I bring my hands to her face to reassure myself she’s real. That this isn’t some dreamscape hallucination. There’s never any texture in dreams, and I can feel her skin beneath my fingers. She’s real. I’m awake. She’s awake!
 
 She presses her lips to mine. They’re dry and chapped from spending so long unconscious with so little fluids, but they’re real.
 
@@ -7160,15 +7160,15 @@ She presses her lips to mine. They’re dry and chapped from spending so long un
 
 “Are you okay?” I ask resting my forehead against hers.
 
-“I will be,” she says, but she sounds more unsure of herself than I’ve ever heard her sound.
+“I will be,” she responds, but she sounds more unsure of herself than I’ve ever heard her sound.
 
 “Okay,” I agree, not wanting to push too hard. “Alex, get her some water,” I bark out. “How long have you been awake?”
 
-“Not long. A few minutes before you,” she says resting her head on my chest and letting her eyes fall closed.
+“Not long. A few minutes before you,” she answers, resting her head on my chest and letting her eyes fall closed.
 
 I fight the knee-jerk reaction to tell her not to do that. It’s going to be a while before I’m going to be able to see her asleep without worrying. I run a hand over her hair.
 
-“Would you be terribly upset if I killed him?” I ask to keep her talking.
+“Would you be terribly upset if I killed him?” I question just to keep her talking.
 
 “No,” she sighs. “He’s your brother too. You can kill him if you want.”
 
@@ -7180,7 +7180,7 @@ She takes the glass he’s holding out to her and drains it.
 
 “Happy?” she asks, handing it back, her voice sounding slightly less gravelly.
 
-“Only marginally. Why didn’t you teach Liam how to keep us out?” Alex asks her.
+“Only marginally. Why didn’t you teach Liam how to keep us out?” Alex interrogates.
 
 I get the impression he doesn’t particularly care what the answer is. He simply wants her awake and talking.
 
@@ -7194,9 +7194,9 @@ He’s baiting her now, I’m sure of it.
 
 Based on the look on Alex’s face, I’m not the only one confused by the heat in her response. Hazel can be mercurial, but a comment like that isn’t enough to upset her. I look at Alex in question, but he merely shrugs.
 
-“Hazel, what’s wrong?” I ask.
+“Hazel, what’s wrong?” I prod.
 
-“Nothing,” she says softly. “Where are Davy and Giorgi?”
+“Nothing,” she states softly. “Where are Davy and Giorgi?”
 
 “Why?” Alex asks.
 
@@ -7216,7 +7216,7 @@ Based on the look on Alex’s face, I’m not the only one confused by the heat 
 
 She makes it to her feet, but sways as she stands. I wrap an arm around her waist to steady her.
 
-“Thanks,” she tells me, and we slowly walk to the table together.
+“Thanks,” she murmurs, and we slowly walk to the table together.
 
 “Are you going to tell me why you want to talk to Davy and Giorgi?” Alex tries again.
 

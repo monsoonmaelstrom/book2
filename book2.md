@@ -5764,13 +5764,13 @@ I stay pressed against the wall, where I’ve been the entire time, motionless, 
 
 I let the room empty before I even think about moving. By the end, the only people left in the room are Commander Selby, the visiting Commanders of the armies of the Allied Polities, my mother, and General Iverson. Liam left after everyone else did, still looking angry, but I didn’t have a chance to find out why.
 
-Commander Selby has made note of me, evidently drawing the logical conclusions. It’s about to be a new world for me. I’m the only person at the war college whose mother is an heir to one of the Allied Polities’ ruling bloodlines—not any bloodline either, but the Raidanes—and now everyone knows it. Now everyone knows who I am. No more blending in. No more fitting in. No more pretending to be like everyone else.
+Commander Selby made note of me, evidently drawing the logical conclusions. It’s about to be a new world for me. I’m the only person at the war college whose mother is an heir to one of the Allied Polities’ ruling bloodlines—not any bloodline either, but the Raidanes—and now everyone knows it. Now everyone knows who I am. No more blending in. No more fitting in. No more pretending to be like everyone else.
 
 Great.
 
 After a few more moments of observing the conversation between Commander Melbrin and Commander Selby, my mother begins making her way toward the exit. Toward me. I sigh internally but school my expression into one that hopefully looks neutral, if not pleased to see her.
 
-“Hi, mom!” I say, deliberately loudly enough to carry. I already told General Iverson I was visiting family, so let’s give him the impression we’re chummy.
+“Hi, mom!” I say, deliberately loud enough to carry. I already told General Iverson I was visiting family, so let’s give him the impression we’re chummy.
 
 “Hazel!” she says, finally using my name without having to be reminded.
 
@@ -5780,11 +5780,11 @@ Clearly she got the memo.
 
 “I’m so glad you were out when the attack occurred! It was dreadful! I would have been beside myself if you’d been injured!’
 
-Now, I’m fighting the urge laugh. There’s no one in the world who would care less if I was injured.
+Now, I’m fighting the urge to laugh. There’s no one in the world who would care less if I was injured.
 
-“I know! I’m so glad you weren’t hurt!” I say as we exit the gallery. As soon as the doors close behind us, I throw up a shield to stop our conversation from being overheard. “I need to talk to you,” I tell her, dropping the friendly facade.
+“I know! I’m so glad you weren’t hurt!” I exclaim as we exit the gallery. As soon as the doors close behind us, I throw up a shield to stop our conversation from being overheard. “I need to talk to you,” I tell her, dropping the friendly facade.
 
-“I’m busy, daughter. Make an appointment,” she says before walking away.
+“I’m busy, daughter. Make an appointment,” she replies before walking away.
 
 “That’s what I’m trying to do right now!” I call after her.
 
@@ -5792,9 +5792,9 @@ My only answer is a shrug from her retreating back.
 
 ----
 
-I’m sitting in a class which is *supposed* to be about tactics, but somehow the discussion has veered off onto the topic of supply chains. It’s always gods damned supply chains. Always. Except today, the professor is having a hard time keeping everyone focused on that, which normally—for reasons completely beyond my understanding—isn’t a difficult task. People here normally *want* to talk about supply chains and logistics. But not today.
+I’m sitting in a class which is *supposed* to be about tactics, but somehow the discussion has veered off onto the topic of supply chains. It’s always gods damned supply chains. Always. Except today, the professor is having a hard time keeping everyone focused on that, which normally—for reasons completely beyond my understanding—isn’t a difficult task. People here typically *want* to talk about supply chains and logistics. But not today.
 
-Today, heads keep swiveling to me. I’m doing my best to ignore them. I remind myself I knew exactly what was going to happen when I asked my mother for a favor. Okay. Maybe not *exactly* but I knew this wasn’t an unlikely outcome, and I still decided it was worth it. I decided that having her provide a reason to Iverson why the man he had following us wasn’t coming back was better than having his absence and presumed death placed at our feet. While Iverson might suspect Liam and I were involved, my mother absolutely threw enough doubt into the equation that there’s no way he can be certain. And maybe, based on his past interactions with her, he even believes she’s solely responsible for it.
+Today, heads keep swiveling to me. I’m doing my best to ignore them. I remind myself I knew exactly what was going to happen when I asked my mother for a favor. Okay. Maybe not *exactly* but I knew this wasn’t an unlikely outcome, and I still decided it was worth it. I decided that having her provide a reason to Iverson why the man he had following us wasn’t coming back, was better than having his absence, and presumed death, placed at our feet. While Iverson might suspect Liam and I were involved, my mother absolutely threw enough doubt into the equation that there’s no way he can be certain. And maybe, based on his past interactions with her, he even believes she’s solely responsible for it.
 
 *Everything that’s happening right now is happening because I decided the benefits outweighed the costs,* I continue to remind myself.
 
@@ -5804,9 +5804,9 @@ I meet his eyes. *Sorry*, I mouth.
 
 He shrugs slightly, then gestures for me to approach the front of the room where he’s leaning against a desk.
 
-I resist the urge to shake my head and stay where I am. I brace myself, and then I stand and walk down the aisle between the student desks.
+I resist the urge to shake my head and stay where I am. Instead, I brace myself, and then I stand and walk down the aisle between the student desks.
 
-“Best to get this over with now,” he says softly to me, before addressing the others again. “This is your classmate, Hazel Raidane. The daughter,” he pauses to glance at me.
+“Best to get this over with now,” he says to me softly, before addressing the others again. “This is your classmate, Hazel Raidane. The daughter,” he pauses to glance at me.
 
 I nod tightly.
 
@@ -5820,7 +5820,7 @@ Professor Daly nods at me, and I begin walking back to my seat.
 
 “But where was she?” someone calls out. “For all those years, where was she?”
 
-“On holiday,” I say noncommittally, earning a spattering of laughter around the room.
+“On holiday,” I answer noncommittally, earning a spattering of laughter around the room.
 
 I sit down and Professor Daly tries to pick back up on the supply chain narrative he was discussing before. It’s slightly more successful and there are somewhat fewer heads turning to look at me as the class progresses.
 
@@ -5830,7 +5830,7 @@ Other people love discussing logistics. I think it’s because logistics are mer
 
 I’m in the gym sparring with Amelia once again. Or trying to, but suddenly there are three times as many people in here as there would be any other night. I know they’re all only here because I’m here. I’ve suddenly become interesting. I hate being interesting.
 
-“Have you seen Liam recently?” I ask Amelia quietly as the two of us sit against one of the walls, waiting for some of the crowd to piss off.
+“Have you seen Liam recently?” I ask Amelia quietly, as the two of us sit against one of the walls, waiting for some of the crowd to piss off.
 
 “Not since this morning. Why?”
 
@@ -5848,7 +5848,7 @@ I snort. “Yeah.”
 
 I’m surprised she wasn’t. It seemed like *everyone* was there. “Where were you?”
 
-“Nowhere,” she says quickly.
+“Nowhere,” she responds quickly.
 
 “Nowhere like…?” I wait but she says nothing. “Nowhere like with Peter?” I guess.
 
@@ -5858,11 +5858,11 @@ She winces slightly. Got it in one, evidently.
 
 “I don’t care who you sleep with, Amelia,” I tell her. “It’s really none of my business.”
 
-“I gave you a hard time about Liam though,” she says softly.
+“I gave you a hard time about Liam, though,” she states softly.
 
-“I think you actually gave Liam a hard time about *me*,” I say, “which was kind of shitty of you. But whatever. How long have you two been back together?” I ask. I don’t truly care, I’m merely trying to steer the conversation toward something that doesn’t involve me.
+“I think you actually gave Liam a hard time about *me*,” I remind her, “which was kind of shitty of you. But whatever. How long have you two been back together?” I inquire disinterestedly. I don’t truly care, I’m merely trying to steer the conversation toward something that doesn’t involve me.
 
-“We are *not* back together,” she says decisively.
+“We are *not* back together,” she informs me decisively.
 
 “Okay.”
 
@@ -5872,13 +5872,13 @@ I want to say, *Who does?* but the answer to that seems to be everyone but Ameli
 
 “But to answer your question, since that night you all got back to Branton.”
 
-“Damn,” I say, whistling. “That’s a long time to not be back together.”
+“Damn.” I let out a low whistle. “That’s a long time to not be back together.”
 
 She shrugs.
 
-The room isn’t looking quite as full since we’ve been sitting against the wall not doing anything interesting. And by we, I mean me. I don’t think anyone is here because of Amelia.
+The room isn’t looking quite as full since we’ve been sitting against the wall not doing anything interesting. And by ‘we,’ I mean me. I don’t think anyone is here because of Amelia.
 
-“Shall we?” I ask nodding toward the mat.
+“Shall we?” I question, nodding toward the mat.
 
 “Yeah,” she agrees.
 
@@ -5886,31 +5886,31 @@ As we take positions across from one another on the mat, I hear someone ask, “
 
 I look around trying to find the speaker before my eyes finally land on a woman who’s about the same size as Amelia and a couple of inches taller than me. I want to tell her no, but I look at Amelia instead. She shrugs.
 
-“Fine,” I say.
+“Fine,” I respond.
 
 I must sound less than thrilled about it because she quickly says, “Sorry, I’m not trying to… I only— I saw you today, and then people said you spar at nights in the gym, and well I thought maybe I could join you because…”
 
-“Because we’re about the same size and there aren’t that many options?”
+“Because we’re about the same size and there aren’t that many options?” I fill in.
 
 She nods.
 
 “Yeah, alright,” I agree.
 
-“Hazel,” Amelia says softly, as we resume our positions across from one another, “if you throw this fight to get out of having to spar with someone new…”
+“Hazel,” Amelia begins softly, as we resume our positions across from one another, “if you throw this fight to get out of having to spar with someone new…”
 
 “I wouldn’t do that,” I tell her, knowing I totally would, since I was actually considering doing precisely that.
 
 ----
 
-I’m awake the next morning as night turns to dawn and gives way to day. I haven’t slept. I’m on approximately my thirteenth cup of coffee in half as many hours, but who’s counting? Liam never reappeared last night. If he’d given any indication he was planning on not returning last night, I’d be less concerned. But he didn’t, so I am. Especially considering his mood yesterday. I let my magic brush across the magic that’s binding us together, and I get no response. I heat up the ring I’m wearing for him, and once again, nothing.
+I’m awake the next morning as night turns to dawn and gives way to day. I haven’t slept. I’m on approximately my thirteenth cup of coffee in half as many hours, but who’s counting? Liam never reappeared last night. If he’d given any indication he was planning on not returning, I’d be less concerned. But he didn’t, so I am. Especially considering his mood yesterday. I let my magic brush across the magic that’s binding us together, and I get no response. I heat up the ring I’m wearing for him, and once again, nothing.
 
 Clearly he’s still alive, because I’m still alive, but he’s completely unresponsive, meaning he’s either unconscious, drugged with malusium, or both. And there’s not much I can do about it right this second.
 
-I get dressed, braid my hair, and head to the cafeteria to get some food since I’m guessing this will probably be the one chance I have to eat today. I’m also hoping to see if I can find Henry or Amelia without having to go looking for them, which will be step two if I don’t run into them while I’m there.
+I get dressed, braid my hair, and head to the cafeteria to get some food since I’m guessing this will probably be the one chance I have to eat today. I’m also hoping to see if I can find Henry or Amelia without having to go looking for them, which will be step two if I don’t run into them while I’m here.
 
 I get a cup of coffee and a bowl of oatmeal and sit facing the door. My attention is split between watching the door and the spotted eagle that’s back on this side of the pass, looking for anything unusual.
 
-The eagles are far less useful, generally speaking, than I was hoping when looking for a specific thing. If it’s not looking at the very thing you’re looking for, when you’re looking for it, good luck. It’s better than nothing, particularly for a getting a bird’s eye view, but that’s not helping me right now. My best bet is going to be waiting for Iverson to show up and then having the eagle follow him, but that makes several assumptions. First, that he’s the one who took Liam. For all I know, it could be my mother, or it could be completely unrelated. It’s not likely, but it’s not entirely outside the realm of possibilities. Second, it assumes that if he took Liam, he’s going to be stupid enough or brazen enough to go back to wherever he’s keeping Liam. My money would be on the second, given what I know about him.
+The eagles are far less useful, generally speaking, than I was hoping when looking for a specific thing. If it’s not looking at the very thing you’re looking for, when you’re looking for it, good luck. It’s better than nothing, particularly for getting a bird’s eye view, but that’s not helping me right now. My best bet is going to be waiting for Iverson to show up and then having the eagle follow him, but that makes several assumptions. First, that he’s the one who took Liam. For all I know, it could be my mother, or it could be completely unrelated. It’s not likely, but it’s not entirely outside the realm of possibilities. Second, it assumes that if he took Liam, he’s going to be stupid enough or brazen enough to go back to wherever he’s keeping Liam. My money would be on the second, given what I know about General Iverson.
 
 And while the eagles were useful as one of the few birds capable of crossing the mountains in the winter, they’re fairly notable within the confines of a large city. Something like a crow or a pigeon would probably be better solely for its ability to blend in, but I’m stuck working with what I’ve got at the moment.
 
@@ -5918,25 +5918,25 @@ Right now, the eagle is using the thermals to slowly circle above the city looki
 
 I’ve been in the cafeteria for about twenty minutes when Amelia comes in. I make sure to catch her eye so she knows I’m here, and a few minutes later she sits down.
 
-“Have you heard anything from Liam since we talked last night?” I ask without any sort of pleasantries.
+“Have you heard anything from Liam since we talked last night?” I question without any sort of pleasantries.
 
 “No. Why?”
 
 “What about Peter? Have you talked to him.”
 
-“No,” she says again. “We were actually supposed to meet last night, but he never showed.”
+“No,” she answers again. “We were actually supposed to meet last night, but he never showed.”
 
 “Where were you supposed to meet?”
 
 “His place. Why?”
 
-“His place where?” I ask hoping he hasn’t been dumb enough to be bringing people back to the Ginnelstreet flats where everyone has been staying.
+“His place where?” I interrogate, hoping he hasn’t been dumb enough to be bringing people back to the Ginnelstreet flats where everyone has been staying.
 
 “Why?” She asks again.
 
 “Does Peter normally blow you off?”
 
-“No,” she answers. “You think this is connected to Liam?”
+“No,” she states. “You think this is connected to Liam?”
 
 “Yes.”
 
@@ -5944,7 +5944,7 @@ Either Peter sold Liam out, or someone has both of them. Given Liam’s mood yes
 
 “Do you think Peter…”
 
-I’m not exactly sure how she was going to finish that sentence, but the answer is the same either way: “I don’t know. Where were you supposed to meet him?”
+I’m not exactly sure how she was going to finish that sentence, but the answer is the same regardless. “I don’t know. Where were you supposed to meet him?”
 
 “I’ll take you,” she tells me.
 
@@ -5964,13 +5964,13 @@ Henry nods. “I saw him yesterday, right after the assembly.”
 
 “He said something about meeting Peter and Alex.”
 
-Fuck. I try my ring for Alex and similarly get no response. Almost definitely my mother or Iverson then. All three of them pretty much rules out any other possibility being the cause. My money is on Iverson.
+Fuck. I try my ring for Alex and similarly get no response. Almost certainly my mother or Iverson then. The fact that all three of them seem to be missing pretty much rules out any other possibility being the cause. My money is on Iverson.
 
-“I need you to go get Giorgi and Gavin,” I tell Henry. “And Davy, if you can. Meet us at Reese’s churro shop at two. Davy or Giorgi will know where it is.” I don’t know for sure that Gavin and Giorgi have ever been there, but I’m pretty sure even if they haven’t, Giorgi will know where it is. “And it probably goes without saying, but make sure you’re not followed.”
+“I need you to go get Giorgi and Gavin,” I tell Henry. “And Davy, if you can. Meet us at Reese’s churro shop at two. Davy or Giorgi will know where it is.” I don’t know for sure that Gavin and Giorgi have ever been there, but I’m pretty sure even if they haven’t, Giorgi will still know where it is. “And it probably goes without saying, but make sure you’re not followed.”
 
-Like yesterday, the tenor of the conversations around us begins to change and people begin filing out of the cafeteria. Apparently they’re going to be starting soon.
+Like yesterday, the tenor of the conversations around us begin to change and people begin filing out of the cafeteria. Apparently, they’re going to be starting soon.
 
-“Well that’s our cue,” I say.
+“Well that’s our cue,” I remark.
 
 Henry nods, saying, “I’ll see you later.”
 

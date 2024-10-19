@@ -5980,27 +5980,27 @@ Amelia and I get up to follow the crowd of people moving to the main gallery.
 
 I’m not sure how it’s possible, but I think there are even more people crammed into the room today than there were yesterday. I’m in roughly the same spot near the door with Amelia beside me. You couldn’t pay me to be any further from the exit than I currently am.
 
-The mood in the room feels tense, like there’s a storm brewing. It feels like the atmosphere in Branton has felt for weeks, if not months, only ratcheted up several notches. It definitely feels like violence is imminent. If I didn’t need to be here to hear this, I would do the smart thing and evacuate this room immediately, but I do need to be here to hear whatever this decision is, because it’s going to directly impact whatever I do next.
+The mood in the room feels tense, like there’s a storm brewing. It feels like the atmosphere in Branton has felt for weeks, if not months, only ratcheted up several notches. It definitely feels like violence is imminent. If I didn’t need to be here to hear this, I would do the smart thing and evacuate this room immediately, but I do need to hear whatever their decision is, because it’s going to directly impact whatever I do next.
 
-The crowd is so thick I can barely see through it, but I do see my mother, Commander Selby, and General Iverson at the front of the room. I assume the other Commanders are up there somewhere too.
+The crowd is so thick I can barely see through it, but I do glimpse my mother, Commander Selby, and General Iverson at the front of the room. I assume the other Commanders are up there somewhere too.
 
 Commander Selby holds up a hand and waits for the roar of conversation throughout the room to come to a halt. It takes a couple of minutes, but eventually people notice and shush or elbow those nearby into silence.
 
-“After lengthy discussion among ourselves over the past day, we have unanimously agreed there is not enough evidence to either substantiate or repudiate Alexandria Raidane’s accusations toward General Iverson or Dairuvar,” he says in a rumble which carries throughout the room.
+“After lengthy discussion among ourselves over the past day, we have unanimously agreed there is not enough evidence to either substantiate or repudiate Alexandria Raidane’s accusations toward General Iverson and Dairuvar,” he says in a rumble which carries throughout the room.
 
 The volume of the crowd immediately begins increasing at this statement.
 
-“However,” Commander Selby shouts, and waits for the room to quiet again. “However, we do agree that a recall vote regarding General Iverson’s ability to serve as the Allied Army’s commander is warranted.”
+“However,” Commander Selby shouts, and waits for the room to quiet again. “However, we do agree that a recall vote regarding General Iverson’s ability to serve as the Army of the Allied Polities’ commander is warranted.”
 
-I’m not surprised. This is exactly what my mother wanted, and I gave her the perfect way to go about obtaining it. I’m fairly confident this is going to end with a no confidence vote in General Iverson’s ability to act in the best interest of the Allied Polities rather than the best interests of Dairuvar. In which case, interim command of the Allied Army will fall to Commander Selby until new candidates are selected and voting concludes.
+I’m not surprised. This is exactly what my mother wanted, and I gave her the perfect way to go about obtaining it. I’m fairly certain this is going to end with a no confidence vote in General Iverson’s ability to act in the best interest of the Allied Polities, rather than the best interests of Dairuvar. In which case, interim command of the Allied Army will fall to Commander Selby until new candidates are selected and voting concludes.
 
-I only know this because I consulted several of the books on Liam’s bookshelf last night in search of the answer to the question since I couldn’t sleep.
+I only know this because I consulted several of the books on Liam’s bookshelf last night in search of the answer to the question, since I couldn’t sleep.
 
-Practically, this will likely be the equivalent to unmuzzling and unleashing General Iverson. While I agree he needs to be removed from his position, doing it like this is idiocy equivalent to giving him the position in the first place. The only way to adequately remove him from the position now isn’t via a vote, but via a targeted political assassination. If Commander Selby was smart, he wouldn’t be calling a vote this morning, he’d be raising a flag to half staff and announcing an untimely and unexpected demise. Sure there’d be rumors and allegations surrounding the timing of his death, but right now, whether he realizes it or not, Commander Selby is about to rip the alliance apart and trigger a civil war.
+Practically, this will likely be the equivalent to unmuzzling and unleashing General Iverson. While I agree he needs to be removed from his position, doing it like this is idiocy equivalent to giving him the position in the first place. The only way to adequately remove him from the position now isn’t via a vote, but via a targeted political assassination. If Commander Selby was smart, he wouldn’t be calling a vote this morning, he’d be raising a flag to half staff and announcing an untimely and unexpected demise. Sure, there’d be rumors and allegations surrounding the timing of his death, but right now, whether he realizes it or not, Commander Selby is about to rip the alliance apart and trigger a civil war.
 
 Action, meet consequence.
 
-My mother looks immensely pleased. General Iverson looks like he’s contemplating tearing the war college apart, brick by brick. And since I’m pretty sure I could do it, I’m pretty sure he could too. If he has Liam and the others, this does not bode well for them or for me. It *almost* makes me hope my mother has them, but I’m pretty sure she doesn’t.
+My mother looks immensely pleased. General Iverson looks like he’s contemplating tearing the war college apart, brick by brick. And since I’m pretty sure I could do it, I’m pretty sure he could too. If he has Liam and the others, this does not bode well for them, or for me. It *almost* makes me hope my mother has them, but I’m pretty sure she doesn’t.
 
 “In the interest of transparency,” Commander Selby continues, “voting will take place now. Commander Melbrin, in the matter of removing General Iverson from his position, do you vote to remove him?”
 
@@ -6022,13 +6022,13 @@ The aide continues to note down the votes.
 
 “Commander Errigan, how do you vote?”
 
-“Oulanen is against removing General Iverson,” Command Errigan tells the assembly.
+“Oulanen is against removing General Iverson,” Commander Errigan tells the assembly.
 
 “Commander Soto, how do you vote?”
 
 “Leira abstains,” Commander Soto states, also surprising no one.
 
-“The votes are two in favor of removing General Iverson, two against removing General Iverson, and one abstention.” Commander Selby casts a clearly annoyed look at Commander Soto. “Meaning as Commander of the War College of the Army of the Allied Polities, I cast the deciding vote. I also see the conflict that allowing General Iverson to maintain his position as the Commander of the Army of the Allied Polities presents. I vote with Avonare and Firgasu. General Iverson should be removed from his position, and we will begin the search for a new Commander.”
+“The votes are two in favor of removing General Iverson, two against removing General Iverson, and one abstention.” Commander Selby announces, casting a clearly annoyed look at Commander Soto. “Meaning as Commander of the War College of the Army of the Allied Polities, I cast the deciding vote. I also see the conflict that allowing General Iverson to maintain his position as the Commander of the Army of the Allied Polities presents. I vote with Avonare and Firgasu. General Iverson shall be removed from his position, and we will begin the search for a new Commander.”
 
 All hell breaks loose. I grab Amelia’s arm and shove our way through the door into the hallway, beating the sea of people who will soon spill into it, and pull her toward Commander Selby’s office. I let us in as soon as we get there. Since everyone else is still in the press of people in the main gallery, there’s no one to see me do so, or raise any objections.
 
@@ -6042,7 +6042,7 @@ All hell breaks loose. I grab Amelia’s arm and shove our way through the door 
 
 I’ve never been in his office before. It’s less military themed than I would have expected, making me realize I don’t really know anything at all about Commander Selby. I’ve never had any reason to speak to him, and avoided him beyond that, for obvious reasons.
 
-We’ve been in the office for a bit more than ten minutes when Commander Selby finally opens the door, striding into the room and locking the door behind him, clearly desperate to get away from the press of people. It’s another couple of seconds before he realizes we’re here.
+We’ve been in the office for a bit more than ten minutes when Commander Selby finally opens the door, striding into the room and locking it behind him, clearly desperate to get away from the press of people. It’s another couple of seconds before he realizes we’re here.
 
 His eyes land on me, and the slight widening says he clearly knows who I am.
 
@@ -6070,7 +6070,7 @@ I’m both surprised and pleased he doesn’t feign outrage, or question how we 
 
 “Unpleasantly.”
 
-Commander Selby sighs. “I have bigger things to care about than your whereabouts.”
+Commander Selby sighs. “I have more important things to care about than your whereabouts.”
 
 That’s good enough for me, but since I’m already here, I decide to press my luck. “You cast the deciding vote,” I say.
 

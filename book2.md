@@ -5406,37 +5406,37 @@ She snorts in response, but doesn’t go so far as to tell me I’m wrong. “Ve
 
 ### 26 - Closer
 
-Liam and I slowly walk back to the campus. At the rate we’re moving, dusk will have crossed into true night by the time we get back, but neither of us has it in us to hurry given the way the day went.
+Liam and I slowly walk back to the campus. At the rate we’re moving, dusk will have crossed into true night by the time we get back, but neither of us has it in us to hurry, given the way the day went.
 
-I did everything wrong, and I know better. My mother wasn’t wrong when she said I deserved what I got. Liam didn’t deserve to share in that agony though. I’m honestly surprised she helped at all. I think eventually I could have figured it out, it just would have taken days for me to be able to fight through the agony enough to do it. Days I didn’t have. She wasn’t wrong when she said binding me to Liam gives her an easy way to kill me. But I don’t think that’s enough to explain her decision, which worries me. I feel like I’m trying to put together a puzzle but some of the pieces are missing, and I don’t know how many because I don’t even know what the puzzle is supposed to look like when it’s done.
+I did everything wrong, and I know better. My mother was right when she said I deserved what I got. Liam didn’t deserve to share in that torture though. I’m honestly surprised she helped at all. I think eventually I could have figured it out, it just would have taken days for me to be able to fight through the agony enough to do it. Days I didn’t have. She was telling the truth when she said binding me to Liam gives her an easy way to kill me. But I don’t think that’s enough to explain her decision, which worries me. I feel like I’m trying to put together a puzzle but some of the pieces are missing, and I don’t know how many because I don’t even know what the puzzle is supposed to look like when it’s done.
 
-Then there’s also the fact that apparently Davy and I were right. I was already similar enough to my mother. I didn’t have to change myself in order for her magic to accept me as her, despite the mess I made. Normally I like being right, but not today. Not about this. It feels like my stomach started dropping the second Liam agreed to it this morning, and it hasn’t stopped since.
+Then there’s also the fact that, apparently, Davy and I were right. I was already similar enough to my mother. I didn’t have to change myself in order for her magic to accept me as her, despite the mess I made. Normally I like being right, but not today. Not about this. It feels like my stomach started dropping the second Liam agreed to the idea this morning, and it hasn’t stopped since.
 
 Everything that happened earlier was my fault, and I’m angry at myself for being so recklessly impulsive.
 
 “I’m sorry,” I tell him as we cross the bridge to the north bank of the river. “She was right. I should have been more careful. I shouldn’t have rushed it. I should have spent days working on it before I did what I did.” They’re the first words either of us have said since we left Davy’s, and my eyes look at everything but Liam as I apologize.
 
-“Let’s stop for a minute,” Liam says after a few steps.
+“Let’s stop for a minute,” Liam responds after a few steps.
 
 “Why?”
 
-“If you remember, I like to have face to face conversations,” he comments as he pulls me toward the side of the bridge.
+“If you remember, I like to have face to face conversations,” he reminds me, as he pulls me toward the side of the bridge.
 
-I let him but I lean over the railing to stare at the water once we’re there. “That’s exactly what I was trying to avoid,” I mutter.
+I let him, but I lean over the railing to stare at the water once we’re there. “That’s exactly what I was trying to avoid,” I mutter.
 
 “I know,” he says as he wraps his hands around my waist, and turns me toward him.
 
-“What are you—” I begin before he lifts me up to sit on the bridge’s parapet, bringing us nearly eye level with one another.
+“What are you—” I start, before he lifts me up to sit on the bridge’s parapet, bringing us nearly eye level with one another.
 
 “Face to face,” he tells me softly, his hands still around my waist.
 
 I sigh, but meet his eyes, only inches from my own. “I’m sorry,” I repeat. “It wasn’t supposed to hurt you. You shouldn’t have had to bear the consequences of my actions. You believed me when I said I could do it, and I was wrong.”
 
-“Hazel,” he says, and I think I hear frustration in the low rumble of his voice as he pushes back the hair that’s fallen into my face. “You told me we could both die. I was never under the impression you were sure it would work. *We* knew it was a risk, and *we* decided it was worth it anyway. Both of us.”
+“Hazel,” he begins, and I think I hear frustration in the low rumble of his voice as he pushes back the hair that’s fallen into my face. “You told me we could both die. I was never under the impression you were sure it would work. *We* knew it was a risk, and *we* decided it was worth it anyway. Both of us.”
 
 “I don’t like being wrong.”
 
-“You don’t like *losing* and you feel like you lost,” Liam tells me.
+“You don’t like *losing* and you feel like you lost,” Liam states.
 
 I consider it for a second and realize he’s right. I do feel like I’ve lost to my mother.
 
@@ -5446,13 +5446,13 @@ I consider it for a second and realize he’s right. I do feel like I’ve lost 
 
 “Mhmm,” Liam hums, his pupils having dilated so wide I can see my reflection in them in the remaining light that’s being scattered off the surface of the river. His eyes feel like whirlpools pulling me in and I find myself unable to look away.
 
-“We should go back,” I say, barely above a whisper.
+“We should go back,” I whisper.
 
 “We should,” Liam agrees, but neither of us moves to do so.
 
-Instead, Liam moves closer, and I let him. He wraps an arm around my waist, pulling me to the edge of the bridge’s parapet and into him. It’s all the invitation I need. My lips are hungrily upon his. I throw my arms around the back of his neck to draw him in even further. He nips at my bottom lip, drawing it beneath his teeth before releasing it, and I moan softly.
+Instead, Liam moves closer, and I let him. He wraps an arm around my waist, pulling me to the edge of the bridge’s parapet and into him. It’s all the invitation I need. My lips are hungrily upon his. I throw my arms around the back of his neck to draw him in even more. He nips at my bottom lip, drawing it beneath his teeth before releasing it, and I moan softly.
 
-Finally, I force myself to pull back. “We should go,” I say again.
+Finally, I force myself to pull back. “We should go,” I repeat.
 
 Liam nods and lifts me off the parapet, setting me back on the ground, but doesn’t step away.
 
@@ -5464,9 +5464,9 @@ Liam nods and lifts me off the parapet, setting me back on the ground, but doesn
 
 ----
 
-It’s dark by the time we walk back through the gates, though well before curfew, not that it applies to Liam. It does to me though, and I am, at least in theory, still supposed to be on my best behavior. We’ll see how much longer that’s enough to hold Iverson at bay. We’ll see what tomorrow brings, but at least for tonight, things *should* be okay.
+It’s dark by the time we walk back through the gates, but well before curfew, not that it applies to Liam. It does to me though, and I am, at least in theory, still supposed to be on my best behavior. We’ll see how much longer that’s enough to hold Iverson at bay. We’ll see what tomorrow brings, but at least for tonight, things *should* be okay.
 
-Liam’s hand is still on my back as we both head toward his room. He hasn’t stopped touching me since the bridge, which I’m not complaining about since I don’t exactly want him to stop, but it is a little distracting, which is possibly why I fail to realize we’re quickly approaching General Iverson, until we practically run into him.
+Liam’s hand is still on my back as we both head toward his room. He hasn’t stopped touching me since the bridge, which I’m not complaining about since I don’t exactly want him to, but it is a little distracting, which is possibly why I fail to realize we’re quickly approaching General Iverson, until we practically run into him.
 
 I lurch to a stop in time to prevent a collision and Liam drops his hand from my back.
 
@@ -5474,7 +5474,7 @@ I lurch to a stop in time to prevent a collision and Liam drops his hand from my
 
 “Miss Raidane,” he says cooly. “Where were you this weekend?”
 
-Standing across from him in the hallway, I note he’s about the same height as Davy, making him shorter than average, like me. His personality seems to more than make up for it though. He also looks substantially younger than he is, like I thought the first time I saw him at a distance. He looks even younger than my mother, and she looks younger than she is as well.
+Standing across from him in the hallway, I note he’s about the same height as Davy, making him shorter than average, like me. His personality seems to more than make up for it, though. He also looks substantially younger than he is, like I thought the first time I saw him at a distance. He looks even younger than my mother, and she looks younger than she is as well.
 
 “Visiting family.”
 
@@ -5488,25 +5488,25 @@ Standing across from him in the hallway, I note he’s about the same height as 
 
 He stands in front of us in the center of the hallway, blocking us from proceeding and looks between us saying nothing.
 
-“Can I help you with something, General?” Liam finally asks when Iverson continues to block our passage.
+“Can I help you with something, General?” Liam asks when Iverson continues to block our passage.
 
 “Yes, Captain. Come with me.”
 
 I step to the side of the hallway as Iverson brushes past me, dismissing me. Liam meets my eyes before glancing to his room as he turns to follow Iverson. The intent is clear—he’ll meet me there when he’s able to. His hand brushes across mine as he retreats back the direction we came from, following Iverson.
 
-I seriously debate following them, but it occurs to me Iverson might want to see if I do. So I don’t. Instead I continue to Liam’s room to set my stuff down, and then go to take a shower.
+I seriously debate following them, but it occurs to me Iverson might want to see if I do. So I don’t. Instead, I continue to Liam’s room to set my stuff down, and then go take a shower.
 
-When I’m done, and lying alone on Liam’s bed with damp hair, I begin to examine what my mother and Davy did. She and Davy were both right. It is like needlepoint. It’s delicate and precise, and exactly the sort of thing I hate doing. Exactly the sort of thing I always try to brute force my way through. I can’t help but sigh. I guess I need to suck it up and start practicing.
+When I’m done, and lying alone on Liam’s bed with damp hair, I begin to examine what my mother and Davy did. She and Davy were both right. It’s like needlepoint. It’s delicate and precise, and exactly the sort of thing I hate doing. Exactly the sort of thing I always try to brute force my way through. I can’t help but sigh. I guess I need to suck it up and start practicing.
 
 I note spots where it’s woven through and around my energy meridians and I think the loops around them are what she did to make it so that if Liam dies, I die. I think the strands which run through them mean that if I die, Liam also does.
 
 It’s basically the same principle as the snares Giorgi showed me. Pull on them from one direction and strangle Liam. Pull on them from the other and strangle me. It’s clever and it’s elegant. I hate it.
 
-So now every time I do something dangerous, it’s not solely my own life I’m playing with. Great. I let my magic move across the strands binding us together, and it feels like it creates a harmonic vibration not entirely dissimilar to what Iverson did.
+Great. Now every time I do something dangerous, it’s not solely my own life I’m playing with. I let my magic move across the strands binding us together, and it feels like it creates a harmonic vibration not entirely dissimilar to what Iverson did.
 
 I lie there staring at the ceiling for a while, evaluating my options when suddenly I feel the ghost of a thrumming echo throughout my body and jolt upright.
 
-“What the hell?” I mutter, redirecting my focus inward. Everything looks… normal. Or at least whatever this new normal is. Once again I let my magic move across the strands stretching between Liam and me, and I feel the same humming sensation.
+“What the hell?” I mutter, redirecting my focus inward. Everything looks… normal. Or at least whatever this new normal is. Once again, I let my magic move across the strands stretching between Liam and me, and I feel the same humming sensation.
 
 Much quicker this time there’s a thrumming that spreads throughout my body in response. Fuck. This is… fuck.
 
@@ -5514,15 +5514,15 @@ The room suddenly feels claustrophobic, and I need to get out of it. I go out th
 
 I wish I had someone to talk to. But no one can come to me and I can’t go to anyone else. That leaves Amelia, who I don’t fully trust, and Henry, who I like well enough, but this definitely isn’t the kind of thing I want to discuss with him.
 
-It’s too late to do anything about it. Literally. Metaphorically. But still. I wish I’d *known*. Finally, I give up on the pacing. It’s not helping anyway. I lie down on the roof and stare up at the stars. I think Liam realized it on the bridge. Or realized *something* at least. But I was too busy being annoyed that I botched it to notice at first, and then too distracted by him to realize it after that. Damn.
+It’s too late to do anything about it. Literally. Metaphorically. But still. I wish I’d *known*. Finally, I give up on the pacing. It’s not helping anyway. I lie down on the roof and stare up at the stars. I think Liam realized it on the bridge. Or realized *something*, at least. But I was too busy being annoyed that I botched it to notice at first, and then too distracted by him to realize it after that. Damn.
 
-I’m not sure how much time has gone by. I’ve lost track, but I think I’ve been lying on the roof for a few hours at least trying to reconcile the fact that the magic tying me to Liam is so much deeper than I realized. It doesn’t just bind our lives and deaths to one another, it’s… more. I don’t even know how much more. I feel like I should have been given a manual. Some kind of instructions. I have a strong feeling this may not be normal, but my mother is the one person who is liable to know, and she probably wouldn’t give me a straight answer even if I could ask her.
+I’m not sure how much time has gone by. I’ve lost track, but I think I’ve been lying on the roof for a few hours, at least, trying to reconcile the fact that the magic tying me to Liam is so much deeper than I realized. It doesn’t just bind our lives and deaths to one another, it’s… more. I don’t even know how much more. I feel like I should have been given a manual. Some kind of instructions. I have a strong feeling this may not be normal, but my mother is the one person who is liable to know, and she probably wouldn’t give me a straight answer even if I could ask her.
 
 The only reason I’m sober is the tremendous lack of any kind of alcohol on this campus, which I’m beginning to view as a serious problem. Unfortunately, tonight is not the night to rectify it.
 
-Eventually, I give up and make my way back to Liam’s room. He’s still gone, so I crawl into bed alone and try to force myself to fall asleep. Apparently I’m successful because I’m woken by the bed sinking and Liam wrapping an arm around me.
+Eventually, I give up and make my way back to Liam’s room. He’s still gone, so I crawl into bed alone and try to force myself to fall asleep. Apparently, I’m successful because I’m woken by the bed sinking and Liam wrapping an arm around me.
 
-I nestle myself into his embrace. “You knew on the bridge,” I say groggily.
+I nestle myself into his embrace. “You knew on the bridge,” I accuse groggily.
 
 “I felt something, but I didn’t know. Not really.”
 
@@ -5536,7 +5536,7 @@ I nestle myself into his embrace. “You knew on the bridge,” I say groggily.
 
 “You smell like smoke,” I comment.
 
-“Sorry,” he says pulling away, “I’ll go shower.”
+“Sorry,” he apologizes, pulling away, “I’ll go shower.”
 
 “No,” I grab his arm to stop him from leaving. “Stay. What were you doing?”
 
@@ -5548,13 +5548,13 @@ I find myself suddenly much more awake, and I turn to face him.
 
 “I think Iverson was trying to make a point.”
 
-“A point like…? What happened, Liam.”
+“A point like…? What happened, Liam?”
 
 “He set fire to some barges on the river.”
 
 “Why? What kind of point is that making?”
 
-“Nominally because their port of registry didn’t originate in Branton, and they weren’t registered with the port authority, making them ‘potentially dangerous to the citizenry,’ which is bullshit. I got the impression the real point was directed at me though. There was no other reason for me to be there. I’m guessing he may have expected you to follow. I think he was hoping you might react if you did,” he says, running a hand through my hair.
+“Nominally, because their port of registry didn’t originate in Branton, and they weren’t registered with the port authority, making them ‘potentially dangerous to the citizenry,’ which is bullshit. I got the impression the real point was directed at me. There was no other reason for me to be there. I’m guessing he may have expected you to follow. I think he was hoping you might react if you did,” Liam comments, running a hand through my hair.
 
 “Huh.” Would I have reacted? Or would I have sat in the shadows and watched the barges burn? Hard to say. Flip a coin. “Was anyone hurt?”
 
@@ -5566,21 +5566,21 @@ It’s clearly just a matter of time. Dairuvar doesn’t want an alliance. They�
 
 “Yes,” Liam agrees, trailing his fingers over the bare skin of my upper arm, and goosebumps spread across my skin in response.
 
-“Earlier on the bridge, what happened?” I ask as I move a little bit closer, since he seemed to have noticed something I didn’t.
+“Earlier on the bridge, what happened?” I question, as I move a little bit closer, since he seemed to have noticed something I didn’t.
 
 In response to my question, Liam kisses me. His mouth is soft on mine at first, but I sense the heat behind it, and as I tilt my head for a better angle, his intensity grows, and I press into him matching it. His lips part and I don’t need any additional invitation, my tongue is sliding over his. His hands move down to my waist and then around my hips as he pulls me closer, and I moan softly against his mouth.
 
 He pulls away suddenly and says, “That.”
 
-“What?” I ask uncertainly.
+“What?” I ask, confused.
 
 “You didn’t feel it?”
 
 I shake my head.
 
-“Pay attention to the magic stretching between us,” Liam tells me before quickly bringing his mouth back to mine.
+“Pay attention to the magic stretching between us,” Liam orders before quickly bringing his mouth back to mine.
 
-I try not to be distracted by the sensation of his tongue stroking over mine, and his hand gripping my ass as his hips press into mine, but I’m quickly losing focus to the feel of his body against mine. He moves onto his back pulling me on top of him, and I feel every hard line of his body beneath me. His hand moves up to caress my breast. The thrill of the sensation has me arching into his hand, moaning. Somehow, I’m still paying enough attention that I see it this time.
+I try not to be distracted by the sensation of his tongue stroking over mine, and his hand gripping my ass as his hips press into mine, but I’m quickly losing focus to the feel of his body against me. He moves onto his back pulling me on top of him, and I feel every hard line of his body beneath mine. His hand moves up to caress my breast. The thrill of the sensation has me arching into his palm, moaning. Somehow, I’m still paying enough attention that I see it this time.
 
 The magic between us flares, evidently in response to my desire for him. I pull back suddenly, gasping. I’m leaking magic. My cheeks go hot as I jump to my feet, moving away from the bed, from Liam.
 
@@ -5600,17 +5600,17 @@ I shake my head. I can’t. How could I not have noticed? Am I like this all the
 
 “Like what?” Liam asks evenly.
 
-“Wrong. Am I always wrong?” I ask desperately. Liam’s words were laced with precisely enough magic to take the edge off, but I’m still steps away from a full blown panic attack.
+“Wrong. Am I always wrong?” I question, desperately. Liam’s words were laced with precisely enough magic to take the edge off, but I’m still steps away from a full blown panic attack.
 
 “What do you mean?”
 
-“She said I couldn’t manage my power, and here I am leaking power onto you and not even noticing it because I’m… excited,” I finish lamely.
+“She said I couldn’t manage my power, and here I am leaking it onto you and not even noticing because I’m… excited,” I finish lamely.
 
 Liam laughs.
 
-“Don’t do that!” I say as I yank my hands from his.
+“Don’t do that!” I demand, as I yank my hands from his.
 
-“Hey, wait,” he says quickly. “I’m sorry. I wasn’t laughing at you, I promise.” He enfolds me in his embrace. “And no, I don’t think you’re always like that. Or at least today is the first time I felt it. So no, I don’t think she’s right and no, you’re not always wrong. I think this is new and it probably makes it a lot easier for it to happen. It’s like adding a new spigot to a water pipe.”
+“Hey, wait,” he responds quickly. “I’m sorry. I wasn’t laughing at you, I promise.” He enfolds me in his embrace. “And no, I don’t think you’re always like that. Or at least today is the first time I felt it. So no, I don’t think she’s right and no, you’re not always wrong. I think this is new and it probably makes it a lot easier for it to happen. It’s like adding a new spigot to a water pipe.”
 
 “I—I’m sorry. I had no idea.”
 
@@ -5620,7 +5620,7 @@ I don’t say anything. I’m embarrassed. I can’t believe I didn’t notice. 
 
 Seeing my reaction, Liam sighs. “Here,” he says, tilting my chin up so that I’m looking at him. “Let’s try something, okay?”
 
-He waits a moment, and when I don’t respond, he lifts me up, pinning my body between his hips and the wall, and he brings his mouth to mine, kissing me gently at first, giving me the chance to object. When I don’t, his teeth nip at my bottom lip, and his hand moves under the shirt I was wearing to sleep. As always, his hands on my bare skin feels like fire, and my hands wind into his hair as I wrap my legs around his hips. Somehow, despite there being no space between my back and the wall, or my chest and his, he pulls my shirt free from my body. I moan as the pad of this thumb strokes over the sensitive skin of my nipple, instantly bringing it to a hard peak.
+He waits a moment, and when I don’t offer any objections, he lifts me up, pinning my body between his hips and the wall, and he brings his mouth to mine, kissing me gently at first, giving me the chance to pull away. When I don’t, his teeth nip at my bottom lip, and his hand moves under the shirt I was wearing to sleep. As always, his hands on my bare skin feel like fire, and my hands wind into his hair as I wrap my legs around his hips. Somehow, despite there being no space between my back and the wall, or my chest and his, he pulls my shirt free from my body. I moan as the pad of this thumb strokes over the sensitive skin of my nipple, instantly bringing it to a hard peak.
 
 Then I feel… everything all at once. It’s a flood of sensation across my entire body. Like Liam and I are existing, momentarily, in the same body. It’s a mixture of physical, magical, and emotional sensation melding together unlike anything I’ve ever felt before. I think I’m experiencing his feelings for me and mine for him at the same time. It’s all blending together into a pleasure that’s just this side of pain, but oh, gods. It feels so good.
 
@@ -5628,27 +5628,27 @@ When it finally ebbs, my whole body feels limp. I would be in a puddle on the fl
 
 “What did you do?” I ask.
 
-“The same thing you did, only intentionally and—I think because it was intentional, instead of spillover—more. Like I said it feels nice,” his mouth twitches into a half smile as he says that last part.
+“The same thing you did, only intentionally and—I think because it was intentional, instead of spillover—more. Like I said, it feels nice,” his mouth twitches into a half smile as he says that last part.
 
-“That was more than nice,” I tell him. “I’ve never felt anything like that in my life.”
+“That was *more* than nice,” I respond. “I’ve never felt anything like that in my life.”
 
 He shrugs, and it’s hard to tell in this light, but I think he might be blushing.
 
-“Can you stand?” he asks me.
+“Can you stand?” he inquires.
 
 “I have no idea. Carry me? I want to finish what we started.”
 
 That’s all it takes for him to spin us around and move to the bed. My mouth is on his neck, my tongue and teeth working across the sensitive flesh near the base of his jaw. He tastes like salt and smoke, and I want more. I’m pulling off his shirt as soon as my back hits the mattress, and he helps me by removing his pants. Immediately, I’m wrapping my hand around him, stroking him. His eyes flutter closed as he groans.
 
-I’ve never wanted anyone the way I want Liam, and I’m pretty sure the feeling is mutual. It terrifies me more than any physical danger ever could.
+I’ve never wanted anyone the way I want Liam, and I’m pretty sure the feeling is mutual. It terrifies me more than any physical danger ever could which, in turn, excites me.
 
-He lowers his weight onto me slowly and the mattress sinks as his hands find mine and bring them above my head, pinning them to the bed. He drives into me with one quick thrust, wringing a shout from me. I roll my hips to meet his on the next thrust and we begin moving together, though he keeps my hands pinned. His mouth is on mine, and I feel every hard line of his body brushing against mine.
+He lowers his weight onto me slowly and the mattress sinks as his hands find mine and bring them above my head, pinning them to the bed. He drives into me with one quick thrust, wringing a shout from me. I roll my hips to meet his on the next thrust and we begin moving together, though he keeps my hands pinned. His mouth is on mine, and I feel every hard line of his body brushing against me.
 
-I begin to let my feelings for him bleed into the magic connecting us, and I feel him gasp. I stroke my tongue across his and deepen the pressure of my mouth on his as I lightly feed more energy into magic binding us together—this time on purpose.
+I begin to let my feelings for him bleed into the magic connecting us, and I feel him gasp. I stroke my tongue across his and deepen the pressure of my mouth as I lightly feed more energy into the magic binding us together—this time on purpose.
 
 “Hazel,” he groans above me, pausing.
 
-“I want *all* of you, Liam,” I say as I meet his eyes, and it feels like I’m falling head first into him.
+“I want *all* of you, Liam,” I breathe, as I meet his eyes, and it feels like I’m falling head first into him.
 
 He hesitates.
 
@@ -5658,7 +5658,7 @@ He hesitates.
 
 “I don’t care. I want you *now*.”
 
-That’s all it takes. He’s thrusting into me uncontrollably, and I think we’re both feeding energy into the magic binding us, and it’s ricocheting back and forth between us now the same way the agony was before, but now it’s ecstasy.
+That’s all it takes. He’s thrusting into me uncontrollably, and I think we’re both feeding energy into the magic binding us, and it’s ricocheting back and forth between us the same way the agony was before, only now it’s ecstasy.
 
 A shout escapes from him as he comes into me, and the fullness coupled with the sensation already passing between us pushes me over the edge, and my body is writhing beneath him as I orgasm too.
 

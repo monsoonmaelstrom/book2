@@ -6596,11 +6596,11 @@ I think he momentarily misses a breath.
 
 ### 33 - Run!
 
-I’ve been waiting at the Northend Bluffs for hours. Giorgi and I separated shortly before I got here. He tried to argue, tried to convince me he should stay with me at least for a while, but the fact of the matter is that he needs to meet up with Davy, and I don’t need Iverson following him to Davy when he does. On top of that, I don’t need anyone else on top of the cliff to worry about when Iverson gets here. Liam, Alex, and Peter are going to be more than enough. Giorgi’s capable, but he’s not *that* capable. I’m not sure anyone is that capable. Including me.
+I’ve been waiting at the Northend Bluffs for hours. Giorgi and I separated shortly before I got here. He tried to argue, tried to convince me he should stay with me at least for a while, but the fact of the matter is that he needs to meet up with Davy, and I don’t need Iverson following him to Davy when he does.  What’s more, I don’t need anyone else on top of the cliff to worry about when Iverson gets here. Liam, Alex, and Peter are going to be more than enough. Giorgi’s capable, but he’s not *that* capable. I’m not sure anyone is that capable. Including me.
 
-It’s probably close to seven in the evening, and since I’ve arrived, I’ve done practically nothing. I’m operating under the assumption I’m being watched, so at least that’s how I’m hoping it looks from the outside. When I first got here, I took a quick look around, and counted my steps to the edge of the cliff. Since that point I’ve been sitting on the ground, about thirty-five feet away from the cliff’s edge, waiting.
+It’s probably close to seven in the evening, and since I’ve arrived, I’ve done practically nothing. I’m operating under the assumption that I’m being watched, so at least that’s how I’m hoping it looks from the outside. When I first got here, I took a quick look around, and counted my steps to the edge of the cliff. Since that point, I’ve been sitting on the ground, about thirty-five feet away from the cliff’s edge, waiting.
 
-I briefly considered having a thick fog roll in before I got here, to make things difficult for anyone watching, but ultimately decided it wasn’t worth the effort. Iverson could likely dissipate if he wanted to, and wasting energy battling over the weather would be useless. Instead, I’ve been very subtly cultivating the conditions for fog immediately over the river at the base of the cliff, in a way that will hopefully look completely natural and be entirely undetectable once night sets in. It should be precisely enough to obscure Davy and the others, and nothing more, since I don’t want to give Iverson any reason to think twice about the river.
+I briefly considered having a thick fog roll in before I got here, to make things difficult for anyone watching, but ultimately decided it wasn’t worth the effort. Iverson could likely dissipate it if he wanted to, and wasting energy battling over the weather would be useless. Instead, I’ve been very subtly cultivating the conditions for fog immediately over the river at the base of the cliff, in a way that will hopefully look completely natural and be entirely undetectable once night sets in. It should be precisely enough to obscure Davy and the others, and nothing more, since I don’t want to give Iverson any reason to think twice about the river.
 
 I know there’s a good chance Iverson will either show up earlier or later than the appointed time, and even though we didn’t discuss it, Davy will know it too. I expect he’ll be ready and waiting regardless.
 
@@ -6624,17 +6624,17 @@ I stand waiting silently until Iverson dismounts. He’s dressed entirely in una
 
 We stare across the distance at one another for a few moments. The moon is at my back and ever so slightly lights his face, his eyes are lost in the shadows cast by his brow, but I do note a slight stubble covering his cheeks where I’ve always seen him clean-shaven before.
 
-“Hi, dad,” I say.
+“Hi, dad,” I greet.
 
 It’s difficult to tell in this light, but I think he flinches slightly, and I grin in response. Score one point for me.
 
-“So, are you going to let them go or what?” I ask him.
+“So, are you going to let them go, or what?” I ask.
 
-“You said you would trade,” he says in a low voice which still manages to carry to me.
+“You said you would trade,” he responds in a low voice which still manages to carry to me.
 
 I nod. “I did. We will. Let them out, and I’ll give you what you want.”
 
-“Give me what I want, and I’ll let them out,” he says, giving the obvious response.
+“Give me what I want, and I’ll let them out,” he counters with the obvious response.
 
 I shake my head. “Sorry. I can’t do that. Not until you let them out. See, right now things are skewed a little too far in your favor. There are four of you and only one of me. I’d prefer if our sides were a little more balanced before giving you what you want. Especially since I’m pretty sure you’re quite a bit more powerful than me.” I tack the last bit on just for good measure. You never know what casually stroking someone’s ego can do for you.
 
@@ -6642,13 +6642,13 @@ He makes no move to release them, and gives no order for his men to do so. He me
 
 I sigh, and then sit back down on the ground, as if I am completely unbothered and have nothing better to be doing and nowhere better to be doing it. I am, at this point, fully embodying the ‘I can’t’ aspect of my statement.
 
-At least two minutes tick by, but I do and say nothing. Eventually he turns to one of his men and nods. The man walks back to the wagon, and lowers the rear gate before climbing in and untying them. They all step out, and begin walking toward me.
+At least two minutes tick by, but I do and say nothing. Eventually, he turns to one of his men and nods. The man walks back to the wagon, and lowers the rear gate before climbing in and untying them. They all step out, and begin walking toward me.
 
 “The trade,” Iverson states impatiently.
 
 “Yes, of course,” I answer as I stand. “One second.”
 
-They’re all moving a little bit slower than I would hope, indicating they were possibly recently drugged and the effects are still wearing off, but they all look well enough for what’s required for the remainder of my plan.
+They’re all moving a little bit slower than I would hope, indicating they were probably recently drugged and the effects are still wearing off, but they all look well enough for what’s required for the remainder of my plan.
 
 Liam reaches me first, the moonlight glinting off of his hair, followed ever so slightly by Peter and Alex. I give Liam a quick glance, but otherwise ignore him, focusing all my attention on Alex and directing all my feelings toward him—still silently screaming ‘Jump!’
 
@@ -6666,7 +6666,7 @@ Another nod.
 
 I’ve thrown the floodgates to my magic open in a way I’ve never allowed myself to do before. Everything, all at once, all directed at Iverson, all for the people I love.
 
-The trick to it—and there’s always a trick to everything—is that I don’t need to win. I simply need to make sure Iverson can’t win either, and then trust the people around me to take care of the rest of it.
+The trick to it—and there’s always a trick to everything—is that I don’t need to win. I simply need to make sure Iverson can’t win either, and then trust the people around me to take care of the rest.
 
 We’ll jump off the cliff, and Alex will make sure I don’t drown. Then once we’re in the water, Davy will make sure we get out and get away, and the others will help him get us somewhere safe. And once they do, if I’m very, very lucky, Liam will be able to figure out how to use the magic stretching between us to pull me back.
 
@@ -6674,7 +6674,7 @@ Until then, all I need to do is not lose.
 
 Everything, all at once. My mind is already divorced from my body, and I’m throwing all of my magic around Iverson, tangling us together, binding us so tightly that neither of us can do anything, weaving my magic through and around both of our energy meridians and pulling it tighter and tighter and tighter—just like the snares for the rabbits, the more he struggles, the tighter it should get.
 
-I need to make sure he can’t use his magic at all, and the only way I know how to accomplish that is to use mine to make such a mess of both of our energy meridians that *neither* of us can do anything. Because if he can use his magic, he can stop Davy from getting us away from here. He could drop the cliff on them, or freeze the river, or sink the boats or a thousand other things, all of which result in us losing.
+I need to make sure he can’t use his magic at all, and the only way I know how to accomplish that is to use mine to make such a tangled knot of both of our energy meridians that *neither* of us can do anything. Because if he can use his magic, he can stop Davy from getting us away from here. He could drop the cliff on them, or freeze the river, or sink the boats or a thousand other things, all of which result in us losing.
 
 So like I did to Liam on the archery field, I grab onto Iverson and trust Alex, Davy, and now Liam to handle the rest.
 

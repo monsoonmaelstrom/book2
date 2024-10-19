@@ -5686,13 +5686,13 @@ Liam left earlier, after getting a couple of hours of sleep. I’ve been awake s
 
 And while there are clearly some… benefits, so to speak, I’m not exactly thrilled about it. At some point, I’m actually going to need to try to speak to my mother to answer all the questions I have related to this, as well as a slew of others, like what the fuck she was doing with Iverson and the others forever ago. She seems to be the catalyst for everything that’s currently in motion, and I get the feeling she knows so much more than she’s even hinted at, let alone shared.
 
-I’m kind of hoping to find Amelia, before whatever’s going to happen, happens—which isn’t something I thought I’d ever find myself thinking a few months ago. Part of me was kind of hoping Liam would be around today, even though I know, logically, it’s probably better if he isn’t.
+I’m kind of hoping to find Amelia, before whatever’s going to happen, happens—which isn’t something I thought I’d ever find myself thinking a few months ago. Part of me was kind of hoping Liam would be around, even though I know, logically, it’s probably better if he isn’t.
 
 I’m dreading today.
 
 I don’t see Amelia or Henry when I enter the cafeteria, so I grab a cup of coffee and a pastry and sit down alone. I slowly pick at the pastry more out of a sense of duty that I should eat something, and not because I’m actually hungry.
 
-I’ve been sitting in the cafeteria for about twenty minutes when the tenor of the conversations around me begin changing like ripples spreading outward across the surface of a pond. People begin filing out of the cafeteria, and others begin following, curious to find out what’s happening. I take that as my cue and follow the others, blending in.
+I’ve been sitting in the cafeteria for about twenty minutes when the tenor of the conversations around me begin changing like ripples spreading outward across the surface of a pond. People begin filing out of the cafeteria, and others begin trailing after, curious to find out what’s happening. I take that as my cue and follow them, blending in.
 
 They’re all moving toward the main gallery—the largest one, with the most seating. By the time I enter, all of the seats on the main floor are filled, and from what I can see of the balcony it looks equally full.
 
@@ -5708,7 +5708,7 @@ Finally, General Iverson and Commander Selby enter the gallery and head to the f
 
 The quiet stretches across the hall. Everyone is eager to hear what’s going on.
 
-“Alexandria Raidane of Avonare and Commander Melbrin are here today with an accusation of espionage and a failed assassination attempt by Dairuvar and General Iverson against Alexandria Raidane,” Commander Selby begins, pitching his voice to carry.
+“Alexandria Raidane, of Avonare, and Commander Melbrin are here today with an accusation of espionage and a failed assassination attempt by Dairuvar and General Iverson against Alexandria Raidane,” Commander Selby states, pitching his voice to carry.
 
 I make sure my face still betrays no expression as he finishes with his first statement. I see a dark haired head begin scanning the room before finding me. John. He looks at my mother again, and then back at me before refocusing on the proceedings at the front. I see several others scattered throughout the room doing the same thing.
 
@@ -5716,11 +5716,11 @@ I don’t move. I don’t make eye contact with anyone. I barely breathe. Despit
 
 Now that they’ve heard the name Raidane and seen my mother at the same time, they’ve realized I’m not just *a* Raidane. I’m one of *the* Raidanes. I knew this was inevitable. When I asked her for a favor, I merely accelerated it. But I still don’t like it.
 
-I dig my nails into the palms of my hands, but I don’t acknowledge all the looks currently directed my way. I remain unresponsive and unmoving.
+I dig my nails into the palms of my hands, but I don’t acknowledge any of the looks currently directed my way. I remain unresponsive and unmoving.
 
 General Iverson follows the stares of the others around the room, and his eyes finally bore into mine, and I see the wrath underlying his gaze.
 
-My mother steps forward. She doesn’t address the other Commanders in the room. She addresses the crowd. She doesn’t care about their decision. She’s already dismissed them. She’s going for hearts and minds, apparently.
+My mother steps forward. She doesn’t address the other Commanders in the room. She doesn’t care about their decision. She’s already dismissed them. Instead, she addresses the crowd. She’s going for hearts and minds, apparently.
 
 “On Saturday evening, I encountered a man in my residence, looking through my papers and personal effects. Upon confronting him, he attacked me. I was knocked to the floor, and he had a knife at my throat when one of my guards intervened, and killed the assassin. Upon searching his body, I found a Dairuvaran signet ring,” she says holding up a ring, which she passes to Commander Selby after pausing for a few seconds to allow the crowd to take it in.
 
@@ -5728,7 +5728,7 @@ Commander Selby inspects it, and then hands it off to Commander Graham, who does
 
 I wonder if it’s Christine’s ring. If not, I wonder how she got her hands on it.
 
-“You all know about Dairuvar’s hostility. It’s why I have returned. Someone needs to stand against Dairuvar and General Iverson,” she angles her body toward him slightly, as if she’s ready to confront him now.
+“You all know about Dairuvar’s hostility. It’s why I have returned. Someone needs to stand against Dairuvar and General Iverson,” she angles her body toward him somewhat, as if she’s ready to confront him now.
 
 His eyes tighten slightly in response to her calling him out by name.
 
@@ -5736,13 +5736,13 @@ His eyes tighten slightly in response to her calling him out by name.
 
 She’s really getting into this. I want to roll my eyes, but I force myself to remain impassive.
 
-“General Iverson knows this! He understands the threat a strong Avonare, united with the other polities, poses to his goals, and he tried to have me assassinated to prevent that from happening! This cannot stand! I call for him to be removed as the commanding General of the Allied Army, a position he never should have been permitted to assume given his ties to, and standing within, Dairuvar. If his actions are permitted, we all know it will not be long before he declares war on the other polities and uses the Allied Army to do it!”
+“General Iverson knows this! He understands the threat a strong Avonare, united with the other polities, poses to his goals, and he tried to have me assassinated to prevent that from happening! This cannot stand! I call for him to be removed as the commanding General of the Army of the Allied Polities, a position he never should have been permitted to assume given his ties to, and standing within, Dairuvar. If his actions are permitted, we all know it will not be long before he declares war on the other polities and uses the Allied Army to do it!”
 
 She’s definitely got the crowd with her right now, and I think she’s doing it all without any magic. I’ve never seen my mother put on a performance quite like this. I’m almost… impressed, as much as I hate to admit it.
 
 The crowd shifts slightly around me, and Liam steps into place beside me, his upper arm brushing against my shoulder, as he folds his arms across his chest. His face is expressionless, but I can tell he’s angry. I’m just not sure why.
 
-The crowd begins murmuring, discussing my mother’s accusations. General Iverson steps forward, and waits, staring silently at the crowd waiting for them to quiet.
+The crowd begins murmuring, discussing my mother’s accusations. General Iverson steps forward, biding his time, staring silently at the crowd waiting for them to quiet.
 
 Finally the murmuring begins to abate, and General Iverson clears his throat. “Despite what Alexandria Raidane claims, I know nothing of these accusations. No one from Dairuvar has been sent to interfere with her, and *certainly* no one from Dairuvar has been sent to interfere with her at my direction,” he pauses, and the force of his personality keeps the room silent as he does so. “I don’t know where the ring she presented came from, but it was not from anyone with ties to Dairuvar.”
 
@@ -5754,11 +5754,11 @@ I can’t say I disagree.
 
 The crowd looks torn. He made some valid points, but *everyone* knows what my mother said about Dairuvar is also accurate. And she brought props. Everyone loves a good show and tell.
 
-“We will reconvene tomorrow, after we have all had a chance to discuss these assertions among ourselves,” Commander Selby announces to the room.
+“We will reconvene tomorrow, after we have all had a chance to discuss these allegations among ourselves,” Commander Selby announces to the room.
 
 Conversations immediately breakout everywhere, and it’s seconds before the room is practically an indecipherable roar.
 
-I stay against the wall, where I’ve been the entire time, unmoving, as people begin to filter out of the room. Liam scowls at anyone who looks like they’re going to try to approach me, which I appreciate. The last thing I want is to talk to any of these vultures that are about to start circling.
+I stay pressed against the wall, where I’ve been the entire time, motionless, as people begin to filter out of the room. Liam scowls at anyone who looks like they’re going to try to approach me, which I appreciate. The last thing I want is to talk to any of these vultures that are about to start circling.
 
 ### 28 - Help, I’m Alive
 

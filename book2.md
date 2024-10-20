@@ -7230,7 +7230,7 @@ She makes it to her feet, but sways as she stands. I wrap an arm around her wais
 
 ### 37 - Body Parts
 
-I obediently eat the toast Alex put in front of me. I feel drained and I can sense the questions that have both Alex and Liam ready to burst. Questions that I really don’t have it in me to answer right now. All I want is to either take a bath and fall asleep in Liam’s arms, or to have Davy and Giorgi in front me so I can hold their feet to the fire—either metaphorically or literally. I don’t care which. I need my question answered even though I’m pretty sure I know the answer now. Even though I wish I didn’t. I need to hear them say it. I need to hear them tell me what I’m pretty sure I already know, and I desperately hope they won’t.
+I obediently eat the toast Alex puts in front of me. I feel drained and I can sense the questions that have both Alex and Liam ready to burst. Questions I really don’t have it in me to answer right now. All I want is to either take a bath and fall asleep in Liam’s arms, or to have Davy and Giorgi in front of me so I can hold their feet to the fire—either metaphorically or literally. I don’t care which. I need my question answered even though I’m pretty sure I know the answer now. Even though I wish I didn’t. I need to hear them say it. I need to hear them tell me what I’m pretty sure I already know, and I desperately hope they won’t.
 
 I swallow the last bite of toast and have a few more sips of water to wash it down. “There, can I have a bath now?”
 
@@ -7242,11 +7242,11 @@ I swallow the last bite of toast and have a few more sips of water to wash it do
 
 “Fine. Whatever. I hate you.”
 
-“I hate you too, sis,” he says, grinning.
+“I hate you too, sis,” he responds, grinning.
 
-Liam helps me stand, and walks with me slowly to the bathroom. I sit on the side of the tub and begin the process of pulling my clothes off, while Liam fills the tub for me. It feels so much more taxing than it should. Everything feels so much more taxing than it should.
+Liam helps me stand, and walks with me slowly to the bathroom. I sit on the side of the tub and begin the process of pulling my clothes off, while Liam fills the tub for me. It feels so much more taxing than it should. *Everything* feels so much more taxing than it should.
 
-“How many days has it been since the cliff?” I ask him now that we’re alone.
+“How many days has it been since the cliff?” I ask Liam now that we’re alone.
 
 “Five days. I thought you were going to die,” he says softly and his voice sounds haunted.
 
@@ -7254,11 +7254,11 @@ Liam helps me stand, and walks with me slowly to the bathroom. I sit on the side
 
 “What happened?”
 
-“I don’t know,” I tell him as I turn to slide into the water. “Not exactly, anyway. I’ll explain what I can later, but I don’t have it in me to do it right now.”
+“I don’t know,” I answer as I turn to slide into the water. “Not exactly, anyway. I’ll explain what I can later, but I don’t have it in me to do it right now.”
 
 “Okay.”
 
-I slide below the surface of the water letting it rush over my face and hair, almost as soon as I do, Liam’s hands are reaching into the tub pulling me up.
+I sink below the surface of the water letting it rush over my face and hair, almost as soon as I do, Liam’s hands are reaching into the tub pulling me up.
 
 “Don’t. Please.”
 
@@ -7270,7 +7270,7 @@ The pleading tone in his voice stops my initial response which was going to be s
 
 I let my eyes roam over his body, admiring the view from his wide, rounded shoulders down his chest, to his abs—which are clearly visible in this lighting—and over his lean hips to the mound of hair between them and his dick that I’m pretty sure I could have hard in a matter of minutes, finally taking in his lean, muscular legs.
 
-“Are you getting in?” I ask impatiently.
+“Are you getting in?” I demand impatiently.
 
 “I don’t know. You seem to be enjoying the view.”
 
@@ -7278,15 +7278,15 @@ I let my eyes roam over his body, admiring the view from his wide, rounded shoul
 
 “Slide forward,” he says before dropping into the tub behind me.
 
-I lean back against his chest and he wraps his arms around me. We stay like that long enough the water begins to cool. I’m not actually sure if I can warm it back up. I have no idea what state my magic is in. I know the connection to Liam is still there, but that’s it. In that formless darkness, I couldn’t do anything but I have no idea what, if anything, that means for me in the here and now. I take a breath and decide to find out.
+I lean back against his chest and he wraps his arms around me. We stay like that long enough that the water begins to cool. I’m not actually sure if I can warm it back up. I have no idea what state my magic is in. I know the connection to Liam is still there, but that’s it. In that formless darkness, I couldn’t do any magic, but I have no idea what, if anything, that means for me in the here and now. I take a breath and decide to find out.
 
 I use one hand to create a small whirlpool in the water, and then use that as a focal point to direct heat into the water because I have a feeling I’m going to need all the help I can get. And slowly, much more slowly than it should, the water heats up, and damn it hurts.
 
 I hiss as I cut off the power flow.
 
-“Are you okay?” Liam asks.
+“Are you okay?” Liam questions, and I hear the concern laced through his words.
 
-“I don’t know,” I say, truthfully. “Reheating the water hurt a lot more than it should have. I wasn’t sure I’d be able to do it, so pain is better than nothing, I guess.”
+“I don’t know,” I answer, truthfully. “Reheating the water hurt a lot more than it should have. I wasn’t sure I’d be able to do it, so pain is better than nothing, I guess.”
 
 “Hazel. You just woke up. Maybe give it a day or two.”
 
@@ -7300,17 +7300,17 @@ I hiss as I cut off the power flow.
 
 “I was there for so long. No magic. No anything. Barely even me. I had to know if I still could,” I whisper.
 
-“It was only five days,” he says softly, his hand resting on my hip beneath the water.
+“It was only five days,” he reminds me softly, his hand resting on my hip beneath the water.
 
 “No. It was forever. I don’t want to talk about it. I just had to know if I could,” I say, fighting away the panic of the memory of being locked in that place.
 
 “Okay. We won’t talk about it. Breathe,” he tells me, entwining a hand with mine and bringing his lips down to kiss the top of my shoulder.
 
-“Now that’s something I wouldn’t mind doing,” I say, craning my head back to find his lips.
+“Now, that’s something I wouldn’t mind doing,” I inform him, craning my head back to find his lips.
 
 His mouth is gentle on mine at first, but I’m insistent and he gives in, his lips parting and his tongue stroking across mine hungrily. This angle is terrible for anything longer than a few seconds, so I rotate so I’m facing him, straddling his hips beneath the water. His hand moves up my hip, and over my waist before reaching my breast, gently caressing it. I moan softly as I rock against him a bit more, but he drops his hand and pulls back slightly.
 
-“We shouldn’t,” he says, sounding a touch breathless.
+“We shouldn’t,” he states, sounding a touch breathless.
 
 “No, we absolutely should,” I counter, punctuating each word by trailing my lips over his jaw and down his throat.
 
@@ -7320,17 +7320,17 @@ His mouth is gentle on mine at first, but I’m insistent and he gives in, his l
 
 “You should probably spend some time recovering.”
 
-“Yes, I agree, this will count as part of my recovery,” I say, letting my hands run over his chest.
+“Yes, I agree, this will count as part of my recovery,” I reply, letting my hands run over his chest.
 
 “But Alex—”
 
-“First of all,” I begin, “let’s not talk about my brother while we’re naked in the bath together. But second, he’s the one who told you—no, basically ordered you—to come in here and get me naked. Believe me, he knew exactly where that would lead. I bet he’s already soundproofed this room. Feel free to check. I’ll wait,” I say, dropping a hand below the water to wrap around him.
+“First of all,” I begin, “let’s not talk about my brother while we’re naked in the bath together. But second, he’s the one who told you—no, basically ordered you—to come in here and get me naked. Believe me, he knew exactly where that would lead. I bet he’s already soundproofed this room. Feel free to check. I’ll wait,” I finish, dropping a hand below the water to wrap around him.
 
 He moans as I apply pressure and begin stroking him. I see him trying to focus, but he doesn’t ask me to stop, so I don’t. After a moment, his mouth is back on mine with a new intensity.
 
 “I take it I’m right then?” I ask when we break apart.
 
-“Yes,” he growls, dropping his mouth to my nipple.
+“Yes,” he growls, dropping his mouth to my breast.
 
 “Good,” I moan. “That means I don’t have to be quiet.”
 
@@ -7350,9 +7350,9 @@ In one move, he lifts me off of him and spins me so I’m kneeling in the water 
 
 His hands tighten around my hips before he’s finding his own release in a series of shuddering thrusts which leave us both spent.
 
-Eventually he slides out of me and pulls me back against his chest as we both lie bonelessly in the water that’s gone tepid again. I don’t have the energy to warm it back up. Despite that, I find myself wistfully saying, “Let’s stay here forever.”
+Eventually, he slides out of me and pulls me back against his chest as we both lie bonelessly in the water that’s gone tepid again. I don’t have the energy to warm it back up. Despite that, I find myself wistfully saying, “Let’s stay here forever.”
 
-“Mmm,” Liam says, his fingers tracing across my shoulders leisurely. After a few more minutes, he says, “As much as I would love that, I think we should get you out of here. The water’s getting cold anyway.”
+“Mmm,” Liam says, his fingers tracing across my shoulder leisurely. After a few more minutes, he says, “As much as I would love that, I think we should get you out of here. The water’s getting cold anyway.”
 
 “Alright,” I agree, letting him help me out of the tub. I sit on the edge as he hands me a towel. “You look better. I think you needed that as much as I did.”
 
@@ -7360,7 +7360,7 @@ Eventually he slides out of me and pulls me back against his chest as we both li
 
 “Can you check outside the door? See if there are clean clothes?”
 
-“You think Alex left clothes?” Liam asks.
+“You think Alex left clothes?” Liam queries.
 
 “Maybe. That’s why I want you to check,” I say with raised eyebrows.
 
@@ -7368,7 +7368,7 @@ Liam comes back carrying two new sets of clothes. “How did you know?”
 
 “I didn’t,” I answer.
 
-“Where did he get these?” Liam mutters.
+“Where did he get these?” Liam wonders.
 
 “You don’t ask the goblin where he got his gold.”
 
@@ -7384,13 +7384,13 @@ I nod. “I’m alive.”
 
 “Thanks for rescuing us.”
 
-“Such as it was,” I mutter. “You’re welcome,” I say more loudly. “Can we talk later? Just the two of us?”
+“Such as it was,” I mutter. “You’re welcome,” I respond more loudly. “Can we talk later? Just the two of us?”
 
 “Okay,” Peter agrees, but he sounds uncertain, almost as if he already wants to take it back.
 
 “Hazel!” Gavin shouts half a second before his arms wrap around me and he lifts me off of my feet in a spin.
 
-“She just woke up,” Liam says as he reaches out for my arm to steady me when Gavin sets me down. “Maybe don’t spin her around.”
+“She just woke up,” Liam grumbles, as he reaches out for my arm to steady me when Gavin sets me down. “Maybe don’t spin her around.”
 
 “Please,” Gavin scoffs. “She’s fine!”
 
@@ -7398,15 +7398,15 @@ Liam sighs.
 
 “Where is Davy?” I ask.
 
-“Here,” he calls from over my shoulder.
+“Here,” he calls from behind me.
 
 I turn to find him leaning a shoulder against the wall next to the window.
 
-“Davy. You’ve looked better,” I say, giving him a once over.
+“Davy. You’ve looked better,” I comment, giving him a once over.
 
 “Likewise,” he tells me.
 
-My face splits into a grin. I am unbelievably angry at him, but I’m still so relieved to see his face. That might all change later, when I hear what he has to say for himself, because if Giorgi’s right, and I think he is, Davy’s been keeping secrets. Big secrets. Things he should have told me. Things I had every right to know.
+My face splits into a grin. I am unbelievably angry at him, but I’m still so relieved to see his face. That might all change later, when I hear what he has to say for himself, because if Giorgi’s right—and I think he is—Davy’s been keeping secrets. *Big* secrets. Things he should have told me. Things I had every right to know.
 
 For now though, I walk over to him and wrap my arms around him in a hug. “I’m glad you’re alive. You can remind me I said that later,” I say softly as I step away.
 
@@ -7434,9 +7434,9 @@ She holds out a hand to Henry, who hands over some money with a sigh. Then Giorg
 
 “I won,” she gloats.
 
-“You were all betting on when she would wake up?” Liam says quietly, but with an unmistakable hint of violence in his tone.
+“You were all betting on when she would wake up?” Liam questions softly, but with an unmistakable hint of violence in his tone.
 
-“It’s not like there was a whole lot else to do,” Gavin says with a shrug. “I had the second day by the way, Hazel. You really let me down.”
+“It’s not like there was a whole lot else to do,” Gavin responds with a shrug. “I had the second day by the way, Hazel. You really let me down.”
 
 “Sorry?” I say with a snort.
 
@@ -7444,17 +7444,17 @@ She holds out a hand to Henry, who hands over some money with a sigh. Then Giorg
 
 I fight down the urge to shudder at the thought of another day in that place. “Well, what about you two, then?” I ask looking between Peter and Giorgi.
 
-“Day three,” Giorgi says.
+“Day three,” Giorgi answers.
 
 “Day four,” Peter tells me.
 
-“I can’t believe you were all betting on when she would wake up,” Liam says.
+“I can’t believe you were all betting on when she would wake up,” Liam growls.
 
 “I can’t believe I wasn’t invited to be part of the betting pool,” Alex laments. “Did you know about this?” he asks Davy.
 
 “Yes.”
 
-“We thought it would be in poor taste to include you, Alex,” Gavin says.
+“We thought it would be in poor taste to include you, Alex,” Gavin comments.
 
 “It’s like you all don’t even know me,” Alex sighs in response.
 

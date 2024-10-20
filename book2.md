@@ -8568,11 +8568,13 @@ She pulls away now, sitting up and putting distance between us on the bed.
 
 ### 43 - Cassandra
 
-I can’t believe Liam. He could have lied. He could have doubled down and insisted he didn’t know anything. That’s what I would have done if the situation was reversed. Playing dumb is a viable fucking strategy. Why is that so hard for people to understand? All you have to do is ask, ‘What do you mean?’ while being sure to sound appropriately confused. It’s *not* hard. And if they insist they’re sure you know something, you tell them a completely asinine story. You tell them that you gods damned like oolong tea.
+I can’t believe Liam! He could have lied. He could have doubled down and insisted he didn’t know anything. That’s what I would have done if the situation was reversed. Playing dumb is a viable fucking strategy. Why is that so hard for people to understand? All you have to do is ask, ‘What do you mean?’ while being sure to sound appropriately confused. It’s *not* hard. And if they insist they’re sure you know something, you tell them a completely asinine story. You tell them that you gods damned like oolong tea!
 
 I have half a mind to barge into Commander Selby’s office and tell him if he has questions about me, he can ask them *to* me. But even as enraged as I am, I know that would be stupid. So instead I stalk down the hallway away from Liam’s room, toward Amelia’s, like I said I was going to.
 
-I bang my fist against her door when I get to her room. I really hope she’s in. It’s only a second before she answers the door.
+I bang my fist against her door when I get to her room. I really hope she’s in.
+
+It’s only a second before she answers the door.
 
 “Want to spar with me?” I ask.
 
@@ -8596,27 +8598,25 @@ We walk to the gym together at a slightly more sedate pace than I used while get
 
 “Nothing good like…?”
 
-“I don’t know,” I shrug. “Probably Dairuvar will invent some reason to make incursions on Avonare or Leira. I imagine Oulanen will either remain neutral or join Dairuvar. My money is on the latter. Then Avonare and Firgasu will join together against them. Leira polity may join Avonare and Firgasu, or it may stay neutral. My money is again on the latter unless Dairuvar chooses to move against Leira, which is probably why they’ll choose Avonare. I don’t know what that will mean for Branton, Corriven, or the Army of the Allied Polities though. I’m not great with all that… treaty stuff. You probably know more about it than I do.”
+“I don’t know,” I shrug. “Probably Dairuvar will invent some reason to make incursions on Avonare or Leira. I imagine Oulanen will either remain neutral or join Dairuvar. My money is on the latter. Then Avonare and Firgasu will join together against them. Leira polity may join Avonare and Firgasu, or it may stay neutral. My money is, again, on the latter unless Dairuvar chooses to move against Leira, which is probably why they’ll choose Avonare. I don’t know what that will mean for Branton, Corriven, or the Army of the Allied Polities though. I’m not great with all that… treaty stuff. You probably know more about it than I do.”
 
 “So you think there will be a civil war?”
 
 “Yes. Don’t you?”
 
-She nods reluctantly.
+She nods reluctantly. “You can’t do anything to stop it?” Amelia wonders.
 
-“You can’t do anything to stop it?”
-
-“Like what?” I ask. “I’m not *that* powerful, Amelia. No one is.”
+“Like what?” I inquire. “I’m not *that* powerful, Amelia. No one is.”
 
 “What about everyone working together?”
 
-I try not to let my expression change. “What do you mean?” I ask.
+I try not to let my expression change. “What do you mean?” I probe, carefully.
 
 “It’s just… if a bunch of us combined our magic, maybe we could have more of an impact than one person alone.”
 
-I sigh. “It’s not a bad thought, but… there are tens of thousands of people who are going to be directly involved in this. You’re not talking about influencing the decisions or actions of a single person. It would have to be everyone, all at the same time, or it would be too… tenuous, and that’s a lot. I don’t think it’s doable,” I say softly. “At least, I don’t think I could do it.”
+I sigh. “It’s not a bad thought, but… there are tens of thousands of people who are going to be directly involved in this. You’re not talking about influencing the decisions or actions of a single person. It would have to be everyone, all at the same time, or it would be too… tenuous, and that’s a lot. I don’t think it’s doable,” I inform her softly. “At least, I don’t think I could do it.”
 
-“So you think someone else could?” she asks, and I can see a flicker of hope in her expression.
+“So you think someone else could?” she questions, and I can see a flicker of hope in her expression.
 
 “No. Sorry. I really don’t think it’s possible,” I answer as we reach the gym.
 
@@ -8632,7 +8632,7 @@ I sigh. “It’s not a bad thought, but… there are tens of thousands of peopl
 
 “Yes. No. It’s fine. I’m working on it.”
 
-“Good,” she says nodding. “Let’s go.”
+“Good,” Amelia nods. “Let’s go.”
 
 I win the first, but lose the second. And for the first time, it’s not because I was distracted or because I let Amelia win.
 
@@ -8644,19 +8644,19 @@ I win the first, but lose the second. And for the first time, it’s not because
 
 “*I know.*”
 
-“Just making sure,” she says with false sincerity.
+“Just making sure,” she states with false sincerity.
 
 “Whatever,” I grumble back. “You’re going to lose the third.”
 
-“We’ll see,” she tells me, closing the distance between us.
+“We’ll see,” Amelia tells me, closing the distance between us.
 
-She almost pins me twice, but I’m able to wriggle out of both, which I can tell pisses her off. Eventually I am able to get one of her arms pinned to the mat at an angle that doesn’t allow her to get any leverage from it, and then I wrench the other behind her back at a degree which I know hurts. She could probably get out of it, if she was willing to dislocate her shoulder to do it. I know she’s not.
+She almost pins me twice, but I’m able to wriggle out of both, which I can tell pisses her off. Eventually, I’m able to get one of her arms pinned to the mat at an angle that doesn’t allow her to get any leverage from it, and then I wrench the other behind her back at a degree which I know hurts. She could probably get out of it, if she was willing to dislocate her shoulder to do it. I know she’s not.
 
 “I give, you win,” she tells me, confirming it.
 
 I release her and help her back to her feet. We head off the mat, and I sink down against the wall, breathing heavier than I should be. It’s annoying.
 
-“Can I ask you something?” Amelia says.
+“Can I ask you something?” Amelia inquires quietly.
 
 “What?”
 
@@ -8664,15 +8664,15 @@ I release her and help her back to her feet. We head off the mat, and I sink dow
 
 I sigh.
 
-“It’s just… Commander Selby asked you about her, and it seemed… odd. Then when you were out of it, I asked Peter. He said I should ask you, and wouldn’t tell me anything else, but I can tell when he doesn’t want to talk about something, and he didn’t want to talk about that.”
+“It’s just… Commander Selby asked you about her, and it seemed… well, odd. Then when you were out of it, I asked Peter. He said I should ask you, and wouldn’t tell me anything else, but I can tell when he doesn’t want to talk about something, and he didn’t want to talk about that.”
 
 I let the silence stretch between us, trying to decide whether or not to tell her the truth, and she waits patiently.
 
-“How close were you and Lisette?” I ask finally.
+“How close were you and Lisette?” I interrogate, finally.
 
 “We were friendly, but we weren’t exactly friends.”
 
-I sigh again. “I killed her,” I say.
+I sigh again. “I killed her,” I admit.
 
 “Why?”
 
@@ -8680,7 +8680,7 @@ I sigh again. “I killed her,” I say.
 
 “Yes,” she answers, seeming confused by the abrupt change in topic.
 
-“I don’t want to talk about it, but ask Peter again. Tell him I told you that I killed her and I said he can tell you about it. If he seems skeptical, tell him I said it’s not like at the churro shop,” I tell her as I stand and begin to leave.
+“I don’t want to talk about it, but ask Peter again. Tell him I told you that I killed her and I said he can tell you about it. If he seems skeptical, tell him I said it’s not like at the churro shop,” I state as I stand and begin to leave.
 
 “Not like at the churro shop?”
 
@@ -8696,19 +8696,19 @@ I sigh again. “I killed her,” I say.
 
 ----
 
-I go out over the back wall, the same way I used to. It almost makes me feel normal. I could go through the gates, sure, but if I did someone would undoubtedly tell Liam, and I’m equally sure the information would somehow make its way back to Commander Selby as well.
+I go out over the back wall, the same way I used to. It almost makes me feel normal. I could go through the gates, sure, but if I did someone would undoubtedly tell Liam, and I’m equally sure the information would somehow make its way back to Commander Selby, as well.
 
-I don’t particularly feel like letting Liam know where I’m going at the moment. I’m sure he would try to talk me out of it or want to come with me, and I don’t need the irritation of that conversation or the distraction of having him tag along into enemy territory.
+I don’t particularly feel like letting Liam know where I’m going, at the moment. I’m sure he would try to talk me out of it or want to come with me, and I don’t need the irritation of that conversation or the distraction of having him tag along into enemy territory.
 
-It’s evening, but it’s not dark yet, though the shadows are definitely growing longer as I make my way towards the center of the city and the house my mother has been residing in.
+It’s evening, but it’s not dark yet, though the shadows are definitely growing longer as I make my way towards the center of the city, and the house my mother has been residing in.
 
 I stand in the shadows against a nearby building, and watch the house. I haven’t actually been here before, and I don’t particularly feel like entering through the front door. In this part of town, you can’t loiter outside a house staring through the windows without someone coming to ask questions and encourage you to be on your way, so I wrap the shadows around myself a little bit more tightly and let them whisper ‘don’t look here’ to anyone who might glance in my direction. If someone is specifically looking for me, it won’t be enough to stop them from seeing me, but it should do the trick for everyone else, and I’m not expecting anyone to be specifically looking for me.
 
-An hour goes by while I wait for the sun to set, and then another thirty minutes as I wait for dusk to give way to night. Finally it’s dark enough that foot traffic has slowed to the point where I feel like I can probably make it into the house unobserved.
+An hour goes by while I wait for the sun to set, and then another thirty minutes as I wait for dusk to give way to night. Finally, it’s dark enough that foot traffic has slowed to the point where I feel like I can probably make it into the house unobserved.
 
 The house is brick with recessed mortar joints, so it’s easy to climb. I opt to enter via a second floor window. Once inside, I carefully close the window behind me, and stay frozen in place listening for a few moments. But I hear nothing.
 
-I open the doors as I come to them and look inside. Most of the rooms appear unoccupied, which makes sense, since as far as I know, there are only four people staying in this house full time, and there are bedrooms for at least double that. Eventually I find the room I’m fairly confident my mother is staying in, and take a seat on a chair in the corner opposite the door, which has the advantages of being away from the window, in shadow, and opposite the bed, so it’s unlikely to be the first place your eyes look when you enter the room.
+I open the doors as I come to them and look inside. Most of the rooms appear unoccupied, which makes sense, since as far as I know, there are only four people staying in this house full time, and there are bedrooms for at least double that. Eventually, I find the room I’m fairly confident my mother is staying in, and take a seat on a chair in the corner opposite the door, which has the advantages of being away from the window, in shadow, and opposite the bed, so it’s unlikely to be the first place your eyes look when you enter the room.
 
 Then I wait.
 
@@ -8736,7 +8736,7 @@ She says nothing.
 
 She grins, and it looks vicious. “Yes. Quite.”
 
-“Why are you still here?” I ask. “What happened to Corriven and then Avonare?”
+“Why are you still here?” I pry. “What happened to Corriven and then Avonare?”
 
 “All in due time. If you had simply gone to Dairuvar as requested, I would already be in Avonare but, as ever, you have to make things difficult.”
 
@@ -8746,17 +8746,17 @@ She grins, and it looks vicious. “Yes. Quite.”
 
 “No. Of course not. Why would it?”
 
-“You only exist because of me, daughter.”
+“You only exist because of me, daughter,” she asserts.
 
-“Whatever,” I say, rolling my eyes. “What was Iverson looking for in the flat?”
+“Whatever,” I reply, rolling my eyes. “What was Iverson looking for in the flat?”
 
 “Which flat?” she asks.
 
 She’s playing dumb. I’m sure of it. Like I said, it’s a viable strategy.
 
-“The one that got your brother killed. William was it?” I ask, flippantly. “Was he the one you failed?” I think I see her wince.
+“The one that got your brother killed. William was it?” I inquire, flippantly. “Was he the one you failed?” I think I see her wince.
 
-“People have been gossiping.”
+“People have been gossiping,” she states.
 
 “People have,” I confirm. “So was it him? Because from what I heard, the whole thing was your idea, and then he died in the making of it. Which seems like it would make it pretty squarely your fault.”
 
@@ -8770,11 +8770,11 @@ I feel her magic begin to gather around her.
 
 “The enemy of my enemy, as they say.”
 
-“Seeing the future? You didn’t think that was worth mentioning at any point? Ever?”
+“Seeing the future? You didn’t think that was worth mentioning at any point? Ever?” I demand.
 
 “No. Why would I?”
 
-“Because it seems like something I should have known.”
+“Because it seems like something I should have known,” I snap.
 
 “Well, perhaps in the future you would be wise to be a little less sure of yourself when someone tells you something, daughter.”
 
@@ -8786,19 +8786,19 @@ I feel her magic begin to gather around her.
 
 “Well, judging from your appearance, I’d say that, as usual, you decided you were far more capable than you are.”
 
-“I’m alive, so I’d say my assessment of my capabilities was spot on.”
+“I’m alive, so I’d say my assessment of my capabilities was spot on,” I counter.
 
 “I suspect you got lucky,” she says, watching me closely. “Ah. There it is. You agree.”
 
 “No. I didn’t get ‘lucky.’ I made a decision based on a solid understanding of the risks, and I survived. As I anticipated.” This is all true.
 
-“Then why are you asking me if I know what happened?”
+“Then, why are you asking me if I know what happened?”
 
 “Just curious, but it seems you don’t. That’s unfortunate. It was interesting. You would be interested. But alas, there doesn’t seem to be any reason for me to share that information with you.” I stand and walk to the door to let myself out.
 
-“Goodbye, daughter,” I hear her say from behind me.
+“Goodbye, daughter,” I hear her comment from behind me.
 
-I don’t look back as I close the door behind me, even though the skin on the nape of my neck prickles slightly. I descend the staircase and let myself out through the front door.
+I don’t look back as I close the door, even though the skin on the nape of my neck prickles slightly. I descend the staircase and let myself out through the front door.
 
 The temperature has decreased at least a good fifteen degrees since I entered the house, and I find myself wishing I had brought a jacket as I descend the steps to the street. I hear an owl hoot somewhere nearby at nearly the same instant I hear a scuff behind me, followed by something smashing into my skull. Then there’s only darkness.
 

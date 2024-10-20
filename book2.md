@@ -7460,13 +7460,13 @@ I fight down the urge to shudder at the thought of another day in that place. �
 
 ### 38 - Crucify
 
-I’ve finally finished eating. I had three full plates of food and I think it may have been a mistake. My stomach feels like it’s going to burst, and I’m not sure but I think it’s possible I only had that last plate to delay the inevitable.
+I finally finish eating. I had three full plates of food and I think it may have been a mistake. My stomach feels like it’s going to burst, and I’m not sure but I think it’s possible I only had that last plate to delay the inevitable.
 
-“Can we get onto the roof?” I ask. I want to know because kicking everyone else out so I can have this conversation seems wrong. But I definitely don’t want to have it in front of everyone.
+“Can we get onto the roof?” I ask. I want to know because kicking everyone else out so I can have this conversation in private seems wrong. But I definitely don’t want to have it in front of everyone.
 
-“Yes,” Giorgi confirms, and for some reason I get the impression that he may have specifically checked for me.
+“Yes,” Giorgi confirms, and for some reason I get the impression that he may have specifically checked for me, before I even woke up.
 
-“Great,” I sigh in a tone that is anything but. “Giorgi, Davy, I want to talk to you on the roof. *Only* Giorgi and Davy,” I specify before Liam and Alex can invite themselves along.
+“Great,” I sigh, in a tone that is anything but. “Giorgi, Davy, I want to talk to you on the roof. *Only* Giorgi and Davy,” I specify before Liam and Alex can invite themselves along.
 
 “Hazel,” Giorgi says softly. “Alex and Liam should come.”
 
@@ -7476,9 +7476,9 @@ I’ve finally finished eating. I had three full plates of food and I think it m
 
 Perfect. Now everyone is looking back and forth between Giorgi and me, turning a conversation which may have gone unremarked upon into a conversation that will very much be remarked upon.
 
-“What’s going on?” Gavin asks.
+“What’s going on?” Gavin wants to know.
 
-“Nothing,” Giorgi and I say together.
+“Nothing,” Giorgi and I answer together.
 
 His response to Gavin makes me relent a little bit.
 
@@ -7486,9 +7486,9 @@ His response to Gavin makes me relent a little bit.
 
 Davy sighs as we all stand. I’m not sure if he’s figured out yet *why* I’m mad, or if he merely knows from my earlier comments that I’m mad at him. Alex and Liam look perplexed—I think they’re as confused by Giorgi’s behavior as they are by mine. Giorgi’s the only one who looks unfazed. I don’t even want to know what look my own face is wearing.
 
-Giorgi leads the way to the staircase that goes to the roof and I follow him up. The food I’ve eaten is weighing heavy in my stomach as Davy, Alex, and Liam trail behind me.
+Giorgi leads the way to the staircase that goes to the roof and I follow him up. All the food I’ve eaten is weighing heavy in my stomach as Davy, Alex, and Liam trail behind me.
 
-“The door,” I say to Davy once we’re all on the roof.
+“The door,” I tell Davy flatly, once we’re all on the roof.
 
 He sighs but nods in acquiescence.
 
@@ -7504,35 +7504,35 @@ He nods.
 
 “It wasn’t my place,” he inclines his head subtly towards Davy.
 
-“And you’re sure he knows?” I ask, talking about Davy like he isn’t here.
+“And you’re sure he knows?” I demand, talking about Davy like he isn’t here.
 
-“Pretty sure,” Giorgi says.
+“Pretty sure,” Giorgi responds.
 
-“How could you not tell me?” I shout turning to Davy now.
+“How could you not tell me?” I shout, turning to Davy now.
 
-“Not tell you what, *exactly*?” Davy asks carefully.
+“Not tell you what, *exactly*?” Davy probes carefully.
 
 “You know what!”
 
-“I’m not sure I do,” he tells me in that same careful tone.
+“I’m not sure I do,” he informs me in that same careful tone.
 
 He’s just being an asshole now. He’s going to make me say it. I want to shove him off the roof, but I know I’d regret it later. Mostly though, I can’t make myself move. My feet feel like they’re bolted to the rooftop and my mouth feels like it’s a desert.
 
-I can’t quite make myself get the next words out, and seeing my hesitation Davy says, “You know better than to ask the goblin where he got his gold, Hazel.”
+I can’t quite make myself get the next words out, and seeing my hesitation Davy chides, “You know better than to ask the goblin where he got his gold, Hazel.”
 
-The words feel like a slap in the face and I think I feel something inside of me breaking. The world goes wavy in front of my eyes and the center of my face feels like a hot, prickling mess as I resist the urge to howl.
+The words feel like a slap in the face, and I think I feel something inside of me breaking. The world goes wavy in front of my eyes and the center of my face feels like a hot, prickling mess as I resist the urge to howl.
 
-I glance sideways to where Alex and Liam are standing across from Giorgi. Liam’s mouth has fallen open and he’s glancing back and forth between me and Davy. I guess he’s worked it out now too. I never wanted him to know. *I* never wanted to know.
+I glance sideways to where Alex and Liam are standing across from Giorgi. Liam’s mouth has fallen open and his eyes are darting back and forth between me and Davy. I guess he’s worked it out now, too. I never wanted him to know. *I* never wanted to know.
 
 “What question doesn’t she want the answer to, Davy?” Alex asks slowly.
 
 Davy simply stares at me, waiting to see if I’ll ask it. I can’t force the words out now, and tears are streaming down my face.
 
-Giorgi takes pity on me and says in a voice barely louder than a whisper, “Alexandria might not be able to see the future, but Hazel can.”
+Giorgi takes pity on me, and says in a voice barely louder than a whisper, “Alexandria might not be able to see the future, but Hazel can.”
 
-Davy’s eyes flick sideways to Giorgi, and I get the sense Davy is restraining himself from violence as he says, “They both can, actually. That’s why she’s… the way she is.”
+Davy’s eyes flick sideways to Giorgi, and I get the sense Davy is restraining himself from violence as he states, “They both can, actually. That’s why she’s… the way she is.”
 
-“Huh,” I hear Giorgi say.
+“Huh,” I hear Giorgi absorb that piece of information.
 
 “Davy…” Alex sounds as horrified as I feel.
 
@@ -7546,7 +7546,7 @@ Davy’s eyes flick sideways to Giorgi, and I get the sense Davy is restraining 
 
 “Yes.”
 
-“Who?” I ask.
+“Who?” I demand.
 
 “Our mothers. Mine, yours, and Peter’s.”
 
@@ -7554,9 +7554,9 @@ Davy’s eyes flick sideways to Giorgi, and I get the sense Davy is restraining 
 
 Davy nods. “You were never supposed to realize, but I think you’ve been undoing it since Ponchar.”
 
-“All the power that took. *This* was why.” I bet it’s also why I’ve been waking up feeling like I’m forgetting something so often. *How many times did I realize it and then forget?* I wonder
+“All the power that took. *This* was why.” I bet it’s also why I’ve been waking up feeling like I’m forgetting something so often. *How many times did I realize it, only to forget again?* I wonder.
 
-Davy nods again.
+Davy nods a second time.
 
 “So why didn’t you tell me then?”
 
@@ -7564,15 +7564,15 @@ Davy nods again.
 
 “Why?”
 
-“Because seeing the future… that way lies madness, Hazel,” Davy sighs. “Giorgi was right when he said Alexandria is nervous all the time, but he was wrong about the reason why. From what I understand, seeing the future isn’t like looking out of a window and watching what’s happening on the street,” Davy says, watching me closely to see if I’ll disagree. “It’s hints and ideas, fleeting impressions and half-forgotten dreams. It’s hard to know what’s real and what’s not. It’s hard to tell which things are really glimpses of the future and which things your imagination has conjured because it was bored.
+“Because seeing the future… that way lies madness, Hazel,” Davy sighs. “Giorgi was right when he said Alexandria is nervous all the time, but he was wrong about the reason why. From what I understand, seeing the future isn’t like looking out of a window and watching what’s happening on the street,” Davy asserts, watching me closely to see if I’ll disagree. “It’s hints and ideas, fleeting impressions and half-forgotten dreams. It’s hard to know what’s real and what’s not. It’s hard to tell which things are really glimpses of the future and which things your imagination has conjured because it was bored.
 
-“Like the stones,” Davy said. “You had no idea why it was important, just that it was, right?”
+“Like the stones,” Davy interrogates. “You had no idea why they were important, just that they were, right?”
 
 I nod. I had no idea why I was preoccupied with them for months.
 
 “And holding your breath?”
 
-“It seemed like it could be useful,” I say in a small voice.
+“It seemed like it could be useful,” I answer in a small voice.
 
 “*That’s* why you didn’t teach Liam. *That’s* why you got mad when I asked why you hadn’t,” Alex states.
 
@@ -7582,7 +7582,7 @@ I nod. I had no idea why I was preoccupied with them for months.
 
 “The clothes and the comment about the goblin,” Liam says.
 
-“The clothes were a guess,” I state.
+“The clothes were a guess,” I insist.
 
 Liam doesn’t ask if I’m sure, but I can tell he wants to.
 
@@ -7600,15 +7600,15 @@ Liam doesn’t ask if I’m sure, but I can tell he wants to.
 
 “You should have told me,” I agree.
 
-“If the situation was reversed, would you have told me?” Davy asks.
+“If the situation was reversed, would you have told me?” Davy questions.
 
 “Yes,” we both answer in unison, without hesitation.
 
-“We would have told you,” Alex says. “We would have told you because it’s important and we need to be able to trust each other! You don’t trust us at all.”
+“We would have told you,” Alex bites out. “We would have told you because it’s important and we need to be able to trust each other! You don’t trust us at all.”
 
 “I wouldn’t have left you to figure it out while you were alone, trapped wherever I was,” I tell him and I see the regret flash across his face.
 
-“Even *I* think you should have told her, Davy,” Giorgi says, “and I keep practically everything to myself. I’m not going to tell Gavin,” he adds as he flicks his gaze to me.
+“Even *I* think you should have told her, Davy,” Giorgi informs him, “and I keep practically everything to myself. I’m not going to tell Gavin,” he adds as he flicks his gaze to me.
 
 “I can’t undo the past.”
 
@@ -7616,15 +7616,15 @@ Liam doesn’t ask if I’m sure, but I can tell he wants to.
 
 Davy nods. “I’m sorry, Hazel.”
 
-“I wouldn’t have done it to you,” I tell him.
+“I wouldn’t have done it to you,”I repeat.
 
-“I know,” he says softly.
+“I know,” he admits softly.
 
 ----
 
 Davy and Giorgi have left, and I’m sitting with my back against the wall around the edge of the rooftop with Alex on one side and Liam on the other. It feels like my entire world has split in two. Davy has always been the one person I’ve trusted most, and now I don’t know if I can trust him at all. It has me questioning my own judgement. I can deal with not being told *everything*, but *this* was something he should have told me, and we all know it. Even he knows it.
 
-“You two told me once that Davy makes the hard decisions,” Liam says carefully, like he knows he’s treading on dangerous ground with both of us. “I think this may have been one of them.”
+“You two told me once that Davy makes the hard decisions,” Liam begins carefully, like he knows he’s treading on dangerous ground with both of us. “I think this may have been one of them.”
 
 “Really,” Alex scoffs, “you’re taking his side?”
 
@@ -7636,13 +7636,13 @@ Davy and Giorgi have left, and I’m sitting with my back against the wall aroun
 
 “How would you feel if it was Liam, Hazel?”
 
-“Betrayed. And I get it. It’s not the same but I feel betrayed too. He loves you though. He loves both of us, even if we’re both really mad at him right now.”
+“Betrayed. And I get it. It’s not the same, but I feel betrayed too. He loves you though. He loves both of us, even if we’re both really mad at him right now.”
 
-“You should talk to him,” Liam says. “He’s not okay. He hasn’t been okay since the pass.”
+“You should talk to him,” Liam states. “He’s not okay. He hasn’t been okay since the pass.”
 
-“You think I don’t know that?” Alex asks, his voice sounding raw. “I’ve been trying to get him to talk to me for months.”
+“You think I don’t know that?” Alex snaps, his voice sounding raw. “I’ve been trying to get him to talk to me for months.”
 
-“I can try, if you want?” I say.
+“I can try, if you want?” I offer.
 
 “Be my guest,” he tells me, sounding resigned.
 

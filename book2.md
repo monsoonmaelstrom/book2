@@ -7942,9 +7942,9 @@ Last night, I spent some time digging through everything Alex pulled me out of t
 
 “Why are you and I out for a walk together, Hazel?” Peter asks after we’ve been walking down the street for several minutes and covered maybe a quarter of a mile.
 
-“I figured I should apologize and return this,” I say, deciding not to beat around the bush, as I hand over his journal.
+“I figured I should apologize and return this,” I answer, deciding not to beat around the bush, as I hand over his journal.
 
-Peter stares at it for a long second, before reaching over to take it, his face expressionless. “You were in my house?” he asks finally.
+Peter stares at it for a long second, before reaching over to take it, his face expressionless. “You were in my house?” he questions, finally.
 
 “Yes. Amelia took me there when the three of you disappeared, and I took that.”
 
@@ -7956,9 +7956,9 @@ Peter stares at it for a long second, before reaching over to take it, his face 
 
 “Yes. You would have done the same if our situations were reversed.”
 
-He nods.
+He nods begrudgingly.
 
-“For what it’s worth. I *am* sorry. Not about taking it, or reading it. That was just smart. But I’m sorry about what Liam said to you,” I tell him, and I mean it. “I would have never asked him to tell you that, and I wouldn’t pick me in that scenario,” I add softly.
+“For what it’s worth. I *am* sorry. Not about taking it, or reading it. That was just smart. But I’m sorry about what Liam said to you,” I inform him, and I mean it. “I would have never asked him to tell you that, and I wouldn’t pick me in that scenario,” I add softly.
 
 “I imagine that’s part of why Liam will always choose you.”
 
@@ -7968,7 +7968,7 @@ We walk along in silence for a few minutes, before I decide to start meddling.
 
 “Your flat is very nice. Quite cozy,” I comment.
 
-“Thanks?” he says uncertainly.
+“Thanks?” he replies uncertainly.
 
 “You’re welcome. So how are things with you and Amelia? She says you’re not back together.”
 
@@ -7982,17 +7982,17 @@ We walk along in silence for a few minutes, before I decide to start meddling.
 
 He says nothing.
 
-“I’m merely saying I’m pretty sure she’s open to the idea. I’m practically her best friend,” I tell him. I have no idea if it’s true, but I think it might be. “I would know.”
+“I’m merely saying I’m pretty sure she’s open to the idea. I’m practically her best friend,” I state. I have no idea if it’s true, but I think it might be. “I would know.”
 
 He snorts.
 
 “What?”
 
-“*You* are practically her best friend?” he asks disbelievingly.
+“*You* are practically her best friend?” he challenges, disbelievingly.
 
 “I am! At least in Branton. Ask her.”
 
-“I will,” he tells me as we continue walking.
+“I will,” he replies as we continue walking.
 
 It feels like Peter and I might have finally made some progress toward fixing things.
 
@@ -8010,7 +8010,7 @@ I set my hurt feelings aside and go out on the balcony.
 
 “I’m not hiding.”
 
-“If I was not hiding in the same way that you were not hiding, would you say I was hiding, or…?” I ask, throwing a variant of words he’s said to me so many times back at him.
+“If I was not hiding in the same way that you’re not hiding, would you say I was hiding, or…?” I retort, throwing a variant of the words he’s said to me so many times back at him.
 
 “Piss off, Hazel.”
 
@@ -8022,7 +8022,7 @@ He sighs in irritation. It’s better than sadness. I count it as a win.
 
 He sighs again. “What?”
 
-“Those poppy cakes you always had, can we go get some?”
+“Those butter tarts you always had, can we go get some?”
 
 He knows I actually like them, and it plays to everyone’s desire—including my own—to feed me.
 
@@ -8032,7 +8032,7 @@ Another win. Score: Hazel two, Davy zero.
 
 ----
 
-“So where are we going?” I ask looping my arm through his as we walk.
+“So where are we going?” I inquire, looping my arm through his as we walk.
 
 “A bakery on Church street.”
 
@@ -8050,13 +8050,13 @@ Another win. Score: Hazel two, Davy zero.
 
 “Well, you never brought *me* there.”
 
-“Yes. Because I take you to so many bakeries,” Davy says sarcastically.
+“Yes. Because I take you to so many bakeries,” Davy comments sarcastically.
 
 “That’s exactly my point!”
 
 Davy sighs. “What do you want, Hazel?”
 
-“A poppy cake. Perhaps several poppy cakes. Haven’t you been paying attention?”
+“A butter tart. Perhaps several butter tarts. Haven’t you been paying attention?”
 
 “Hazel, what do you *want*?”
 
@@ -8068,7 +8068,7 @@ Davy sighs. “What do you want, Hazel?”
 
 He gives me a sideways look, but says nothing.
 
-“And since we’re both so fine, I figure we’ll get a bunch of poppy cakes, and sit in the park and eat them, while we contemplate our mutual fineness.”
+“And since we’re both so fine, I figure we’ll get a bunch of butter tarts, and sit in the park and eat them, while we contemplate our mutual fineness.”
 
 “So I take it you’re not fine either,” he says softly.
 
@@ -8076,23 +8076,23 @@ He gives me a sideways look, but says nothing.
 
 “I’ve definitely been better.”
 
-“Well, once we are appropriately fortified with small cakes you can tell me all about it. Because I *am* interested.”
+“Well, once we are appropriately fortified with small tarts you can tell me all about it. Because I *am* interested.”
 
 ----
 
-Davy and I are lying on a blanket I bought after we got the poppy cakes, because nothing ruins a good lie about in the park like being stabbed by a thousand tiny blades of grass.
+Davy and I are lying on a blanket I bought after we got the butter tarts, because nothing ruins a good lie about in the park like being stabbed by a thousand tiny blades of grass.
 
-“So what’s up?” I ask after I’ve crammed the second cake into my mouth.
+“So what’s up?” I ask after I’ve crammed the second tart into my mouth.
 
 “Everything. Nothing.”
 
 “Yeah,” I nod. “I know all about everything and nothing. We’re like this,” I tell him as I cross my fingers. “It’s always the worst when it’s everything and nothing.”
 
-“Yeah,” he says softly. “Out of everyone, I think you do actually know.”
+“Yeah,” he agrees softly. “Out of everyone, I think you actually do know.”
 
 “I do.” I offer no glib comments because I have none. I do know, and it sucks.
 
-“Alex doesn’t get it,” Davy says.
+“Alex doesn’t get it,” Davy states.
 
 “He wouldn’t. I don’t think Liam does either. He doesn’t get it in a totally different way than Alex but… I don’t know. They’re lucky like that, I guess.”
 
@@ -8104,15 +8104,15 @@ We stare at the clouds in silence for a while.
 
 “Probably. You’d think I wouldn’t care by this point.”
 
-I shrug. “She’s a mindfuck. Even *I* think so and it’s nowhere near the same thing for me as it is for you. Another thing I know isn’t the same, but I’m going to say it anyway: there are a lot of other people who love you.”
+I shrug. “She’s a mindfuck. Even *I* think so, and it’s nowhere near the same thing for me as it is for you. Another thing I know isn’t the same, but I’m going to say it anyway: there are a lot of other people who love you.”
 
 “I know that intellectually, but sometimes it’s hard to feel it,” he tells me. “I just… I wish I didn’t care. You don’t care.”
 
-“No, but I’m… me. Caring is normal, even if it sucks. It bothers me sometimes that I *don’t* care,” I admit. “*Everyone* else cares, and I can’t even pretend to care. It’s another way that I’m not like everyone else.”
+“No, but I’m… me. Caring is normal, even if it sucks. It bothers me sometimes that I *don’t* care,” I admit. “*Everyone* else cares, and I can’t even pretend to care. It’s just another way that I’m not like everyone else.”
 
 “I guess the grass is always greener.”
 
-“Pretty much.” I say as I eat another cake. “Everything and nothing. You know it’s part of the reason why I’m always doing so many objectively stupid, dangerous things? It’s not that I don’t know they’re stupid and dangerous, I just… don’t care. Sometimes I try to, but I can’t.”
+“Pretty much.” I agree, as I eat another tart. “Everything and nothing. You know it’s part of the reason why I’m always doing so many objectively stupid, dangerous things? It’s not that I don’t know they’re stupid and dangerous, I just… don’t care. Sometimes I try to, but I can’t.”
 
 “I know.”
 
@@ -8124,7 +8124,7 @@ I shrug. “She’s a mindfuck. Even *I* think so and it’s nowhere near the sa
 
 “Have you told Liam that?”
 
-“No. I think he’s already freaked out enough about… me,” I say, as I gesture at myself.
+“No. I think he’s already freaked out enough about… me,” I reply, as I gesture at myself.
 
 “You’ll be fine,” Davy says.
 
@@ -8134,17 +8134,17 @@ I shrug. “She’s a mindfuck. Even *I* think so and it’s nowhere near the sa
 
 “And you should talk to Alex. Even if he doesn’t get it.”
 
-“I think I’m going to go back to my flat,” Davy says after several minutes of silence.
+“I think I’m going to go back to my flat,” Davy tells me after several minutes of silence.
 
-I nod. “It doesn’t seem like there’s much reason not to. He knows we’re both here and if he wants to find us, it’s not going to matter where we’re hiding,” I comment softly. “He’ll find a way in.” I say thinking of the Ginnelstreet flat I so recently turned into ashes. “Plus, I miss your flat.”
+I nod. “It doesn’t seem like there’s much reason not to. He knows we’re both here and if he wants to find us, it’s not going to matter where we’re hiding,” I comment softly. “He’ll find a way in,” I say, thinking of the Ginnelstreet flat I so recently turned into ashes. “Plus, I miss your flat.”
 
 “That’s how I see it too. It’s simply a matter of time.”
 
-“Unless we can do something about him,” I say with a sigh. “I told Commander Selby he should have assassinated Iverson, rather than removing him from his position.”
+“Unless we can do something about him,” I state with a sigh. “I told Commander Selby he should have assassinated Iverson, rather than removing him from his position.”
 
-“What was his response to that?” Davy asks curiously.
+“What was his response to that?” Davy inquires curiously.
 
-“Something like, ‘we can’t go around assassinating polity leaders,’’ I say, imitating his tone.
+“Something like, ‘we can’t go around assassinating polity leaders,’’’ I respond, imitating his tone.
 
 “And what did you say?”
 
@@ -8164,7 +8164,7 @@ I nod. “You’ve got to die sometime, so why not fuck around and find out?”
 
 “Liam?”
 
-“Liam. Being responsible for another person’s life is a terrible thing.”
+“Liam,” I concur. “Being responsible for another person’s life is a terrible thing.”
 
 “I don’t know. I hear it has some nice perks,” Davy remarks.
 

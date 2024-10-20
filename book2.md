@@ -7654,11 +7654,11 @@ Davy and Giorgi have left, and I’m sitting with my back against the wall aroun
 
 ### 39 - Where is My Mind
 
-“Were you able to find out anything about Reese?” I ask Giorgi.
+“Were you able to find out anything about Reese?” I question Giorgi.
 
-“Michael didn’t say so, but I very much got the impression Reese is with Alexandria.”
+“Michael didn’t say so, but I very much got the impression that Reese is with Alexandria.”
 
-I sigh, rubbing a hand over my face and pushing my hair back. If I’d only been more patient, more careful all of this could have been avoided. Gavin was right. I’m the one to blame for all of this.
+I sigh, rubbing a hand over my face and pushing my hair back. If I’d only been more patient, more careful all of this could have been avoided. Gavin was right. I’m the one to blame for everything.
 
 “Any idea whether she’s there by choice or not?”
 
@@ -7666,15 +7666,15 @@ I sigh, rubbing a hand over my face and pushing my hair back. If I’d only been
 
 “Okay. Thanks for making sure Alex and I were there tonight.”
 
-“Seemed like the sort of thing you should know.”
+“Seemed like the sort of thing you should know about.”
 
 I nod. “What’s your take on it?”
 
 “As far as I can tell, Hazel seems perfectly sane. I think it’s like she said, less seeing the future and more… vague ideas that some things might be important,” Giorgi shrugs. “I can see how it could drive a person mad.”
 
-So can I. That’s what worries me. I left Hazel and Alex alone on the rooftop to commiserate about Davy. I think they need some time alone, but I see both sides of the situation. Part of me thinks Hazel will be fine. However, an equally large part of me is terrified she won’t be. How does a person cope with something like that? With having to question and second guess every single thought? To evaluate if each one is an idle thought or a glimpse of the future? Maddening seems like it might be underselling the situation.
+So can I. That’s what worries me. I left Hazel and Alex on the rooftop to commiserate about Davy. I think they need some time alone, but I see both sides of the situation. Part of me thinks Hazel will be fine. However, an equally large part of me is terrified she won’t be. How does a person cope with something like that? With having to question and second guess every single thought? To evaluate if each one is an idle thought or a glimpse of the future? Maddening seems like it might be understating the situation.
 
-If I’m being honest, I probably would have done exactly what Davy did and never mentioned it. If I’m *really* being honest with myself, I don’t even think it’s a probably. More like a definitely. I definitely would have done what Davy did, even knowing she would feel betrayed if she ever found out.
+If I’m being honest, I probably would have done exactly what Davy did, and never mentioned it. If I’m *really* being honest with myself, I don’t even think it’s a probably. More like a definitely. I definitely would have done what Davy did, even knowing she would feel betrayed if she ever found out.
 
 “She’ll be fine,” Giorgi tells me, clearly seeing the direction my thoughts are headed. “She’s good at compartmentalizing.”
 
@@ -7688,13 +7688,13 @@ I wish I was half as sure as Giorgi seems to be.
 
 I wake early the next morning to find Hazel sleeping, pressed up against me. Seeing her asleep gives me a small jolt of panic, but she looks so different right now than she did in the preceding days. Now, she actually looks like she’s sleeping, not like she’s dying, and it’s a welcome change.
 
-She’s using my shoulder as a pillow, with an arm and a leg flung across me. Her long, dark hair is pooled around us both. I don’t get the chance to wake up like this often since she normally sleeps so little. She usually goes to bed after me and frequently wakes up before me, leaving me wondering if she’s slept at all, so it’s not often I get to enjoy this.
+She’s using my shoulder as a pillow, with an arm and a leg flung across me. Her long, dark hair is pooled around us both. I don’t get the chance to wake up like this often, since she normally sleeps so little. She usually goes to bed after me and frequently wakes up before me, leaving me wondering if she’s slept at all, so it’s not a regular occurrence that I get to enjoy waking up like this.
 
 I’m hesitant to move, partially because I don’t want to wake her, but mostly because I would stay here like this forever if I could. Unfortunately, I have things I need to do, so I force myself to get out of bed anyway. It’s a process and it takes me a couple of minutes to slowly slide out from beneath Hazel without waking her.
 
 When I finally make it to my feet, I see Alex standing in the doorway, trying to suppress a fit of laughter. I sigh. We definitely need to get out of here. We’ve been living on top of each other for days now, and everyone is getting sick of it.
 
-“What are you doing up?” I ask as I make it to the doorway and push him through it before he can get it in his head that it’s a good idea to wake Hazel up.
+“What are you doing up?” I ask as I make it to the doorway and push him through it before he can get it in his head that it’s a good idea to wake Hazel.
 
 “Didn’t sleep much,” he says with a shrug.
 
@@ -7706,9 +7706,9 @@ He shrugs again, which I take as a yes.
 
 “No one asked you.”
 
-“So touchy. So sentimental,” Alex says mockingly.
+“So touchy. So sentimental,” Alex mocks.
 
-“And you’re not?” I ask.
+“And you’re not?” I pry.
 
 He snorts. “No. Neither is she. None of us are. Of the three of us, Davy’s likely the most sentimental, and that’s not saying much.”
 
@@ -7716,9 +7716,9 @@ He snorts. “No. Neither is she. None of us are. Of the three of us, Davy’s l
 
 “So what are you up to this morning?”
 
-“Looking for a way out already?” I ask.
+“Looking for a way out already?” I inquire.
 
-“Maybe,” he says quietly.
+“Maybe,” he admits quietly.
 
 “Have you two talked at all since last night?”
 
@@ -7726,7 +7726,7 @@ He snorts. “No. Neither is she. None of us are. Of the three of us, Davy’s l
 
 “And now you’re avoiding him?”
 
-“No one asked *you*,” he tells me, clearly not wanting to discuss it. At least with me.
+“No one asked *you*,” he tells me, clearly not wanting to discuss it. At least not with me.
 
 “Fine. I’m going to see your mother. Want to come?” I ask. Having Alex along could be useful. He knows Alexandria a lot better than me.
 
@@ -7734,7 +7734,7 @@ He snorts. “No. Neither is she. None of us are. Of the three of us, Davy’s l
 
 I shrug. “You could be useful, and it doesn’t look like you’re doing anything better.”
 
-“Well, since you make such a compelling argument, I guess I shall avail myself to you,” he tells me sarcastically.
+“Well, since you make such a compelling argument, I guess I shall avail myself to you,” he responds sarcastically.
 
 “Are you going to be a pain in the ass all day?”
 
@@ -7742,7 +7742,7 @@ I shrug. “You could be useful, and it doesn’t look like you’re doing anyth
 
 “Great,” I mutter. “Well. As long as you’re having fun.”
 
-“That’s my motto too,” he says, and I can’t tell if he’s serious or not.
+“That’s my motto too,” he states, and I can’t tell if he’s serious or not.
 
 ----
 
@@ -7754,11 +7754,11 @@ The houses get steadily larger as we get closer to the manse where Alexandria ha
 
 “Obscenely large,” Giorgi supplies.
 
-Giorgi and Gavin grew up in a much more modest part of Branton, but spent a lot of time with my grandparents and me as kids, since their own parents worked such long hours running a market stall. Everyone thought it was the best way to keep the two of them out of trouble. I’m fairly confident none of them expected that I’d end up ensuring Giorgi and Gavin were neck deep in all of this.
+Giorgi and Gavin grew up in a much more modest part of Branton, but spent a lot of time with my grandparents and me as kids, since their own parents worked such long hours running a market stall. Everyone thought it was the best way to keep the two of them out of trouble. I’m fairly confident no one expected that I’d end up ensuring Giorgi and Gavin were neck deep in all of this.
 
 “For the most part,” Alex supplies. “It’s camouflage.”
 
-“In what sense?” I ask.
+“In what sense?” I probe.
 
 Alex shrugs. “All of them. You’ve met her. Money, or the illusion of such, makes people overlook and forgive a lot.”
 
@@ -7770,15 +7770,15 @@ I wait to see what Alex says.
 
 “Huh,” I mumble.
 
-“Huh, what?” Alex asks.
+“Huh, what?” Alex queries.
 
 “You don’t know.”
 
 “*What* don’t I know?” he questions sharply.
 
-“She’s not just taking them. It seems as though most of these properties are owned by your family and have been for years. It’s what I was trying to tell you all I found out before we left Branton.” I see Alex has no idea what I’m talking about. “I found property records all over, recording properties owned by either an A Raidane or a W Raidane. All of the records are for very large properties, which have been owned for a minimum of ten years as far as I can tell. I found records in every polity, Branton and Corriven”
+“She’s not just taking them. It seems as though most of these properties are owned by your family, and have been for years. It’s what I was trying to tell you all I found out before we left Branton.” I see Alex has no idea what I’m talking about. “I found property records all over, recording properties owned by either an A Raidane or a W Raidane. All of the records are for very large properties, which have been owned for a minimum of ten years as far as I can tell. I found records in every polity, Branton and Corriven.”
 
-“Interesting,” Alex says, digesting that information. “Still doesn’t mean she didn’t just take them though.”
+“Interesting,” Alex remarks, digesting that information. “Still doesn’t mean she didn’t just take them though.”
 
 “How do you figure?”
 
@@ -7786,7 +7786,7 @@ I wait to see what Alex says.
 
 Giorgi laughs.
 
-“Did you ever check who currently owns the manor your parents were living in when she killed them?” Alex asks me, as if he’s inquiring about what’s for lunch.
+“Did you ever check who currently owns the manor your parents were living in when she killed them?” Alex asks me, as if he’s inquiring about what’s for lunch, even though one of those people was his father.
 
 “No.”
 
@@ -7800,31 +7800,31 @@ I knock on the door and wait. After a few minutes, Anna, the same woman from Lei
 
 Giorgi and I sit down to wait, but Alex moves around the room restlessly picking up items, inspecting them, and setting them back down. I’m not sure if it’s nerves or boredom, but I keep an eye on him as he rifles through the items on the bookshelves. Finally, he pockets something from the shelf, rearranges a few of the knickknacks, and brings a bronze statue over to the table in front of where Giorgi and I are sitting before perching on the arm of the sofa, with his arms folded across his chest.
 
-We wait for several minutes, and as we do I can feel Alex doing something. I’m just not sure what. I’m watching him in my peripheral vision, but he’s not paying any attention to us. Whatever he’s doing, his attention is focused entirely on it, and the air almost feels like it’s crackling with the power swirling around it, but it doesn’t seem like Giorgi has noticed at all.
+We wait for several minutes, and as we do I can feel Alex doing something. I’m just not sure what. I’m watching him in my peripheral vision, but he’s not paying any attention to us. Whatever he’s doing, his attention is focused entirely on it, and the air almost feels like it’s crackling with the power swirling around in it, but it doesn’t seem like Giorgi has noticed at all.
 
 Finally, Alexandria comes into the room, followed closely by Reese. Alexandria looks as icy and distant as ever. Reese looks… fine?
 
-“Hi mom,” Alex says.
+“Hi, mom,” Alex greets.
 
 “Alexander, how nice to see you. I thought you might visit sooner.”
 
 “I’ve been busy. Davy tells me you can see the future. You *and* Hazel, as it turns out.”
 
-“Ah. So you all finally know now.”
+“Ah. So you all finally know, now.”
 
-“We know,” Alex tells her. “I have to say, I was surprised. I think Hazel will handle it a lot better than you though.”
+“We know,” Alex tells her. “I have to say, I was surprised. I think Hazel will handle it a lot better than you, though.”
 
 “Perhaps.”
 
 “So is that what made you the way you are?”
 
-“It probably didn’t help,” she says shrugging.
+“It probably didn’t help,” she says, shrugging.
 
-“Reese, why are you here? I ask.
+“Reese, why are you here?” I ask.
 
-“Reese belongs to me,” Alexandria says before Reese has a chance to speak.
+“Reese belongs to me,” Alexandria asserts, before Reese has a chance to speak.
 
-“Meaning what?” I question, meeting her eyes.
+“Meaning what?” I question, meeting Alexandria’s eyes.
 
 Her eyes are so similar to Hazel’s, just a slightly brighter shade of blue, and yet it couldn’t be any more clear that the person looking out of them is completely different.
 
@@ -7834,17 +7834,17 @@ Her eyes are so similar to Hazel’s, just a slightly brighter shade of blue, an
 
 “It means I’m responsible for her life. If something were to happen to her, something within my power to prevent, it would cost me.”
 
-“Cost you?” I ask.
+“Cost you?” I inquire, hoping for more information.
 
 “I once made a promise—a claim on someone—that I was unable to… fulfill. And, as we all know, actions have consequences.”
 
-“Consequences such as…?” Alex asks her.
+“Consequences such as…?” Alex questions.
 
 “That assertion, when made by someone such as myself or your sister, isn’t merely idle words, Alexander. The words have weight, they bind you to others. It’s a geas of a sort, and failing steals a piece of your humanity. So if you want to know why I am the way I am…” she trails off as she tips her head slightly to the side.
 
 “That doesn’t explain Lisette,” Giorgi states.
 
-“The blond?” Alexandria asks. “Did Hazel kill her then?”
+“The blond?” Alexandria asks. “Did Hazel kill her, then?”
 
 “Yes,” I answer. “And she’s the same as ever.”
 
@@ -7854,7 +7854,7 @@ Alex bursts out laughing. “You really, truly mean that.”
 
 “Of course I do.”
 
-“Who else have you claimed?” I ask.
+“Who else have you claimed?” I interrogate.
 
 “Not you.”
 
@@ -7862,17 +7862,17 @@ Alex bursts out laughing. “You really, truly mean that.”
 
 “So I can fulfill my duty to her.”
 
-“According to Alexandria, if I didn’t come with her, Iverson would have killed me,” Reese says looking at me, finally speaking for the first time.
+“According to Alexandria, if I didn’t come with her, Iverson would have killed me,” Reese informs me, finally speaking for the first time.
 
 “And you believed her,” Alex states.
 
-“Yes,” Reese says simply.
+“Yes,” Reese replies simply.
 
-“Are you okay, Reese?” I ask.
+“Are you okay, Reese?” I want to know.
 
 She looks well enough physically, but I can tell she’s on edge. She practically raised me. Whatever she’s doing here, it wasn’t her idea. I know that much.
 
-“I would prefer not to be here, but I also enjoy being alive,” Reese says succinctly.
+“I would prefer not to be here, but I also enjoy being alive,” Reese tells me, succinctly.
 
 “I’m sorry.”
 
@@ -7886,7 +7886,7 @@ She looks well enough physically, but I can tell she’s on edge. She practicall
 
 Reese looks pointedly at Alexandria.
 
-“Did you know what your sister did to mine?” Alex asks her.
+“Did you know what your sister did to mine?” Alex questions Reese.
 
 “Yes. Whether you believe it or not, it was for the best.”
 
@@ -7896,11 +7896,11 @@ Reese looks pointedly at Alexandria.
 
 “No.”
 
-“It’s fine, Liam,” Reese says before I can respond. “I’m fine. You all should go,” she glances at Alexandria again.
+“It’s fine, Liam,” Reese states before I can respond. “I’m fine. You all should go,” she glances at Alexandria again.
 
 “Yes, you should. This conversation bores me. I am unclear what my daughter sees in you,” she mutters.
 
-I resist the urge to laugh at that statement, but only because I know that doing so has the potential to result in both my death and Hazel’s. I’m pretty sure Hazel would have laughed at her though.
+I resist the urge to laugh at that statement, but only because I know that doing so has the potential to result in both my death and Hazel’s. I’m pretty sure Hazel would have laughed at her, though.
 
 “Why are you still here in Branton, mom? Why haven’t you gone to Corriven yet? Wasn’t that the big plan? Go to Corriven and then back to Avonare? So why are you still here?”
 
@@ -7912,19 +7912,19 @@ I resist the urge to laugh at that statement, but only because I know that doing
 
 “What were you doing in there?” I ask Alex once we’re back out on the street.
 
-“What?” Alex answers distractedly.
+“What?” Alex replies distractedly.
 
 “In there. The magic. What were you doing?”
 
 “Making sure my mother wasn’t lying to us.”
 
-“You can do that?”
+“You can do that?” I’m surprised.
 
-“I can do a lot of things.”
+“I can do a lot of things,” he remarks off-handedly.
 
 “What did you take?”
 
-“Nothing,” he answers without breaking his stride. He’s at least as good of a liar as Hazel is. Probably better.
+“Nothing,” he answers without breaking his stride. He’s at least as good of a liar as Hazel is. Possibly better.
 
 He definitely took something from the shelves, and he doesn’t want to share what it was. I’m intrigued. I glance at Giorgi, but he simply shrugs. He doesn’t know what it was either.
 

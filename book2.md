@@ -8804,7 +8804,7 @@ The temperature has decreased at least a good fifteen degrees since I entered th
 
 ### 44 - Bury a Friend
 
-It’s dark out when I wake up, and Hazel isn’t beside me. She’s not anywhere in the room, and it doesn’t look like she came back after she left last night. I try to see if I can feel where she is through our connection, and all I can tell is that she feels distant, and she doesn’t respond. I’m hoping it’s simply because she’s mad at me, but I don’t think so. I’m pretty sure even if she is still mad at me, and she probably is, she’d respond, if for no other reason than she would want me to in the same scenario. I don’t bother trying the ring. It’s unlikely I’ll get any more of a response from that.
+It’s dark out when I wake up, and Hazel isn’t beside me. She’s not anywhere in the room, and it doesn’t look like she came back after she left last night. I try to see if I can feel where she is through our connection, and all I can tell is that she feels distant, and she doesn’t respond. I’m hoping it’s simply because she’s mad at me, but I don’t think so. I’m pretty sure even if she’s still mad at me—and she probably is—she’d respond, if for no other reason than she would want me to in the same scenario. I don’t bother trying the ring. It’s unlikely I’ll get any more of a response from that.
 
 I check Hazel’s room, on the off chance she’s there. Or was there. When I get to the door, I can tell it’s unoccupied as soon as I touch it. I remember Hazel doing the same thing to Davy’s door once and proclaiming he wasn’t home. I didn’t understand then how she knew. But now I get it. Behind the door feels empty. I let myself in anyway, and the undisturbed dust on every surface agrees she hasn’t been here at all since returning.
 
@@ -8852,7 +8852,7 @@ Amelia pauses for a minute, chewing on her lip, debating.
 
 “Alexandria?”
 
-“Unless she has another one,” Amelia says sarcastically.
+“Unless she has another one,” Amelia remarks sarcastically.
 
 Fine. I deserve that. “Why?”
 
@@ -8886,7 +8886,7 @@ I nod. “What time did she leave?”
 
 “No.”
 
-“Thanks.”
+“Thanks,” I respond.
 
 ----
 
@@ -8894,19 +8894,19 @@ It’s late afternoon before I can get away long enough to go speak to Alexandri
 
 “I’d like to see Alexandria,” I tell her.
 
-She inclines her head toward the sitting room we were in last time, and starts up the staircase when she sees me headed in the direction she indicated. I take a seat on the same sofa as last time. The entire room looks the same. Even the bronze statue is still on the table in front of the sofa where Alex left it when he removed it from the bookshelf. I’m mildly surprised neither Anna nor Alexandria put it back in its place.
+She inclines her head toward the sitting room we were in last time, and starts up the staircase when she sees me headed in the direction she indicated. I take a seat on the same sofa as before. The entire room looks the same. Even the bronze statue is still on the table in front of the sofa where Alex left it when he removed it from the bookshelf. I’m mildly surprised neither Anna nor Alexandria put it back in its place.
 
-“Hello, Liam. Back so soon?”
+“Hello, Liam. Back so soon?” Alexandria queries as she enters the room.
 
-“Do you know where Hazel is?” I ask, cutting to the chase.
+“Do you know where Hazel is?” I demand, cutting to the chase.
 
 “Not precisely.”
 
 “Do you *imprecisely* know where she is then?”
 
-She smiles. “I begin to see why she likes you.”
+She smiles, but it’s not friendly. “I begin to see why she likes you.”
 
-“I really wish people would stop saying that,” I mutter as much to myself as to her.
+“I really wish people would stop saying that,” I mutter, as much to myself as to her.
 
 “You must admit, on the surface, you two are an odd pairing.”
 
@@ -8922,9 +8922,9 @@ I think my heart misses a beat. “Iverson? She’s with Iverson?”
 
 “Yes, of course. He came to collect her last night.”
 
-“You knew? And you let him *take* her?”
+“You knew? And you let him *take* her?” I growl.
 
-“Yes. She’s on her way to fulfill her destiny. As she should be. Now, I’m very busy. You can see yourself out,” she tells me as she stands and heads toward the door, turning her back on me in dismissal.
+“Yes. She’s on her way to fulfill her destiny. As she should be. Now, I’m very busy. You can see yourself out,” she states as she stands and heads toward the door, turning her back on me in dismissal.
 
 Without thinking, I pick up the bronze statue, and hurl it at her head with the full force of my anger behind it. It hits her skull with a disturbing thwack before falling to the ground with a hard thud as it hits the carpet. Alexandria follows quickly, sinking to her knees before falling face first onto the floor.
 
@@ -8944,25 +8944,25 @@ I let myself out of the house, and it seems like seconds later that I’m standi
 
 I knock, and it’s only moments before I hear footsteps. Alex throws open the door, looking disappointed when he sees it’s me.
 
-“Expecting someone else?” I ask.
+“Expecting someone else?” I inquire.
 
 “Davy’s been gone since early this morning. He left to go to the market, and hasn’t been back since.”
 
 I sigh. “Let’s go inside.”
 
-“You know something?” Alex asks, and I hear the worry edging into his voice.
+“You know something?” Alex demands, and I hear the worry edging into his voice.
 
-“Inside,” I say again, more firmly.
+“Inside,” I repeat more firmly.
 
-“What do you know?” Alex questions when we’ve reached the top of the staircase.
+“What do you know?” Alex questions, when we’ve reached the top of the staircase.
 
-“Sit,” I tell him, waiting until he complies. “What was with the bronze statue the other day?”
+“Sit,” I order, waiting until he complies. “What was with the bronze statue the other day?”
 
-“What?”
+“What?” he responds, confused.
 
 “At your mom’s. You were messing around with stuff on the bookshelves. Then you took a bronze statue, and brought it over to the table, and set it there. Why?”
 
-“I don’t know. Who cares?”
+“I don’t know. Who cares?” he snaps.
 
 “Why, Alex?”
 
@@ -8970,7 +8970,7 @@ I sigh. “Let’s go inside.”
 
 “Fucking hell,” I mutter. “I’ve just come from visiting your mother. She’s dead, by the way.”
 
-He blinks slowly. “Good. You killed her?”
+Alex blinks slowly. “Good. You killed her?”
 
 I nod. “With the statue you left on the table.”
 
@@ -8980,11 +8980,11 @@ I can see the realization flickering over his face. “No… that’s not—no.�
 
 “Shit.” He takes a breath. “Whatever. It doesn’t matter. Where’s Davy?”
 
-Now it’s my turn to take a breath. “Hazel’s gone too. That’s why I went to see your mother. Amelia was with Hazel last night, and said Hazel told her that’s where she was going. Then Hazel didn’t come back. Your mother said Iverson took her. Alexandria knew and she let it happen.”
+Now, it’s my turn to take a breath. “Hazel’s gone too. That’s why I went to see your mother. Amelia was with Hazel last night, and said Hazel told her that’s where she was going. Then Hazel didn’t come back. Your mother said Iverson took her. Alexandria knew and she let it happen.”
 
-“Fuck. So he has both of them.”
+“Fuck. So he has both of them,” Alex snarls.
 
-“Probably,” I agree.
+“Probably,” I concur.
 
 “Davy’s been gone since early this morning. Almost twelve hours. If they’re pushing the horses, and they don’t care about running them into the ground—which is a safe bet—they could be nearly five hundred miles away by now, and if they change out the horses and don’t stop, they’ll make it to Dairuvar long before we have a chance to catch up.”
 
@@ -8994,7 +8994,7 @@ Alex closes his eyes, and I swear it’s like I can feel him running through sce
 
 Finally, he says, “They’re going to have to get themselves out. We can’t do it, Liam. If we go to Dairuvar, we’re just going to be giving Iverson two more hostages.”
 
-“I know,” I say softly.
+“I know,” I agree softly.
 
 Alex’s fingers blanch white on the table. I think maybe he was hoping I would disagree. That I would give him an excuse. But I can’t. He’s right.
 
@@ -9006,7 +9006,7 @@ Alex’s fingers blanch white on the table. I think maybe he was hoping I would 
 
 *Tap. Tap.*
 
-“That! It sounds like it’s coming from the balcony,” I say as I head toward the doors.
+“That! It sounds like it’s coming from the balcony,” I respond, as I head toward the doors.
 
 When I open them I see… an owl? I look toward the sky, just to make sure, and the sun is definitely still up.
 
@@ -9020,9 +9020,9 @@ The owl meets my eyes, and then looks down in a manner that seems deliberate. I 
 
 “No. Giorgi. He confirms Iverson has Hazel and Davy and says he’s following them on the Great Western Way. He wants me to send Gavin and Peter after him. And we’re supposed to feed the owl.”
 
-“Always knew I liked him,” Alex says, grinning. “Good. Now when Hazel and Davy get themselves out, they’ll have backup.”
+“Always knew I liked him,” Alex remarks, grinning. “Good. Now when Hazel and Davy get themselves out, they’ll have help.”
 
-“What the hell do we feed an owl?”
+“What the hell do we feed an owl?” I wonder.
 
 ### 45 - All Apologies
 

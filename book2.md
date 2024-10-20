@@ -9026,13 +9026,13 @@ The owl meets my eyes, and then looks down in a manner that seems deliberate. I 
 
 ### 45 - All Apologies
 
-I wake up to the afternoon light slanting sideways and stabbing right into my eyes. The world is swaying and bouncing, and it feels hard to form a coherent thought over the pounding of my head and nausea that’s got me locked in his grip.
+I wake up to the afternoon light slanting sideways and stabbing right into my eyes. The world is swaying and bouncing, and it feels hard to form a coherent thought over the pounding of my head and the nausea that’s got me locked solidly in its grip.
 
 “Careful moving. I think you have a concussion.”
 
 “Davy?” I manage to get out, but even to me it sounds garbled, like I’m speaking around a mouthful of marbles.
 
-“Yeah.”
+“Yeah,” he confirms.
 
 “Where are we?
 
@@ -9044,7 +9044,7 @@ He sighs. “I think we’re on our way to Dairuvar.”
 
 “Fuck,” I mutter. “I went to see my mother and then…”
 
-“You were already in the wagon unconscious when I woke up. I was headed to the market. There was a smoke cloud and then nothing.”
+“You were already in the wagon, unconscious, when I woke up. I was headed to the market. There was a smoke cloud and then nothing.”
 
 “How long has it been?” I try to move but I can’t. I’m well and firmly trussed.
 
@@ -9052,19 +9052,19 @@ He sighs. “I think we’re on our way to Dairuvar.”
 
 “No magic?”
 
-“No magic,” he confirms.
+“No magic,” he verifies.
 
-I’m in no position to try to find out about my own state right now with the way my head is throbbing. I try to open my eyes, but the light is too bright, and at exactly the wrong angle.
+I’m in no position to try to find out about my own state right now, with the way my head is throbbing. I try to open my eyes, but the light is too bright, and at exactly the wrong angle.
 
 *Shit,* I think as I remember getting into a fight with Liam, and storming off angry. Liam has no idea where I am. And if we both end up dead because I got mad that Liam told Commander Selby what he already knew, I am going to be so pissed at myself.
 
-“What about Alex?” I ask Davy.
+“What about Alex?” I question Davy.
 
 “Not here, which is probably good news.”
 
 “Yeah,” I agree.
 
-“We’re going to have to get ourselves out of this.”
+“We’re going to have to get ourselves out of this,” Davy informs me.
 
 “Tell me something I don’t already know, oh wise one,” I gripe sarcastically.
 

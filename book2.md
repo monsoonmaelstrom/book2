@@ -26,7 +26,7 @@ I sigh. “What’s your take on all this?” I ask Giorgi, finally breaking my 
 
 He leans back on his palms and shakes his blond hair out of his face. I can see him considering his words for a long moment before he finally says, “I don’t think she can see the future.”
 
-“Fucking thank you!” I burst out with more than a hint of relief. I’m so glad to hear someone else say the same thing. “Why?” I ask him. I know all the reasons I don’t believe her, but I want to hear his.
+“Fucking thank you!” I burst out with more than a hint of relief. I’m so glad to hear someone else say the same thing. “Why not?” I want to know. I know all the reasons I don’t believe her, but I want to hear his.
 
 He shrugs. “She’s too nervous. All the time.”
 
@@ -102,13 +102,13 @@ I sigh. I’d feel better if I had any idea what she was planning, but I guess t
 
 My mother concludes her class—if you can call it that—after a couple of hours and I think everyone is left frustrated by it. She spent a solid twenty minutes babbling on about esoteric energy meridians, then had them spend another twenty minutes visualizing the energy flowing along their meridians, *‘up and down, and up and down.’* I’m not kidding. She must have said ‘up and down’ at least two hundred times. Then she had them spend an hour and a half trying to push some rocks across the ground by projecting their energy meridians outward. It’s like she was trying to make everything as confusing as possible.
 
-“Did any of that make sense to anyone?” Henry finally asks after my mother has left.
+“Did any of that make sense to anyone?” Henry finally asks, after my mother has left.
 
 “No,” Giorgi answers and everyone else nods in agreement with him.
 
 “Wanting something and letting yourself have it makes a lot more sense,” Gavin says.
 
-Henry nods, agreeing with Gavin, but Lisette says, “None of it makes any sense!”
+Henry nods, agreeing with Gavin, but Lisette snarls, “None of it makes any sense!”
 
 Out of everyone, she’s the most frustrated. She was the one who asked if I could teach her and she still hasn’t figured out how to untie the knot. Gavin and Henry both have. I’m not sure if Giorgi’s even bothered trying.
 
@@ -116,7 +116,7 @@ Out of everyone, she’s the most frustrated. She was the one who asked if I cou
 
 He nods and takes a seat next to me as Lisette sits across from me.
 
-“Okay. Show me,” I tell her.
+“Okay. Show me,” I order.
 
 “Show you what? I can’t *do* anything!”
 
@@ -124,7 +124,7 @@ He nods and takes a seat next to me as Lisette sits across from me.
 
 I see a look of intense focus on her face, and I feel something, but it doesn’t exactly feel like she’s close. I look at Liam. “What do you think?”
 
-“I don’t know,” he tells me. “I’ve only really paid attention to you, Alex, and Davy doing magic and I doubt that’s a valid comparison.”
+“I don’t know,” he responds. “I’ve only really paid attention to you, Alex, and Davy doing magic and I doubt that’s a valid comparison.”
 
 “Gavin, can you untie the knot, please?”
 
@@ -150,25 +150,25 @@ I’m not thrilled about it, but maybe it being the thing she wanted to learn wi
 
 “Giorgi, are you getting in on this?” I ask.
 
-He shrugs, but says, “Sure.”
+He shrugs, but replies, “Sure.”
 
 “Can you do the knot?”
 
 “I haven’t tried. I don’t care about unknotting some fabric, Hazel.”
 
-I let out a long suffering sigh, but say, “Fine. Can you keep an eye on my mother? Earlier may have been a mistake.”
+I let out a long suffering sigh, “Fine. Can you keep an eye on my mother? Earlier may have been a mistake.”
 
-He nods and walks away back toward the house. Lisette, Gavin, and Henry trail after him.
+He nods and walks back toward the house. Lisette, Gavin, and Henry trail after him.
 
-“Hey, Peter,” I call out as he moves to leave too. “Thanks for earlier.”
+“Hey, Peter,” I call out as he moves to leave, too. “Thanks for earlier.”
 
-A few minutes after Peter has left, I can’t help but ask, “Should I not have done that?”
+A few minutes after Peter has left, I can’t help but wonder, “Should I not have done that?”
 
-“It was bound to happen sooner or later,” Alex says. “May as well have been now.”
+“It was bound to happen sooner or later,” Alex states. “May as well have been now.”
 
 “You set a boundary,” Davy shrugs. “Who knows what she’ll do next, but that would be true regardless of whether or not you’d done anything today,” he reminds me, which is true.
 
-I nod. “We need to get back to Branton. Sooner rather than later. The sooner we get back, the sooner we can figure out how to undo what she’s done to Liam.”
+I nod. “We need to get back to Branton. Sooner, rather than later. The sooner we get back, the sooner we can figure out how to undo what she’s done to Liam.”
 
 “I know. I’m working on it,” Davy tells me, running a hand through his curls and making them stand on end. “We can’t do another overland trip. The pass will be even worse now. If we want to go in the next four months, we’re going to have to go by ship.”
 
@@ -178,17 +178,17 @@ Davy nods. “Lucky we’re going south though. You can’t even sail the other 
 
 “We clearly have different definitions of ‘lucky,’” I tell him drily.
 
-“What’s wrong with taking a ship?” Liam asks.
+“What’s wrong with taking a ship?” Liam queries.
 
 “I’m sorry, have you even *met* Hazel?” Alex questions him. “Is there any place more boring than a ship in the middle of the ocean? Even I’m going to be losing my mind after a couple of days.”
 
-“By the end of the trip,” Davy tells Liam seriously, “you’re going to want to strangle both of them. They will be so desperately annoying you’ll want to spend at least a week avoiding them.”
+“By the end of the trip,” Davy informs Liam seriously, “you’re going to want to strangle both of them. They will be so desperately annoying you’ll want to spend at least a week avoiding them.”
 
 I want to tell him to shut up, but I know he’s right. Right now, just the thought of having to be on a ship for that long is making my skin crawl and my mind bounce around frantically.
 
 “I think I’d rather go back through the pass.”
 
-“No,” Liam says with a look approaching horror on his face as he looks at me. “We’re not doing that again. Ever, I hope.”
+“No,” Liam blurts out, with a look approaching horror on his face as he stares at me. “We’re not doing that again. Ever, I hope.”
 
 “Okay,” I agree, because as bad as the pass was for me, I think it might have been worse for him. “I’m sorry I didn’t get the chance to talk to you first about calling her bluff. I was trying to find you so we could talk about it, but then, well. You know.”
 
@@ -206,9 +206,9 @@ He grins. “It was worth it. And who knows, maybe she’ll be less… Whatever 
 
 “I’ll let you know tomorrow. I need to talk to the Vernes.”
 
-“Do you think she’s actually friends with them?” I ask him, remembering what she said.
+“Do you think she’s actually friends with them?” I inquire, remembering what she said.
 
-“No, but who knows. It turns out Alexandria is full of surprises,” Davy says.
+“No, but who knows. It turns out Alexandria is full of surprises,” Davy remarks.
 
 “You’re not buying all the stuff about her being a seer, are you?”
 
@@ -244,7 +244,7 @@ Everyone nods.
 
 “Well. The glass doesn’t ask how, it just does it. You’re the sunlight and the glass. Congratulations. Let’s see what you’ve got. Try not to set yourselves on fire.”
 
-“We could do that?” Henry asks.
+“We could do that?” Henry wonders, with a hint of worry.
 
 “Who knows? Maybe. Shit can go really wrong, really fast with magic.”
 
@@ -252,7 +252,7 @@ Everyone nods.
 
 “I almost died on the way here. *Before* we got to the pass,” I tell him as I exit the stream and return to dry ground. I don’t bother explaining that if Liam hadn’t killed the deer, I’m not sure I would have been fast enough. None of them know about the deer. I’d like to keep it that way.
 
-“You almost died on the way here? Before the pass?” Peter asks softly from where he’s observing on the stream bank as I near him. He’s the only other one who came today. “Was that the day Liam came riding back with you on his horse?”
+“You almost died on the way here? Before the pass?” Peter inquires softly from where he’s observing on the stream bank as I near him. He’s the only other one who came today. “Was that the day Liam came riding back with you on his horse?”
 
 “Yes.”
 
@@ -274,7 +274,7 @@ I don’t want to ask, but it’s going to drive me nuts if I don’t, so I fina
 
 “I’m surprised he wasn’t angrier, is all,” Peter comments, as he looks out at the others in the stream.
 
-“He was plenty angry,” I tell Peter.
+“He was plenty angry,” I inform Peter.
 
 “Hmm. So, who do you think is going to get it first?”
 
@@ -284,23 +284,23 @@ I don’t want to ask, but it’s going to drive me nuts if I don’t, so I fina
 
 I shrug.
 
-Ten minutes later, Giorgi’s paper is on fire. I look at Peter and raise my eyebrows. Then I wade back into the stream and give Giorgi two pieces of paper rolled into cones. “Figure out how to light them both at the same time,” I tell him and walk back to the shore.
+Ten minutes later, Giorgi’s paper is on fire. I look at Peter and raise my eyebrows. Then I wade back into the stream and give Giorgi two pieces of paper rolled into cones. “Figure out how to light them both at the same time,” I order and walk back to the shore.
 
 “How did you know?” Peter asks me, curiosity shining in his blue eyes.
 
-“Giorgi understands wanting something and letting yourself have it. He gets the idea of imposing your will on the world with the expectation that it will obey. You can look at him and practically see it,” I say softly. “He’s not… warm and fuzzy the way most people are. He’s a lot more like me than anyone else here is.”
+“Giorgi understands wanting something and letting yourself have it. He gets the idea of imposing your will on the world with the expectation that it will obey. You can look at him and practically see it,” I reply softly. “He’s not… warm and fuzzy the way most people are. He’s a lot more like me than anyone else here is.”
 
 Giorgi could torture a few thousand animals to death in pursuit of a goal if he needed to. Like me, I don’t think he’d enjoy it, but he could do it. I sigh.
 
 Giorgi figures out how to do two at once before anyone else figures out one. I roll ten more pieces of paper into cones and stick them in the sand spaced at intervals of about a foot.
 
-“All ten. At the same time,” I say.
+“All ten. At the same time,” I demand.
 
 Giorgi nods, his golden hair catching the sunlight, and I return to stand next to Peter.
 
-“Do you think you could do that?” I ask him. I’m not sure what Peter’s skills are like, beyond being really good at fucking with people’s memories.
+“Do you think you could do that?” I question. I’m not sure what Peter’s skills are like, beyond being really good at fucking with people’s memories.
 
-“Maybe,” he tells me. “Probably.”
+“Maybe,” he states. “Probably.”
 
 I stick ten more rolled pieces of paper into the sand. “Do you think you can do it before Giorgi?” I ask in challenge.
 
@@ -310,21 +310,21 @@ In a few minutes, Peter has all ten pieces of paper alight.
 
 “Not bad,” I tell him. “A bit slow. You could definitely use some practice. But not bad.”
 
-“Thanks for the most tepid compliment I’ve ever heard, Hazel,” Peter says sarcastically.
+“Thanks for the most tepid compliment I’ve ever heard, Hazel,” Peter remarks sarcastically.
 
 “Get faster and the compliments might get better,” I tell him without hesitation.
 
 Another five minutes pass before Giorgi manages to get his paper cones lit. But he does, and all at the same time too.
 
-“Nice. Come out of the stream.” I wait for him to near Peter and me, and then tell him, “You’re actually pretty good at this. Good enough to fuck it up spectacularly, so do me a favor and don’t practice this shit alone, yeah?”
+“Nice. Come out of the stream.” I wait for him to near Peter and me, and then state, “You’re actually pretty good at this. Good enough to fuck it up spectacularly, so do me a favor and don’t practice this shit alone, yeah?”
 
-He nods in assent, then says quietly, “You know your mom’s been watching for the last twenty minutes?”
+He nods in assent, then asks quietly, “You know your mom’s been watching for the last twenty minutes?”
 
 “Fuck,” I groan out. “You couldn’t have mentioned that twenty minutes ago?”
 
-“I was a bit busy then,” he tells me with a shrug.
+“I was a bit busy then,” he supplies with a shrug.
 
-“Where is she?” I ask him.
+“Where is she?” I question.
 
 “About sixty feet diagonally over your left shoulder.”
 
@@ -342,11 +342,11 @@ I sigh. “I’m probably going to regret this,” I mutter. Then I turn and pit
 
 She takes a moment to think about it, I guess, and then walks over to us. She stands on the far side, keeping Giorgi and Peter between us.
 
-“So. Any thoughts?” I ask when she’s quiet for several minutes.
+“So. Any thoughts?” I inquire when she’s quiet for several minutes.
 
-“Wanting something and letting yourself have it might work for the others, but it’s not going to work for the blond,” she says finally.
+“Wanting something and letting yourself have it might work for the others, but it’s not going to work for the blond,” she states finally.
 
-“Lisette,” I remind her, because people do have names. “Okay.” I pause, but she doesn’t say anything else. “Then what do you think will?”
+“Lisette,” I remind her, because people do have names. “Okay.” I pause, but she doesn’t say anything else. “Then, what do you think will?”
 
 “What I was teaching them yesterday.”
 
@@ -364,7 +364,7 @@ Moments later, Gavin successfully sets his paper aflame. I wade back in and give
 
 When I return to dry land, my mother continues, “*You* never had to learn about moving energy around because you’re able to innately do it, without thinking about it, without even realizing you’re doing it. She, clearly, cannot.”
 
-“Fine, so go help her, then,” I say irritatedly.
+“Fine, so go help her, then,” I comment, irritatedly.
 
 She snorts in what might be amusement. “And wade into the creek? I think not. She, and the others, can show up to my class this afternoon. We can both teach them,” she says nodding as if the decision has been made and everyone has agreed to it.
 
@@ -384,13 +384,13 @@ When I return to the house, I find Liam with Alex and Davy out on the grounds ne
 
 “Fine. Well. Giorgi.” I pause, trying to decide what to say.
 
-“What about Giorgi?” Liam asks.
+“What about Giorgi?” Liam wants to know.
 
 “We have a lot in common.”
 
 “What do you mean?”
 
-Again, I debate how to answer this. “He’s potentially really powerful. More so than any of the others. Not exactly… I don’t know. I’m guessing he doesn’t feel guilty about anything ever, either. And once he’s made a decision, the ends justify the means regardless of what the means are. Could be useful,” I say with a shrug.
+Again, I debate how to answer this. “He’s potentially really powerful. More so than any of the others. Not exactly… I don’t know. I’m guessing he doesn’t feel guilty about anything ever, either. And once he’s made a decision, the ends justify the means regardless of what the means are. Could be useful,” I note with a shrug.
 
 “How’d it go with Lisette?” Davy asks.
 
@@ -400,13 +400,13 @@ Again, I debate how to answer this. “He’s potentially really powerful. More 
 
 “Yeah, according to Giorgi she showed up about twenty minutes into it. Stood watching in the distance for a while before I invited her over,” I tell Davy.
 
-“*You* invited her over?” Alex asks, as if he thinks he misheard me.
+“*You* invited her over?” Alex questions, as if he thinks he misheard me.
 
 “Yeah. Lisette,” I explain with a disgruntled sigh, “I don’t know what to do about her, and it’s possible our mother may know more about teaching magic to people than I do, since I know absolutely nothing.”
 
-“I wouldn’t count on it,” Davy says. “I think she might have gotten lucky with the three of us.”
+“I wouldn’t count on it,” Davy replies. “I think she might have gotten lucky with the three of us.”
 
-“Maybe. Did she ever mention energy meridians to either of you before yesterday?” I ask Davy and Alex.
+“Maybe. Did she ever mention energy meridians to either of you before yesterday?” I probe Davy and Alex.
 
 “No,” they both answer.
 
@@ -414,7 +414,7 @@ Again, I debate how to answer this. “He’s potentially really powerful. More 
 
 “Anyway, she wants us both to teach them. She’s apparently holding her class this afternoon, back in the clearing. She has requested we all attend.”
 
-“I won’t be able to make it,” Davy tells me quickly.
+“I won’t be able to make it,” Davy informs me quickly.
 
 “What are you doing?”
 
@@ -446,7 +446,7 @@ He nods.
 
 An hour and a half later, Liam, Davy, and I are standing in the stables.
 
-“I figure we’ll try this here, before we leave,” I tell Liam. “It’s similar to the rings, but instead of heat, it’s only energy. We’ll have you try it with Davy first since the way your magic interacts with mine seems… volatile.”
+“I figure we’ll try this here, before we leave,” I explain to Liam. “It’s similar to the rings, but instead of heat, it’s only energy. We’ll have you try it with Davy first since the way your magic interacts with mine seems… volatile.”
 
 Davy sighs and holds up his hand. I know he’s not keen about being a guinea pig, but between the two of us, he’s the safer option.
 
@@ -462,15 +462,15 @@ I look at Davy and he shrugs. “Okay,” I say as I place my hand against Davy�
 
 He nods, and puts his hand up to Davy’s. Almost immediately, Davy yanks his hand back with a hiss.
 
-“Less,” Davy says, and extends his hand back to Liam’s. After a moment, he says, “That’s better.”
+“Less,” Davy growls, and extends his hand back to Liam’s. After a moment, he nods, “That’s better.”
 
 “So this energy,” I explain, “it’s coming from you. But you’re not going to want to use your own energy for a thirty mile horse ride. This is where pulling energy from the heat in the air is useful. You’ve seen me do it before, yeah?”
 
-“Yeah, but it doesn’t mean I can do it,” Liam says skeptically.
+“Yeah, but it doesn’t mean I can do it,” Liam answers, skeptically.
 
-“Try.”
+“Try,” I order.
 
-“Show me again,” Liam says. “I’ve never watched you do it with the intention of trying to replicate it.”
+“Show me again,” Liam requests. “I’ve never watched you do it with the intention of trying to replicate it.”
 
 “Davy will show you. He’s probably better to use as an example anyway.”
 
@@ -482,9 +482,9 @@ Liam nods, and I say, “Okay, now take the energy out of the air and let it tri
 
 They each put their hands back up and the air cools a little bit more, but Davy doesn’t yank his hand away like he did the first time. After a few seconds they drop their hands.
 
-“That’s… I’m supposed to do that for thirty miles?” Liam asks incredulously.
+“That’s… I’m supposed to do that for thirty miles?” Liam wonders, incredulously.
 
-I shrug. “Do it for however long you think you can, and then I’ll pick it up after that. It gets easier the more you do it. Eventually, you should be able to do it without thinking. Okay. Let’s go,” I say as I lead my horse out.
+I shrug. “Do it for however long you think you can, and then I’ll pick it up after that. It gets easier the more you do it. Eventually, you should be able to do it without thinking. Okay. Let’s go,” I state as I lead my horse out.
 
 ----
 
@@ -498,7 +498,7 @@ The door is opened by a middle-aged woman. “Davy Iverson, to see Amelia Price,
 
 “Guess we’re not hiding anymore,” I mutter.
 
-“At this point,” Davy says over his shoulder, “it doesn’t seem like there’s much reason to. It’s all coming out, so we may as well use it to our advantage as much as we can.”
+“At this point,” Davy throws over his shoulder, “it doesn’t seem like there’s much reason to. It’s all coming out, so we may as well use it to our advantage as much as we can.”
 
 The entire concept makes me nauseous. Liam, noting my discomfort, takes my hand in his and squeezes it slightly. I move a little bit closer to him, and try not to dread a future that hasn’t yet happened too much.
 
@@ -524,15 +524,15 @@ Amelia nods as if she expected this, and perhaps she did. I don’t know where e
 
 “Okay. Let’s go,” she tells us.
 
-“Now?” I ask.
+“Now?” I question.
 
 “Unless you’ve got somewhere else to be?”
 
 “Nope, simply surprised we’re not waiting around forever.”
 
-“It’s my uncle and grandparents. They’ll make time,” she says with certainty.
+“It’s my uncle and grandparents. They’ll make time,” she states with certainty.
 
-“Huh,” I say.
+“Huh,” I reply.
 
 “What?”
 
@@ -540,7 +540,7 @@ Amelia nods as if she expected this, and perhaps she did. I don’t know where e
 
 “What? Say it.”
 
-“Hazel and I don’t have family like that,” Davy tells her.
+“Hazel and I don’t have family like that,” Davy informs her.
 
 “Oh.”
 
@@ -552,39 +552,39 @@ Amelia stands as they enter, and Liam, Davy, and I join her.
 
 She begins introductions. “This is my uncle, John Verne,” she tells us, gesturing to the younger of the two men, “and my grandfather Robert,” she says, indicating the older man. She pauses to allow us to introduce ourselves.
 
-“Davy Iverson,” Davy says, extending a hand, which they both shake.
+“Davy Iverson,” Davy introduces himself, extending a hand, which they both shake.
 
-“Iverson?” Robert asks with a sharp look.
+“Iverson?” Robert queries with a sharp look.
 
 “Christine Iverson is my mother,” Davy supplies emotionlessly.
 
 Their eyes turn to me. I suck it up and say, “Hazel Raidane,” as I extend my own hand.
 
-“Yes. The family resemblance is quite dramatic,” Robert says, shaking my hand.
+“Yes. The family resemblance is quite dramatic,” Robert remarks, shaking my hand.
 
 “Hazel saved my life while we were crossing the pass,” Amelia tells her family. “Twice.”
 
 Their eyes are somewhat more appraising as they turn back to me. “Your mother is very powerful,” John comments as he takes my hand.
 
-“Yes,” I say in agreement. My mother and John appear to be a similar age. I wonder how well they know one another.
+“Yes,” I agree. My mother and John appear to be a similar age. I wonder how well they know one another.
 
 Finally they shift their eyes to Liam.
 
-“Liam Marten,” he tells them, extending his hand. “Captain of the Guard of the Branton War College.”
+“Liam Marten,” he introduces, extending his hand. “Captain of the Guard of the Branton War College.”
 
 *Well, one of us clearly understands how this game is played*, I think as I side eye him.
 
-“Yes, I believe Amelia has mentioned you,” John says, as he takes his hand.
+“Yes, I believe Amelia has mentioned you,” John notes, as he takes Liam’s hand.
 
 Liam nods and we all sit back down.
 
-“So why are you all here?” Robert asks without preamble.
+“So why are you all here?” Robert questions, without preamble.
 
 “We need to return to Branton, sooner rather than later, and will need a ship to do so,” Davy responds equally to the point.
 
 I find myself liking this conversation more and more by the second.
 
-“And we would be inclined to provide you with a ship because…?” John asks
+“And we would be inclined to provide you with a ship because…?” John asks.
 
 “Well,” I interject, “according to my mother, your family is good friends with mine, and it is imperative to her that she returns quickly.” I’m interested to see what his response will be.
 
@@ -592,35 +592,35 @@ I can practically feel Davy glaring at me, but he can shove it. One way or anoth
 
 “What my cousin means to say,” Davy begins, and now I’m the one glaring.
 
-“Cousin?” John quickly asks.
+“Cousin?” John quickly interrupts.
 
-“Indeed,” Davy says, but does not elaborate further. “Anyway, what she means to say is that it is rather urgent, and we would greatly appreciate any assistance you could offer.”
+“Indeed,” Davy supplies, but does not elaborate further. “Anyway, what she means to say is that it is rather urgent, and we would greatly appreciate any assistance you could offer.”
 
 That is definitely *not* what I mean to say, but I bite my tongue and don’t contradict him.
 
 “It seems like Alexandria may have left some parts of the story out,” John murmurs and Robert inclines his head slightly.
 
-“Yes, well, if it makes you feel any better, I only recently found out you were… on speaking terms with one another. I was not aware that any of the polities’ ruling families knew where she was, let alone were friends? Allies? Of hers. How would you describe it?” I ask leaning forward slightly.
+“Yes, well, if it makes you feel any better, I only recently found out you were… on speaking terms with one another. I was not aware that any of the polities’ ruling families knew where she was, let alone were friends? Allies? Of hers. How would you describe it?” I interrogate, leaning forward slightly.
 
 Robert looks at me, and I swear he looks amused. “We have a mutual goal. A common enemy, if you will,” he responds. “We are allies, of a sort, I suppose.”
 
-“Interesting,” I say softly. She was telling the truth. In a manner of speaking. “How long have you been ‘allies?’”
+“Interesting,” I remark softly. She was telling the truth. In a manner of speaking. “How long have you been ‘allies?’”
 
-“Many years,” he says, waving a hand blithely. “Your father,” he says, and whatever reaction he sees on my face seems to confirm his suspicion, since he nods before continuing, “tends to have that effect on people.”
+“Many years,” he replies, waving a hand blithely. “Your father,” he begins, and whatever reaction he sees on my face seems to confirm his suspicion, since he nods before continuing, “tends to have that effect on people.”
 
-“So I’ve heard,” I say in agreement, digging my nails into the palm of my hand to distract myself from how much I dislike this conversation.
+“So I’ve heard,” I note in agreement, digging my nails into the palm of my hand to distract myself from how much I dislike this conversation.
 
-“I had always wanted to meet you,” he tells me. “We knew she had a daughter, but she would never allow any of us to meet you.”
+“I had always wanted to meet you,” he informs me. “We knew she had a daughter, but she would never allow any of us to meet you.”
 
 “I bet.” I lean back on the couch. I got the information I came for. I’m no longer particularly interested in this conversation.
 
 “Returning to the matter at hand,” Davy says, prodding the others back on track. “We need a ship. We aren’t prepared to cross the pass twice in the same season.”
 
-“Yes, I’m surprised you survived the once,” Robert says.
+“Yes, I’m surprised you survived the once,” Robert comments.
 
 Suddenly I’m interested again.
 
-“You wouldn’t know anything about the avalanches?” I say as I study his face.
+“You wouldn’t know anything about the avalanches?” I question, as I study his face.
 
 “I know they happened,” he answers, “but no more than that. Though I can make an educated guess.”
 
@@ -636,11 +636,11 @@ Apparently we’ve both gotten what we wanted out of this conversation.
 
 Davy sighs in irritation before trying again, “If we could discuss the use of a ship, that would be *wonderful*.”
 
-“Yes,” John agrees, “It’s like herding cats. I know the feeling well,” he says as he flicks a glance toward his father. “We will loan you a ship. On the condition you allow Amelia and her cousin, my son, Michael to travel with you.”
+“Yes,” John agrees, “It’s like herding cats. I know the feeling well,” he comments as he flicks a glance toward his father. “We will loan you a ship. On the condition you allow Amelia and her cousin, my son, Michael to travel with you.”
 
-“Could be dangerous,” I tell them. “They both might die. Ships in the winter sea are notoriously dangerous under the best conditions,” I say hoping to discourage them. I don’t even really trust Amelia. The last thing I want is some cousin of hers I haven’t even met joining us. What I want is to say no.
+“Could be dangerous,” I assert. “They both might die. Ships in the winter sea are notoriously dangerous under the best conditions,” I remark, hoping to discourage them. I don’t even really trust Amelia. The last thing I want is some cousin of hers I haven’t even met joining us. What I want is to say no.
 
-“Amelia needs to go back anyway,” Liam says. They’re the first words he’s spoken since the introductions.
+“Amelia needs to go back anyway,” Liam notes. They’re the first words he’s spoken since the introductions.
 
 “Yes,” John agrees.
 
@@ -648,7 +648,7 @@ Davy sighs in irritation before trying again, “If we could discuss the use of 
 
 John sighs, and rubs a hand over his face. “Your mother told my parents decades ago that there would come a time where they wouldn’t be able to sit this out. It appears that she was, unfortunately, right.”
 
-“In Firgasu, we repressed and discouraged the use of magic more stringently than in any other polity,” Robert says.
+“In Firgasu, we repressed and discouraged the use of magic more stringently than in any other polity,” Robert states.
 
 “I’m aware.”
 
@@ -660,7 +660,7 @@ Only the people with the pitchforks are usually someone the target trusts, so th
 
 *Like me and my mother?* I want to ask, because it seems like we know very different people. But I don’t. It just goes to show they have absolutely no idea what they’re talking about. Davy should be proud of my restraint.
 
-Instead I say, “What, exactly, are you asking for?”
+“What, exactly, are you asking for?” I demand instead.
 
 “They need to be taught magic. Both of them. And there’s no one here qualified to do it.”
 
@@ -682,9 +682,9 @@ My eyes dart to Davy, and he lifts his shirt, displaying a two inch scar near hi
 
 “That’s what you’re asking for,” I tell Robert and John, but mostly Amelia.
 
-“And yet you survived,” Robert says, echoing Amelia’s earlier statement.
+“And yet you survived,” Robert states, echoing Amelia’s earlier statement.
 
-“Whatever. Fine. Send your children to the slaughter. I take no responsibility for them though,” I tell him.
+“Whatever. Fine. Send your children to the slaughter. I take no responsibility for them though,” I inform him.
 
 He raises his eyebrows. “I wouldn’t expect you to.”
 
@@ -730,13 +730,13 @@ We arrive back in Leisch late in the evening, and the house appears dark.
 
 “I should be the one asking you that question,” I answer. “Davy drugs you, then knocks you out and ties you to a horse, then my mother abducts you, and uses you as leverage to control me… I’m sorry. It’s a lot.”
 
-“We can talk about me later,” he says, pulling me to a stop, and turning me to face him. The shadows cast by the moonlight make his blue-grey eyes appear infinitely dark and lend a silvery sheen to his hair, which has grown long enough to have a slight wave. “How are you doing?” he asks again.
+“We can talk about me later,” he responds, pulling me to a stop, and turning me to face him. The shadows cast by the moonlight make his blue-grey eyes appear infinitely dark and lend a silvery sheen to his hair, which has grown long enough to have a slight wave. “How are you doing?” he asks again.
 
 “I’ve been better,” I finally answer, looking up into his eyes. “Being here… it feels like the walls are closing in on me. It’s not my favorite thing in the world. And tomorrow is going to suck.”
 
 “Why?”
 
-“Actions have consequences,” I tell him, with a sigh.
+“Actions have consequences,” I inform him, with a sigh.
 
 “What do you mean?”
 
@@ -758,7 +758,7 @@ I sigh. “Yeah, but it’s not really going to get better, is it? Six weeks abo
 
 “A deterrent. Failing that, a weapon. The one that makes General Iverson fall back in line. But what they’re asking is for me to become another version of him. But one that bows to their desires. I won’t be a tool for anyone, and I don’t want to rule anything.”
 
-“Being your own person has gotten you this far,” Liam says and I feel his shoulders rise and fall in a shrug. “I think you can manage the next bit on your terms as well.”
+“Being your own person has gotten you this far,” Liam reminds me, and I feel his shoulders rise and fall in a shrug. “I think you can manage the next bit on your terms as well.”
 
 “We’ll find out, I guess.” I tip my head back so I can see him. “Okay. Your turn. How are you dealing with all of this?”
 

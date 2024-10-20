@@ -8342,7 +8342,7 @@ I open it. “Malusium. I was just asking for some of this.”
 
 ### 42 - I Put a Spell on You
 
-“Where were you?” Commander Selby asks me. “And why was Hazel Raidane in my office suggesting that assassinating General Iverson would have been more appropriate than removing him from his position?”
+“Where were you?” Commander Selby asks. “And why was Hazel Raidane in my office suggesting assassinating General Iverson would have been more appropriate than removing him from his position?”
 
 I wince before I have the good sense to mask the reaction.
 
@@ -8362,11 +8362,11 @@ He pinches the bridge of his nose, rubbing at it like he has a headache. “Who 
 
 “Alexandria Raidane’s daughter.”
 
-“*Who* is she? Do us both a favor. Don’t make me ask you again.”
+“*Who* is she? Do us both a favor. Don’t make me repeat the question again.”
 
-I say nothing as I weigh my options. Hazel won’t like it, but I don’t see a good option. If he’s asking, he already has suspicions. Lying to him about those suspicions won’t do anyone any good.
+I say nothing as I weigh my options. Hazel won’t like it, but I don’t see a good alternative. If he’s asking, he already has suspicions. Lying to him about those suspicions won’t do anyone any good.
 
-“She is also General Iverson’s daughter.”
+“She is also General Iverson’s daughter,” I inform him, neutrally.
 
 “Fucking hell. How long have you known?”
 
@@ -8374,7 +8374,7 @@ I sigh. “I’ve known she’s Alexandria Raidane’s child for a while,” I a
 
 “More recently, when?”
 
-“When we were crossing the pass into Firgasu, sir,” I answer staring past his shoulder, not quite meeting his gaze.
+“When we were crossing the pass into Firgasu, sir,” I answer, staring past his shoulder, not quite meeting his gaze.
 
 “Please tell me exactly what it is I’m paying you for, Captain Marten.”
 
@@ -8394,7 +8394,7 @@ Gods damned John Steeple. I resist the urge to tell Commander Selby that some pe
 
 “A trade for…?”
 
-“She didn’t specify, sir. She was under the impression he was looking for something. I got the same impression. Neither of us knows what though. So she stated she would trade to get me back. He evidently thought she either had what he was looking for, or knew where to acquire it, and was willing to exchange me for it. She obviously didn’t have it, so when General Iverson arrived with me, we jumped off the cliff into the river.”
+“She didn’t specify, sir. She was under the impression he was looking for something. I got the same impression. Neither of us knows what, though. So she stated she would trade to get me back. He evidently thought she either had what he was looking for, or knew where to acquire it, and was willing to exchange me for it. She obviously didn’t have it, so when General Iverson arrived with me, we jumped off the cliff into the river.”
 
 “You jumped off the cliff,” he mutters, his hand rubbing at the bridge of his nose again.
 
@@ -8420,11 +8420,11 @@ I nod. My grandfather has always thought of Commander Selby as the son he never 
 
 “Ah.”
 
-“Indeed,” he says nodding. “So would you like to try explaining the past week to me again? In detail this time.”
+“Indeed,” he states, nodding. “So would you like to try explaining the past week to me again? In detail this time.”
 
 I walk him through the past week, obfuscating fewer of the details this time, although I do omit the fact there was anyone else present aside from Hazel, Amelia, Henry, and me. Commander Selby knows little about the others, and I see no good reason to change that.
 
-“So do you know what happened that left her unconscious for five days?”
+“Do you know what happened that left her unconscious for five days?”
 
 “No.
 
@@ -8442,7 +8442,7 @@ I resist the urge to scoff. We are so far beyond that.
 
 “Is there anything else?” I ask.
 
-“Do you know where Iverson is now?”
+“Do you know where Iverson is now?” he inquires.
 
 “No. I’ve heard nothing of his whereabouts, but I would very much like to know where he is.”
 
@@ -8450,11 +8450,19 @@ I resist the urge to scoff. We are so far beyond that.
 
 I nod.
 
+“I offer you quite a bit of liberty in your day to day activities, Captain Marten,” Commander Selby begins.
+
+“Yes, sir,” I agree.
+
+“I permit it because it has proven useful to me in the past, Liam. Do not give me reason to regret that, or you will quickly find it to no longer be the case. Do you understand?”
+
+“Yes, sir,” I repeat.
+
 “Very well. You may go.”
 
 ----
 
-I return to my room, shutting my door with slightly more force than is strictly necessary.
+I return to my room, shutting the door with slightly more force than is strictly necessary.
 
 “I take it things could have gone better, then?” Hazel asks, from where she’s currently sitting cross-legged on the floor holding a sewing needle and some thread.
 
@@ -8464,11 +8472,11 @@ I knock on John’s door. He doesn’t answer, but I’m pretty sure he’s in t
 
 John looks momentarily taken aback to see me standing in front of his door. We’re not friends. Until this point, we’ve been polite acquaintances, occasionally nodding hello to one another in passing. We don’t work together, and we have little reason to speak to one another. There’s also always been something about him that has rubbed me the wrong way. He’s a little too eager to kiss everyone’s ass.
 
-“Liam,” he says uncertainly.
+“Liam,” he greets uncertainly.
 
-“John. I hear you have been discussing my personal relationships with Commander Selby.”
+“John. I hear you’ve been discussing my personal relationships with Commander Selby.”
 
-I stand mute and wait for him to fill the silence as Hazel so often accuses me of doing to her. Saying nothing, while staring directly at someone, making it clear you’re both waiting for and expecting a response, is a very useful technique. Just ask my grandmother.
+I stand mute and wait for him to fill the silence, as Hazel so often accuses me of doing to her. Saying nothing, while staring directly at someone, making it clear you’re both waiting for and expecting a response, is a very useful technique. Just ask my grandmother.
 
 “I—he *asked* Liam. Specifically asked. What was I supposed to say?”
 
@@ -8476,7 +8484,7 @@ I stand mute and wait for him to fill the silence as Hazel so often accuses me o
 
 “But—”
 
-“No, John. No buts. If he asks again, you will tell him you have not seen or noticed anything out of the ordinary, and you will not detail any aspect of my personal relationships to him.” It’s not a suggestion.
+“No, John. No buts. If he asks again, you will tell him you haven’t seen or noticed anything out of the ordinary, and you will not detail any aspect of my personal relationships to him.” It’s not a suggestion.
 
 “Yes. Of course.”
 
@@ -8492,25 +8500,25 @@ I step back into mine.
 
 “Yes. He was telling Commander Selby about us.”
 
-“Obviously,” she says.
+“Obviously,” she responds.
 
 “Yes. Well. My personal relationships are none of their business.”
 
-“So you decided to make sure of it,” she says grinning. “I think I like this side of you. It’s very…” she trails off, her eyes roaming over my body.
+“So you decided to make sure of it,” she comments, grinning. “I think I like this side of you. It’s very…” she trails off, her eyes roaming over my body.
 
 “Very…?” I ask.
 
-“I like it,” she tells me, her voice taking on a huskier quality as she stands and approaches me.
+“I like it,” she informs me, her voice taking on a huskier quality as she stands and approaches me.
 
 She places her hands on my sides as she steps in close, running them up and over my chest before sliding them around the back of my neck and into my hair as she brings my face toward hers, kissing me deeply. I can’t help but instantly respond, and somehow she tastes of coffee and cinnamon. I let myself enjoy the feeling of our mouths on each other for a few moments before I pull away slightly.
 
 “We should talk,” I tell her.
 
-“Later,” Hazel says, moving back toward me.
+“Later,” Hazel demands, moving back toward me.
 
 “You’re not going to like what we should talk about.”
 
-“Then definitely later,” she says before kissing me again.
+“Then definitely later,” she replies before kissing me again.
 
 ----
 
@@ -8520,25 +8528,25 @@ I sigh. “Commander Selby knows about you.”
 
 “About me…?” she questions warily.
 
-“He knows General Iverson is your father,” I say, and I feel her tense slightly.
+“He knows General Iverson is your father,” I explain, and I feel her tense slightly. I knew she wouldn’t like it. I should have insisted we talk immediately when I came back instead of delaying the inevitable.
 
 “You told him?”
 
-“Yes. I didn’t have much choice.” I run my fingers along her skin. “I told you that you wouldn’t like it. He also knows about your magic.”
+“Yes. I didn’t have much choice.” I run my fingers along her skin, hoping to keep her here with me, even though I know it’s unlikely. “I told you that you wouldn’t like it. He also knows about your magic.”
 
 She pulls away now, sitting up and putting distance between us on the bed.
 
 “You *told* him?”
 
-“He heavily implied he already knew, or at least suspected as much. So yes. I told him. Apparently he has more than a passing familiarity with your mother.”
+“He heavily implied he already knew, or at least suspected as much. So yes. I told him. Apparently, he has more than a passing familiarity with your mother.”
 
-“Of course he does,” she mutters as she gets off the bed and starts pulling on her clothes.
+“Of course he does,” she mutters irritatedly, as she gets off the bed and starts pulling on her clothes.
 
 “Where are you going?”
 
-“To see if I can find Amelia.”
+“To see if I can find Amelia,” she bites out.
 
-“Amelia?” I ask.
+“Amelia?” I wonder.
 
 “Yes!” she snaps back at me. “We’re friends! Why is everyone so surprised by that?”
 
@@ -8548,7 +8556,7 @@ She pulls away now, sitting up and putting distance between us on the bed.
 
 “Me and Peter,” I echo back again.
 
-“Yes! Peter and I talked too. I know what you told him. And *not* because he told me, because unlike some people, he seems to know how to keep his mouth shut.”
+“Yes! Peter and I talked too. I know what you told him. And *not* because he told me, because unlike some people, he seems to know how to keep his mouth shut,” she supplies, angrily.
 
 “You’re defending Peter now?” I ask, confused.
 

@@ -2162,7 +2162,7 @@ She finally sits down, and as she does, Peter comes over and sits across from us
 
 “How much is a lot?”
 
-“You remember back in the clearing, in Leisch?” I ask.
+“You remember back in the clearing, in Leisch?” I probe.
 
 She nods.
 
@@ -2184,7 +2184,7 @@ It’s exactly what I knew she was going to say. Exactly what I was *afraid* she
 
 Once the three of us are a couple dozen feet away from the others, I put up a shield to stop our conversation from traveling back to them.
 
-“Is anyone else nervous about how much she wants this?” I ask Davy and Alex.
+“Is anyone else nervous about how much she wants this?” I interrogate Davy and Alex.
 
 Alex nods in agreement. “Yes.”
 
@@ -2198,7 +2198,7 @@ Eventually I know I’m going to go up in flames though. A great, spectacular co
 
 “Okay. Can I get one of you guys to hold her in place? Still-still. Barely breathing still. I don’t want to have to split my attention doing that as well.”
 
-“Yeah, I’ll do it,” Alex tells me.
+“Yeah, I’ll do it,” Alex volunteers.
 
 “Thanks.” I sigh. “Davy, can you make sure no one interferes? I don’t think anyone will, but make sure.”
 
@@ -2232,7 +2232,7 @@ My hands are hot, and it feels like I’ve burned them. Damn. Alex notices me lo
 
 “All good?” Liam asks.
 
-“I don’t know. We’ll find out when she wakes up,” I say as I pull my hands away from Alex and rise to my feet. “Giorgi, can you show me how you set the snares?”
+“I don’t know. We’ll find out when she wakes up,” I answer as I pull my hands away from Alex and rise to my feet. “Giorgi, can you show me how you set the snares?”
 
 “Sure.”
 
@@ -2306,7 +2306,7 @@ The next morning Lisette doesn’t wake up. She’s breathing and her pulse is f
 
 “Not much,” Peter says, pulling out a spare shirt and pair of pants.
 
-“Hand them over,” I tell him, and wait for Alex and Liam to do the same. Once I’ve got all their spare clothes, I begin knotting them together into something resembling a sling.
+“Hand them over,” I demand, and wait for Alex and Liam to do the same. Once I’ve got all their spare clothes, I begin knotting them together into something resembling a sling.
 
 Alex sighs. “Well there’s no way I’m going to be able to wear those again, Hazel.”
 
@@ -2342,7 +2342,7 @@ I look back in question, and he shrugs.
 
 He nods and goes off into the brush.
 
-“What are you teaching my brother?” Gavin asks curiously.
+“What are you teaching my brother?” Gavin wants to know.
 
 “How to stay alive. Hopefully,” I mutter as I slump back onto my pack and stare up at the sky. Everyday we’re not in Branton feels like a missed opportunity, an advantage that we’re giving away.
 
@@ -2366,13 +2366,13 @@ I sigh. “You’re probably right.”
 
 In the evening two days later, after another fifty miles of carrying her across the scrubland, Lisette finally wakes up.
 
-“What happened?” she asks groggily.
+“What happened?” she inquires groggily.
 
 “You’ve been unconscious for about three days,” Gavin says. “We’ve been *carrying* you for three days.”
 
 I grin. You can always count on Gavin to relay the most important information first. I’ll give him that.
 
-“Oh,” Lisette says, looking somewhat abashed. “Did it work?” she asks, looking at me.
+“Oh,” Lisette remarks, looking somewhat abashed. “Did it work?” she questions, looking at me.
 
 “I have no idea,” I tell her. “You’re not dead,” I shrug. “Beyond that, I don’t know. Even if it did, you’re still going to have to figure out how it works. Start with the knot again.”
 
@@ -2390,13 +2390,13 @@ He nods and steps away from the stream.
 
 “What’s up?” he asks once we’ve moved out of earshot of the others.
 
-“Can’t I just want a little alone time with you?” I ask in response.
+“Can’t I just want a little alone time with you?” I counter.
 
 He stops moving forward and spins me around to face him, catching my other hand in his, before bringing his mouth to meet mine. My lips eagerly part beneath his, and as his tongue strokes over mine I press myself more firmly against him and he releases my hands, sliding his to my waist. Mine immediately wrap around him to pull him closer to me. His hands move down to my hips and then over my ass, before he lifts me up, and I wrap my legs around him. I can feel the heat coming off of him as I slip my tongue into his mouth, deepening our kiss. I manage to work my hands under his shirt when he gently pulls back, panting.
 
-“This isn’t what you had on your mind when you asked me to walk with you,” he says.
+“This isn’t what you had on your mind when you asked me to walk with you,” he states.
 
-“Well it’s damn sure what I have on my mind now,” I say kissing him again, my own breathing sounding equally as ragged.
+“Well it’s damn sure what I have on my mind, now,” I say kissing him again, my own breathing sounding equally as ragged.
 
 He pulls back again though, and I’m forced to say, “This now. Talking later. Please, Liam. Please,” I repeat again, beseechingly, when he doesn’t move.
 
@@ -2414,7 +2414,7 @@ He holds me against the tree for a few minutes as we both catch our breath and c
 
 “Hmm?”
 
-“Before,” he says. “When you came to find me. What did you want to talk about?”
+“Before,” he reminds me. “When you came to find me. What did you want to talk about?”
 
 “Oh.” I sigh. “Lisette. We can’t take her to the flat, Liam.”
 
@@ -2426,7 +2426,7 @@ He holds me against the tree for a few minutes as we both catch our breath and c
 
 “She wants it all too much,” I say softly. “It’s not normal. It makes me really, really uneasy. And maybe it will be fine and nothing will come of it, but…”
 
-“But you don’t think so. Okay,” he says, running his hand along my spine. “We’ll figure out something else. We’ve got time.”
+“But you don’t think so. Okay,” he replies, running his hand along my spine. “We’ll figure out something else. We’ve got time.”
 
 “Okay, good.” I close my eyes and enjoy the moment. It’s the first one we’ve had alone in days, and I had no idea how much I needed it. “I love you. Let’s stay here forever,” I murmur.
 
@@ -2454,7 +2454,7 @@ I look for Lisette, and find her fiddling with the knot, but she’s actually cl
 
 We spend the next twelve days walking. It’s monotonous, but at least we’re doing something. Lisette peppers me with questions about magic throughout the trek. I don’t think I’ve ever spent so much time talking about it in my life. To say she’s infatuated would be understating the matter.
 
-I’m doing my best to remain detached from the whole thing. Either she’s going to get herself killed, I’m going to kill her, or everything will work itself out. There’s no reason to dwell on it, now that I’ve established the basic parameters of the situation. Alex and Davy both know the situation, and I’m pretty sure Giorgi’s worked it out as well. I’m not sure about the others, but if they haven’t, they haven’t been paying attention.
+I’m doing my best to remain detached from the whole thing. Either she’s going to get herself killed, I’m going to kill her, or everything will work itself out. There’s no reason to dwell on it, now that I’ve established the basic parameters of the situation. Alex and Davy both know where things stand, and I’m pretty sure Giorgi’s worked it out as well. I’m not sure about the others, but if they haven’t, they haven’t been paying attention.
 
 “So what did you do to get us through the pass?” Lisette asks, and I feel all eyes except Davy’s, Alex’s, and Liam’s turn to me.
 
@@ -2478,9 +2478,9 @@ I consider my words carefully. There’s no good answer to this question. If I t
 
 “Lisette, shut the hell up.” This comes from Gavin, who goes on to say, “Everyone is sick of listening to you bug Hazel about magic. Her most of all, I’m sure,” he mutters.
 
-“Wait, really?” she asks.
+“Wait, really?” she questions.
 
-“Yes. Notice how you’re the *only* one talking about it?” Gavin questions.
+“Yes. Notice how you’re the *only* one talking about it?” Gavin demands.
 
 “Oh.”
 
@@ -2490,7 +2490,7 @@ We walk in silence for a while after that, and eventually Alex moves next to me,
 
 I nod. It’s about what I expected. “I’m not surprised,” I eventually say. “What do you think the chances are she’s able to figure out how to manage it?”
 
-“Not high,” he says. After thinking about it for a minute, he goes on to add, “Maybe twenty percent. Probably less.”
+“Not high,” he responds. After thinking about it for a minute, he goes on to add, “Maybe twenty percent. Probably less.”
 
 “Yeah.”
 
@@ -2536,7 +2536,7 @@ He sighs, but lets his magic fall away, and we begin catching back up to the oth
 
 “How concerned?”
 
-I debate not answering. I consider not quite lying. Ultimately I decide to admit where things stand. “Pretty concerned. Alex thinks we’d be smart to kill her now, rather than risk her in a city full of people.”
+I debate not answering. I consider not quite lying. Ultimately, I decide to admit where things stand. “Pretty concerned. Alex thinks we’d be smart to kill her now, rather than risk her in a city full of people.”
 
 “Shit.”
 
@@ -2602,7 +2602,7 @@ She jerks to a stop, clearly not having realized I was following her. She lets h
 
 “No, I can’t. I need to go now.”
 
-“Why?” I pry.
+“Why?” I interrogate.
 
 “I just do.”
 
@@ -2610,7 +2610,7 @@ She jerks to a stop, clearly not having realized I was following her. She lets h
 
 “I just need to.”
 
-“I can’t let you, Lisette. I really wish I could but I can’t. Do you understand how dangerous you are right now? The magic has been the only thing you’ve been thinking about since you woke up. Even before that, probably. Am I right?” I’m pretty sure I’m right.
+“I can’t let you, Lisette. I really wish I could but I can’t. Do you understand how dangerous you are right now? The magic has been the only thing you’ve been thinking about since you woke up. Even before that, probably. Am I right?” I question her, but I’m pretty sure I’m right.
 
 “Yes,” she admits.
 
@@ -2642,15 +2642,15 @@ He tears a piece of cloth from his shirt and hands it to me instead. “It might
 
 “For which part? Letting her punch you in the face, or letting her have magic in the first place?” he asks as Davy and Giorgi reach us.
 
-“All of it,” I answer grimly. I’m pissed. “Let’s go back. We all need to move. She started pulling power into her. If anyone was looking for us, she might have given our position away.”
+“All of it,” I answer grimly. I’m pissed. “Let’s go back. We all need to move. She started pulling power into herself. If anyone was looking for us, she might have given our position away.”
 
-“What do you want to do with her?” he asks.
+“What do you want to do with her?” Alex asks.
 
 “Leave her. We don’t have time. We need to start circling around, and change the direction we’re approaching from.”
 
-“Alright. We’ll sort the others,” Alex says, and Davy and Giorgi nod in agreement.
+“Alright. We’ll sort the others,” Alex states, and Davy and Giorgi nod in agreement.
 
-“Fine,” I say, pressing the cloth into my face a little bit harder. It stings. Serves me gods damned right.
+“Fine,” I reply, pressing the cloth into my face a little bit harder. It stings. Serves me gods damned right.
 
 ### 13 - The Monster
 
@@ -2678,7 +2678,7 @@ I open my eyes back up. Davy is still talking to Liam. I have no idea what he’
 
 His eyes flick to mine and see the urgency there.
 
-“Okay,” he says, shoving my pack into my arms. “Everyone up,” he calls out to the others. “We’re going now. No magic and everyone is running.”
+“Okay,” he responds, shoving my pack into my arms. “Everyone up,” he calls out to the others. “We’re going now. No magic and everyone is running.”
 
 I let out a sigh of relief, which quickly dies when I hear someone, I think Henry, ask, “Where’s Lisette?”
 

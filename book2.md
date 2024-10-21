@@ -618,7 +618,7 @@ Robert looks at me, and I swear he looks amused. “We have a mutual goal. A com
 
 “Yes, I’m surprised you survived the once,” Robert comments.
 
-Suddenly I’m interested again.
+Suddenly, I’m interested again.
 
 “You wouldn’t know anything about the avalanches?” I question, as I study his face.
 
@@ -638,7 +638,7 @@ Davy sighs in irritation before trying again, “If we could discuss the use of 
 
 “Yes,” John agrees, “It’s like herding cats. I know the feeling well,” he comments as he flicks a glance toward his father. “We will loan you a ship. On the condition you allow Amelia and her cousin, my son, Michael to travel with you.”
 
-“Could be dangerous,” I assert. “They both might die. Ships in the winter sea are notoriously dangerous under the best conditions,” I remark, hoping to discourage them. I don’t even really trust Amelia. The last thing I want is some cousin of hers I haven’t even met joining us. What I want is to say no.
+“Could be dangerous,” I assert. “They both might die. Ships in the winter sea are notoriously dangerous under the best conditions,” I remark, hoping to discourage them. I don’t even really trust Amelia. The last thing I want is some cousin of hers I haven’t even met joining us. What I want, is to say no.
 
 “Amelia needs to go back anyway,” Liam notes. They’re the first words he’s spoken since the introductions.
 
@@ -704,7 +704,7 @@ Davy and I both sigh loudly, in unison.
 
 We arrive back in Leisch late in the evening, and the house appears dark.
 
-“Let’s take a walk,” Liam says after we stable the horses. He takes my hand, pulling me away from the house, as Davy heads towards it.
+“Let’s take a walk,” Liam says, after we stable the horses. He takes my hand, pulling me away from the house, as Davy heads towards it.
 
 “Where are we going?” I ask after a few minutes.
 
@@ -720,7 +720,7 @@ We arrive back in Leisch late in the evening, and the house appears dark.
 
 “What do you make of that, anyway?”
 
-“They’re more scared of General Iverson than they are of your mother,” he says softly.
+“They’re more scared of General Iverson than they are of your mother,” he replies softly.
 
 “I wish I knew if their assessment of my mother or of him is more wrong. I have a feeling I’m going to have to meet the man,” I mutter. I really don’t want to. “You’ve met him. What do you think?”
 
@@ -770,9 +770,9 @@ I sigh. “Yeah, but it’s not really going to get better, is it? Six weeks abo
 
 “I think you hide it a lot better than I do,” I inform him.
 
-“We all hide it better than you,” he tells me, before kissing me. When we break apart he says, “I’m okay though. Let’s go back.”
+“We all hide it better than you,” he tells me, before kissing me. When we break apart he says, “I’m okay, though. Let’s go back.”
 
-I sigh, but I know he’s right. “Will you come tomorrow morning? When I’m ‘teaching’ the others? I want a second opinion on Lisette because I have no idea what I’m doing with any of this. I’m the last person who should be teaching anyone.”
+I sigh, but I know he’s right. “Will you come tomorrow morning? When I’m ‘teaching’ the others? I want a second opinion on Lisette, because I have no idea what I’m doing with any of this. I’m the last person who should be teaching anyone.”
 
 “Yes. But for what it’s worth, I’m beginning to think no one knows how to teach this shit. I’m starting to think it’s either something you figure out, or you don’t.”
 
@@ -782,7 +782,7 @@ I sigh, but I know he’s right. “Will you come tomorrow morning? When I’m �
 
 I nod. “Maybe.”
 
-“You think there’s another way,” he says with certainty.
+“You think there’s another way,” he claims with certainty.
 
 “Maybe.”
 
@@ -796,7 +796,7 @@ I nod. “Maybe.”
 
 We’re back in the stream the next morning. Alex and Davy are the only ones who aren’t here. I think they’re probably informing my mother of yesterday’s happenings.
 
-Gavin, Lisette, and Henry are still working on lighting the paper, but Henry and Gavin are further along than Lisette, working on lighting multiple pieces at the same time. Getting them started is easy because they’re all more or less doing the same thing as they were yesterday.
+Gavin, Lisette, and Henry are still working on lighting the paper, but Henry and Gavin are further along than Lisette, working on lighting multiple pieces at the same time. Getting them started is easy because they’re all more or less doing the same thing they were yesterday.
 
 Based on how yesterday went, Giorgi’s working on something new. Peter has joined Giorgi in the river this morning. So apparently I’m teaching Peter now too. To say I have mixed feelings about it is an understatement, but here we are.
 
@@ -846,7 +846,7 @@ Peter and Liam get it at almost the same time, about fifteen minutes later, and 
 
 I have all three of them continue to practice it for a bit longer, before deciding it's enough for today.
 
-As they leave the water I grab Lisette’s arm. “Before this afternoon,” I tell her, “I want you to think very hard about whether or not this is something you really want to be able to do.” I see the anger flash across her face, and continue, “You’ve made it this far without any magic. It’s not something you need. So think about it. That’s all.” I let go of her arm, and she walks away without saying anything.
+As they leave the water, I grab Lisette’s arm. “Before this afternoon,” I tell her, “I want you to think very hard about whether or not this is something you really want to be able to do.” I see the anger flash across her face, and continue, “You’ve made it this far without any magic. It’s not something you need. So think about it. That’s all.” I let go of her arm, and she walks away without saying anything.
 
 “Giorgi, hold up a minute,” I call out. He pauses up ahead. When I catch up, Gavin, Peter, and Liam are all waiting with him. “You guys go ahead,” I tell them. “We’ll catch up.”
 
@@ -864,29 +864,29 @@ I stand there waiting until they start moving and are well out of earshot. “It
 
 We walk in silence until we catch up to Liam, Gavin, and Peter, who I have the impression were likely walking very slowly in hopes that we would.
 
-“What was that all about?” Gavin asks.
+“What was that all about?” Gavin questions.
 
 I shrug.
 
-“You know Giorgi will tell me later, so you may as well spill it,” Gavin says.
+“You know Giorgi will tell me later, so you may as well spill it,” Gavin informs me.
 
 I look at Giorgi and he shrugs before saying, “If he asks. Yeah. Probably.”
 
 “Fair. I told Giorgi he would benefit from meeting me in the stables later. He’ll probably learn faster without the rest of you slowing him down.”
 
-“Ah,” Peter says.
+“Ah,” Peter remarks.
 
-“Shut the fuck up, Peter,” I say warningly.
+“Shut the fuck up, Peter,” I warn.
 
-“What?” Liam asks.
+“What?” Liam asks, looking at me.
 
 “Nothing,” I answer quickly.
 
-“You tell him, or I will,” Peter says.
+“You tell him, or I will,” Peter states.
 
-“Go ahead,” I say, calling what I hope is a bluff.
+“Go ahead,” I reply, calling what I hope is a bluff.
 
-“Hazel wants to train Giorgi up in hopes that if she… what? Breaks bad one day, someone might have a chance at killing her,” Peter says.
+“Hazel wants to train Giorgi up in hopes that if she… what? Breaks bad one day, someone might have a chance at killing her,” Peter asserts.
 
 Fuck.
 
@@ -894,15 +894,15 @@ Liam stops dead in his tracks. Fuck.
 
 Gods damned Peter. I glare at him. “You and I will be having words later,” I tell him.
 
-Giorgi looks between me and Liam. “So tomorrow, then?” he asks me.
+Giorgi looks between me and Liam. “So tomorrow, then?” he inquires.
 
 I look at Liam and nod. “Tomorrow.”
 
 Gavin, Giorgi, and Peter walk off. I close my eyes, take a deep breath, and brace myself.
 
-“Anything to say?” Liam asks.
+“Anything to say?” Liam interrogates me.
 
-“Peter’s an asshole,” I state flatly.
+“Peter’s an asshole,” I growl.
 
 “Peter?” Liam asks incredulously. “You think Peter’s the asshole here?”
 
@@ -916,13 +916,13 @@ Fuck.
 
 “I didn’t bother talking to you about it because I knew this is how the conversation would go. And Giorgi’s the only viable option, because if it comes down to it, you won’t do it. Davy won’t do it. Alex won’t do it. But Giorgi would. I don’t know if he’ll be able to, but he would if he could.”
 
-“Un-fucking-believable, Hazel!” Liam says, but he’s still standing there.
+“Un-fucking-believable, Hazel!” Liam snaps, but he’s still standing there.
 
 He hasn’t walked away yet, so I start talking. “Everyone wants the impossible from me, and maybe the impossible is the final nail in the coffin! I already feel like I’m pretending at being a person half the time. This, all of this, could be what makes it so that I don’t bother pretending at all, so excuse me for wanting a contingency plan!”
 
 “This isn’t a contingency plan!”
 
-“It’s the *only* contingency plan!” I say, stepping towards him, but he steps back in retreat. “Fine. You want to know how I feel? I feel defeated because every time I try to explain this part of myself to you, you act like I’m irrational. But I’m not. *This* is logical. It is a *rational* decision.”
+“It’s the *only* contingency plan!” I bite out, stepping towards him, but he steps back in retreat. “Fine. You want to know how I feel? I feel defeated because every time I try to explain this part of myself to you, you act like I’m irrational. But I’m not. *This* is logical. It is a *rational* decision.”
 
 “I asked you to talk to me last night!”
 
@@ -948,9 +948,9 @@ I stay rigid within his embrace as he rests his chin on my head. “I hear what 
 
 “Figure out what your mother did to me, and then do it to yourself,” he says, matter of factly.
 
-Damn. It *is* a better solution. I finally relent and wrap my arms around him too.
+Damn. It *is* a better solution. I finally relent and wrap my arms around him, too.
 
-“Fine. Your plan is better,” I admit. “But until then I want to teach Giorgi.”
+“Fine. Your plan is better,” I admit. “But until then, I want to teach Giorgi.”
 
 “Fine,” he murmurs.
 
@@ -958,7 +958,7 @@ Damn. It *is* a better solution. I finally relent and wrap my arms around him to
 
 A couple of hours later, we arrive back at the house. Liam sees Gavin and asks, “Do you know where Peter is?”
 
-“Outside, by the weird lawn animals with Alex and Davy, I think. Why?” Gavin asks as Liam is already moving forward with his hand on the small of my back. “Oh, well. This looks fun. Count me in,” Gavin says.
+“Outside, by the weird lawn animals with Alex and Davy, I think. Why?” Gavin wonders, as Liam is already moving forward with his hand on the small of my back. “Oh, well. This looks fun. Count me in,” Gavin remarks.
 
 I shoot him a look over my shoulder with my eyebrows raised in question, but he simply grins. We go through the house, out the rear door, and across the lawn to the topiary zoo.
 
@@ -982,7 +982,7 @@ Peter regains his feet with a hand on his face, feeling his nose, as blood runs 
 
 “Not for the first time, as I remember,” Gavin comments.
 
-“Huh,” I say, giving Liam a sideways glance. He shrugs.
+“Huh,” I mutter, giving Liam a sideways glance. He shrugs.
 
 “See,” Gavin says to me with a smirk. “I told you Peter was just some neighborhood troublemaker we knew.”
 
@@ -996,7 +996,7 @@ Alex looks between them, and sighs. He steps back and leaves Peter to figure it 
 
 It’s at this moment Henry comes out of the house with Amelia, and some guy I assume is her cousin, whatever his name was, trailing behind. When they finally come within speaking distance of our group, Amelia says, “That’s a good look on you, Peter,” as she laughs. “Did you do that, Hazel?”
 
-“No,” I say, and look pointedly at Liam.
+“No,” I answer, and look pointedly at Liam.
 
 “Liam? Really? Interesting,” she comments. “I think I might actually prefer this version of you, Liam.”
 
@@ -1004,7 +1004,7 @@ Liam sighs irritatedly, but he brought this on himself as far as I’m concerned
 
 Amelia’s cousin looks incredibly confused.
 
-Finally, Amelia says, “Everyone, this is Michael. Michael, that’s Hazel, Liam, and Gavin,” she says pointing at us each in turn. “The idiot with the bloody face is Peter. The taller guy back there is Alex, and the shorter one is Davy. Alex is Hazel’s brother and Davy is her cousin. There are a couple of others around somewhere. Gavin’s younger brother Giorgi, and Lisette, who’s hard to miss.”
+Finally, Amelia states, “Everyone, this is Michael. Michael, that’s Hazel, Liam, and Gavin,” she introduces, pointing at us each in turn. “The idiot with the bloody face is Peter. The taller guy back there is Alex, and the shorter one is Davy. Alex is Hazel’s brother and Davy is her cousin. There are a couple of others around somewhere. Gavin’s younger brother Giorgi, and Lisette, who’s hard to miss.”
 
 We all chorus some variation of ‘hi.’
 
@@ -1032,13 +1032,13 @@ We both stand silently, waiting to hear whatever it is she’s devised, while th
 
 “Hazel and Davy are going to show us how to move energy through another’s meridians.” She turns to look directly at us. “You have three minutes to figure out how you want to do it.”
 
-“Fine,” I answer. Turning my back slightly from the others. Davy follows suit as I shield the air around us to stop our conversation from traveling. “I’m pretty sure this is going to fucking hurt,” I tell Davy.
+“Fine,” I answer. Turning my back slightly on the others. Davy follows suit as I shield the air around us to stop our conversation from traveling. “I’m pretty sure this is going to fucking hurt,” I tell Davy.
 
 “Yup.”
 
-“You should pull it through me,” I tell him. “I think I’m going to have to do this to Lisette, so it’d be better if I had some idea how it feels, anyway.”
+“You should pull it through me,” I inform him. “I think I’m going to have to do this to Lisette, so it’d be better if I had some idea how it feels, anyway.”
 
-“If I pull it through you, I’m not sure I’ll be able to shunt it off quickly enough,” he tells me.
+“If I pull it through you, I’m not sure I’ll be able to shunt it off quickly enough,” he responds.
 
 “What if I try to slow the flow?”
 
@@ -1054,7 +1054,7 @@ I drop the shield and turn back to my mother. “How long?”
 
 “Until I say you’re done.”
 
-Fuck. “Fine,” I say flatly. “Let’s go, Davy.” I hold my hand out, and he wraps his own around it.
+Fuck. “Fine,” I answer flatly. “Let’s go, Davy.” I hold my hand out, and he wraps his own around it.
 
 “Ready?” he asks me.
 
@@ -1070,19 +1070,19 @@ I think I hear Alex and Liam shouting in the distance but I can’t make out the
 
 Then, with a jolt that feels like I’ve been kicked by a horse, I’m flat on my back and someone is grabbing me under my arms and pulling me upright. Giorgi, I realize. I look around for Davy, and see him on the ground with Alex hovering over him. I’m not sure how bad it is yet.
 
-And Liam is holding a knife to my mother’s throat. “I’ll kill you myself,” he tells her, “if you ever pull another stunt like that. Right now, you are alive at my sufferance. Do not try me, Alexandria, because I would consider your life well worth my own,” he says icily.
+And Liam is holding a knife to my mother’s throat. “I’ll kill you myself,” he tells her, “if you ever pull another stunt like that. Right now, you are alive at my sufferance. Do not try me, Alexandria, because I would consider your life well worth my own,” he states icily.
 
 Once I’m on my feet and no longer swaying, Giorgi releases me.
 
 “We’re done today,” I tell everyone, but mostly her. “And if there’s anything wrong with Davy, I’ll figure out how to make you pay. You know I will.”
 
-“He’ll be fine,” she says airily, as if she doesn’t have a knife to her throat. “You’re all always *so* dramatic.”
+“He’ll be fine,” she replies airily, as if she doesn’t have a knife to her throat. “You’re all always *so* dramatic.”
 
 Liam removes the knife and she turns and walks away at the most deliberately sedate pace I have ever seen in my life.
 
 I turn to Alex, “How is he?”
 
-“His pulse was thready,” Alex says, “but it’s evening out now.”
+“His pulse was thready,” Alex notes, “but it’s evening out now.”
 
 “What happened?” I ask.
 
@@ -1094,17 +1094,17 @@ I turn to Alex, “How is he?”
 
 “Fucking bitch,” I manage to bite out.
 
-“Yeah, he needed a break, but she wouldn’t call time, and he wasn’t about to stop before then and make it worse,” Alex supplies.
+“Yeah, he needed a break, but she wouldn’t call time, and he wasn’t about to stop before then and make it worse,” Alex continues.
 
 I nod. “He made the smart choice.”
 
-“*That* was smart?” Liam asks.
+“*That* was smart?” Liam questions with a hint of disbelief.
 
 “Yes,” Alex and I both say simultaneously.
 
 “All of our blood remains inside our bodies. It could have been worse,” I tell him. “Gods, I hate her,” I mutter.
 
-“Come on,” Liam says to Alex. “I’ll help you get him to your room.”
+“Come on,” Liam tells Alex. “I’ll help you get him to your room.”
 
 Alex nods and they lift Davy together, moving ahead of the rest of us.
 
@@ -1114,15 +1114,15 @@ Alex nods and they lift Davy together, moving ahead of the rest of us.
 
 He nods.
 
-“Thanks,” I say as he moves to speak to Gavin.
+“Thanks,” I respond as he moves to speak to Gavin.
 
-“You look like shit,” Lisette tells me.
+“You look like shit,” Lisette comments.
 
 “Yeah. Well.” I shrug. “Still want to be able to do magic?” I ask her. “Because I think we’re going to have to do something like that with you.”
 
 “Let me sleep on it,” she says with the first hint of trepidation I’ve seen from her.
 
-“Good choice,” I say as she moves ahead and is replaced by Peter. “Fucking Peter,” I mutter once I’m sure he’s close enough to hear me.
+“Good choice,” I note as she moves ahead and is replaced by Peter. “Fucking Peter,” I mutter once I’m sure he’s close enough to hear me.
 
 “That looked pretty rough,” he tells me.
 
@@ -1130,7 +1130,7 @@ He nods.
 
 “I’m sorry about earlier. With Liam.”
 
-“Only because it earned you a busted face,” I say with certainty.
+“Only because it earned you a busted face,” I respond with certainty.
 
 “Maybe. But you can’t honestly think keeping something like that from Liam is a good idea.”
 
@@ -1170,7 +1170,7 @@ I nod. “And Alex?”
 
 “Good. Are you okay?” I ask him.
 
-“I was better before that stunt your mom pulled in the woods,” he says, enfolding me in his arms.
+“I was better before that stunt your mom pulled in the woods,” he comments, enfolding me in his arms.
 
 “I did tell you,” I remind him.
 
@@ -1210,7 +1210,7 @@ I turn my back to the rail and watch the crew. They’re busy and it looks more 
 
 “If you’re merely following someone else’s orders? And doing as you’re told? Not long. To give the orders? Ages. Why? You fancy a life at sea?”
 
-“Considering it,” I say.
+“Considering it,” I reply.
 
 “You know anything about navigation?”
 
@@ -1240,7 +1240,7 @@ I let Alex drag me away. “What do you want?” I grumble.
 
 He shrugs. “Probably.”
 
-“Then why does it feel like he’s waiting for the opportunity to stick a knife in my back?”
+“Then, why does it feel like he’s waiting for the opportunity to stick a knife in my back?”
 
 Alex shrugs. “Dunno. Mom plans to continue her training while we’re at sea.”
 
@@ -1266,7 +1266,7 @@ Alex wends his way below deck, with me trailing along behind him. When we enter 
 
 “All chance and no skill. It’s boring.”
 
-“Well, I brought cards too,” Gavin says, as he scoops up the dice. “We can play poker later. As I recall, Liam is one up on you.”
+“Well, I brought cards too,” Gavin informs me, as he scoops up the dice. “We can play poker later. As I recall, Liam is one up on you.”
 
 I roll my eyes, but say, “Maybe.” It’s not like there’s anything else to do. And this is why I hate ships. Sitting around and eating, and eating and sitting around. The crew won’t even let you climb up into the rigging, which is arguably the only place on a ship worth being.
 
@@ -1288,13 +1288,13 @@ I sit down next to Liam, who immediately wraps an arm around me. “Strip poker?
 
 Liam laughs. “You said the room was claustrophobic and then practically ran up to the deck. What else would you possibly be doing?”
 
-“I could have just been getting some air,” I say.
+“I could have just been getting some air,” I comment.
 
 “But you weren’t, were you?”
 
 “No. Have you seen how tall the mast is?” I ask wistfully.
 
-“Why would you want to go up there?” Michael asks.
+“Why would you want to go up there?” Michael questions.
 
 “Why *wouldn’t* you?” I answer. “Imagine being up there in a storm,” I let myself daydream about it for a minute. “It would be glorious.”
 
@@ -1308,7 +1308,7 @@ I close my eyes and sigh. Birthdays. I hate them. Mostly mine. But apparently th
 
 “This is what you were planning? When I asked a couple of days ago?”
 
-“Don’t sound so disappointed, sis,” Alex says. “It’s the first birthday we’ve all been together in *years*!”
+“Don’t sound so disappointed, sis,” Alex orders. “It’s the first birthday we’ve all been together in *years*!”
 
 “A streak we definitely should have continued,” I tell him. “Thank you for the cake,” I say, trying to be polite.
 
@@ -1338,11 +1338,11 @@ I roll my eyes.
 
 “Not with an attitude like that,” he comments as he takes a shot. “Two an hour over the next fourteen hours? You’ll manage. Probably.”
 
-“There are worse ways to die,” I say as I down the first shot and take a bite of cake.
+“There are worse ways to die,” I agree as I down the first shot and take a bite of cake.
 
 It’s sometime after the fourth shot that Gavin convinces me to play dice with them, and I start flagrantly cheating. “All sixes, all the time!” I boast after the third such roll.
 
-“We know you’re cheating,” Peter says.
+“We know you’re cheating,” Peter states.
 
 “Then figure out how to stop me,” I respond with a grin.
 
@@ -1356,17 +1356,17 @@ He typically cares as much about games of chance as I do, which is not at all. I
 
 “None.”
 
-“You’ll regret that.”
+“You’ll regret that,” he informs me, matching my grin.
 
 “Will I?” I ask, knowing it’s entirely possible.
 
 “One twenty?”
 
-“Sure.”
+“Sure,” I agree.
 
 We’ve got five dice, with a high roll of all sixes having a maximum of thirty points. If you have more than a single one in a role, you score nothing for that roll. If you have more than three ones in a single roll, you lose all the points you’ve accumulated so far. First person to a hundred and twenty points wins. Simple.
 
-I roll first. I can feel Alex trying to flip my dice, but I don’t let him. “Thirty points,” I say smugly.
+I roll first. I can feel Alex trying to flip my dice, but I don’t let him. “Thirty points,” I note smugly.
 
 He scowls at me, and picks up the dice. He cups his hands around them, shakes them, and lets them go. I manage to flip three of them to ones before they hit the table top.
 
@@ -1374,7 +1374,7 @@ He scowls at me, and picks up the dice. He cups his hands around them, shakes th
 
 I pick the dice up, and roll again. This time, as I release them, I feel something hit my chair, and it’s tipping backwards. I split my focus, in an effort to avoid bashing my head on the floor as my chair tips, and by the time my dice hit the table, three of them are ones.
 
-“Oh, look at that. No points. How sad for you,” Alex says, mocking me.
+“Oh, look at that. No points. How sad for you,” Alex mocks.
 
 “Playing dirty. I approve.”
 
@@ -1396,7 +1396,7 @@ He nods and shakes the dice in his hand before throwing them. I go to flip them,
 
 Alex smiles broadly. “Thirty-sixty, sis.”
 
-“We’ll see,” I say as I pick up the dice and roll again. Another thirty points to me. “You’re going to have to do better than that.”
+“We’ll see,” I answer as I pick up the dice and roll again. Another thirty points to me. “You’re going to have to do better than that.”
 
 “So it would seem. A moment, if you will,” he tells me. He turns and whispers something to Davy, then to Giorgi, then to Peter.
 
@@ -1414,13 +1414,13 @@ His strategy is the same as last time, and I’m faster, but so is he. He adds a
 
 “Um, let’s not break the ship,” Henry comments, warily looking between me and Alex.
 
-“Fine, I promise not to cause a shipwreck if Alex does the same,” I tell him.
+“Fine, I promise not to cause a shipwreck if Alex does the same,” I answer.
 
-Alex nods in agreement. “No shipwrecks,” he says, scooping up the dice and rolling.
+Alex nods in agreement. “No shipwrecks,” he concurs , scooping up the dice and rolling.
 
 He layers on a bit more, so now, in addition to everything that came before, I feel Peter, Giorgi, and Davy all working to influence the Dice in Alex’s favor, and I run out of time. Again. Damn!
 
-“Ninety-ninety, sis,” Alex says smirking.
+“Ninety-ninety, sis,” Alex notes, smirking.
 
 I scoop up the dice and release them in a single move. I don’t bother with any kind of shield. I throw all of my effort into making sure every dice has a six face-up, no matter where it lands. I put enough power into it that it doesn’t matter what Alex or anyone else in the room does. Enough that it definitely feels a bit chilly in the galley now.
 
@@ -1430,11 +1430,11 @@ He scoops up the dice, cups them in his hand and gives them a quick shake before
 
 “You… vaporized one of the dice?” he asks.
 
-“No limitations,” I tell him, grinning like the cat that ate the canary.
+“No limitations,” I reply, grinning like the cat that ate the canary.
 
 “Nice,” he tells me appreciatively. “Very nice.”
 
-“Thank you.”
+“Thank you,” I say, taking a small bow.
 
 ----
 
@@ -1466,7 +1466,7 @@ He shakes his head.
 
 Gavin waves at Michael, and says, “Hello, that’s us, in case it wasn’t clear.”
 
-“Alex has functionally no morals whatsoever, and I’ve never encountered a rule I’m not just willing, but eager, to break. You saw Liam hold a knife to my mother’s throat a couple of days ago. Henry and Lisette decided it sounded like more fun to risk their lives hanging out with us than whatever it is they’d be doing otherwise. We’re basically the people your parents warned you about growing up,” I say with a shrug. “And interestingly, your parents somehow still thought you should come with us.”
+“Alex has functionally no morals whatsoever, and I’ve never encountered a rule I’m not just willing, but eager, to break. You saw Liam hold a knife to my mother’s throat a couple of days ago. Henry and Lisette decided it sounded like more fun to risk their lives hanging out with us than whatever it is they’d be doing otherwise. We’re basically the people your parents warned you about growing up,” I remark with a shrug. “And interestingly, your parents somehow still thought you should come with us.”
 
 I take a long inhale from the pipe Davy passes me before handing it off to Alex, who takes a drag before passing it off to Liam, who—to my surprise, despite my words—does the same before passing it on.
 
@@ -1504,7 +1504,7 @@ I look around trying to find the voice, and finally locate the pilot I was speak
 
 “You came up here at dawn, on a tear, saying you were going to climb up into the rigging. No one was willing to grab you—to stop you—on account of, well,” he says waving at me. “You weren’t lying when you said you could climb. You were onto the main yard quick as could be, not listening to anyone telling you to get your ass back onto the deck until yon man showed up,” he nods toward Liam.
 
-“Him you listened to. Then you came back down and refused to go to your cabin. By that point we were just glad to have you out of our rigging,” he says with a shrug, as if that explains everything. “Amazed you didn’t dash your brains all over my deck,” he mutters.
+“Him you listened to. Then you came back down and refused to go to your cabin. By that point we were just glad to have you out of our rigging,” he supplies with a shrug, as if that explains everything. “Amazed you didn’t dash your brains all over my deck,” he mutters.
 
 “Please. I could climb that mast while drunk, blindfolded, and stoned in the middle of a gale,” I scoff.
 
